@@ -36,7 +36,7 @@ then
 	  --tgt ${TGT_FILE} \
 	  --data_dir ${DATA_DIR}/ \
 	  --model_dir ${MODELS}/ \
-	  --vocab_size 5000
+	  --vocab_size 3557
 
 	echo "################ Done training ################"
 	#Vocab size may need to be changed depending on training files (3560 for pilot data train)
@@ -96,7 +96,7 @@ then
 	    --weight-decay 0.0001 \
 	    --label-smoothing 0.2 --criterion label_smoothed_cross_entropy \
 	    --optimizer adam --adam-betas '(0.9, 0.98)' --clip-norm 0 \
-	    --lr-scheduler inverse_sqrt --warmup-updates 4000 --warmup-init-lr 1e-7 \
+	    --lr-scheduler inverse_sqrt --warmup-updates 1500 --warmup-init-lr 1e-7 \
 	    --lr 1e-3 --stop-min-lr 1e-9 \
 	    --max-tokens 1000 \
 	    --update-freq 4 \
