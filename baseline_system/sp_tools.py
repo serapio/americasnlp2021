@@ -12,6 +12,7 @@ if __name__ == '__main__':
     parser.add_argument('--data_dir', type=str)
     parser.add_argument('--data_out', type=str)
     parser.add_argument('--model_dir', type=str)
+    parser.add_argument('--datasets', nargs="*", default=['train', 'dev', 'test'])
     parser.add_argument('--vocab_size', type=int, default=5000)
     parser.add_argument('--character_coverage', type=float, default=1.0)
 
@@ -36,7 +37,7 @@ if __name__ == '__main__':
 
         model = SentencePieceProcessor(model_file=args.model_dir + 'sentencepiece.bpe.model')
 
-        for split in ['train', 'dev', 'test']:
+        for split in args.datasets:
             for ext in [args.src, args.tgt]:
                 try:
                     # https://github.com/google/sentencepiece/issues/508
