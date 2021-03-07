@@ -1079,8 +1079,6 @@ a ) brumoso , aneblinado
 a ) levantarse la niebla , aclararse el ambiente
 desempolvar , quitar el polvo
 a ) estar brumoso , haber neblina
-desempolvar , quitar el polvo
-a ) estar brumoso , haber neblina
 a ) estar brumoso , turbio , empolvado
 a ) neblina , bruma
 a ) crear , producir neblina
@@ -1547,7 +1545,6 @@ torcerse el cuello
 torcer el pescuezo ( a otro ) p ej . a una gallina .
 eslabón , para sacar chispas , para hacer fuego
 ya está , ya lo torcí
-eslabón , para sacar chispas , para hacer fuego
 mira cómo se puso la soga ! ¿ la destuerzo ?
 ¡ estate quieto ! Ya me hiciste que lo torciera !
 ay ! Dale vueltas y tuércemelo ¡ ay ! Tuérceme ( enróllame ) el cigarro ! ( Canción rarámuri )
@@ -2817,7 +2814,6 @@ la pulga corre a saltos ( como botando )
 así no salta uno ( no rebota uno )
 ¿ cuánto rebota uno galopando ? ( corriendo montado ? )
 yo la hago botar muy alto
-DERIVADOS
 amargo , amargoso
 copalquín
 hiel
@@ -3177,10 +3173,8 @@ traes muy negras por dentro las orejas
 llegamos allí cuando ya estaba oscuro
 no va a llover todavía ; lloverá más tarde , luego que haya anochecido
 cuiden bien su alma , que no se vaya a ennegrecer de nuevo
-el pitorreal canta cuando va oscureciendo
 no están sucias ( negras ) las enaguas
 ve , ya se ensució ( se puso negra , la camisa ) ; habrá que lavarla . - sí seré capaz de lavarla
-el pitorreal canta cuando va oscureciendo
 ¿ llegarás ya oscuro ? - al ir oscureciendo
 estuvo zapateando con mucha habilidad , ( bailó zapateando )
 entre los dos me dieron puñetazos en la cara
@@ -3334,7 +3328,6 @@ por qué ? - quién sabe por qué
 mira ! una aguililla que se posó en aquel picacho
 traigan acá una flecha ! yo se la clavo en el hocico
 los marranos van a escarbar con el hocico
-entre los dos me dieron puñetazos en la cara
 parece muy bravo , por la cara
 El Picacho
 criar pico , hocico , los animales
@@ -3358,7 +3351,6 @@ el garambullo de vainas ; sus semillas son ovaladas y algo puntiagudas ; se hien
 la víbora de cascabel tiene colmillos filosísimos ; en los colmillos tiene veneno , como un agua amarillenta
 está uno comiendo frijoles ; entonces otro chiquillo dice ; yo también quiero sopear
 está comiendo ( a sopas )
-se me pegó la trementina
 ¿ vas a comer tónari ? - no ; lo voy a sopear
 allí en la peña está pegado un saltapared
 el galán ( un pájaro ) , tiene el pico pardo y el lomo esponjado
@@ -3719,7 +3711,6 @@ tengo mucha hambre
 está cerrado
 ¿ por qué cercaron ? no hay siembra
 ¿ dónde cogiste esos pescados ? - donde estuvimos haciendo presa
-voy a cerrar ; está muy molesto el viento - cierra
 ¡ Valerio ! ¿ dejaste cerrado tú ?
 le quité cosas chiquitas a mi hermano
 me quitó el peine y salió de huída
@@ -3866,7 +3857,6 @@ si vivímos aquí antes ; pero ya nos fuimos ( LIT . corrimos ) a otra parte
 ¿ por qué al padre no le gusta que los blancos vivan aquí ?
 los barranqueños tienen muy gruesa la planta del pie
 ¿ de dónde son ustedes ?
-este arco es de epéwari : un árbol un poco retorcido
 pasé la noche en el llano de este lado de Carichí
 se llenará ( de viviendas ) todo el valle donde está Sisoguichi ; arriba de los peñales se levantarán las cosas lindamente pintadas
 andaban ( los caballos ) arriba en la meseta
@@ -4133,7 +4123,6 @@ anda ( se la pasa ) bebiendo mucho
 anda escardando ( por este tiempo se ocupa en la escarda )
 ¿ dónde vives pues ? - vivo aquí ; por aquí por el monte me mantengo ( suelo andar )
 se llama Los Gavilanes , porque antes había ( allí ) muchos gavilarnes
-andan trabajando del otro lado del río
 Cinobia anda con faldas plisadas ( estilo tarahumar ) ; la mamá se las hizo
 y después la mamá andaba llorando , buscando a sus hijitos
 yo soy su madre ( de ustedes )
@@ -4341,7 +4330,6 @@ no tiene tan buena cara ( es un descarado , un perverso )
 si toma el cargo el mejor de los jefes , congregará muchos tarahumares
 es buenísimo el cigarro !
 ¿ quién es mejor ?
-una noticia no tan buena
 yo busco una mujer de las mejores ; de las que no son de mal carácter
 los revolvemos con bellotas
 yo como la bellota desmenuzada
@@ -5401,7 +5389,6 @@ faltan pocos años
 esa mujer ha largado a muchos ; no son pocos los que ha largado
 ¿ qué tragedia trae la bruma ? - se muere el ganado ; ( trae ) enfermedad de los animales
 las tuzas almacenaron ( raíces de ) pasto burrero en su tucero
-toda clase de cosas ha perdido ese jugando al quince
 tú la despediste por odio
 siempre llevo los caballos a la mesa , luego de darles de comer
 ¿ a dónde se fue ? - a Norogachi . - ¿ allá se fue ?
@@ -5912,7 +5899,6 @@ nos subimos a una lomita desde donde se veía todo al rededor
 se ma habrá subido a mí ( un bichito que apareció en el cuarto
 y los hijos ( varones ) ¿ cómo se llamaban ? - yo no conozzco a los hijos
 Cruz es hijo de Iisdro
-y los hijos ( varones ) ¿ cómo se llamaban ? - yo no conozzco a los hijos
 no tengo hijos varones , ya se murieron
 llegaré hoy por la tarde
 iré a ver hoy , a ver si está
@@ -6191,7 +6177,6 @@ saber yo no sé nada
 no , enojado no estoy
 matar , ya mate ( mi res ) ; lo que no tengo son tortillas
 tos no tengo
-pasto sí hay
 que no se quede nadie
 ¿ pero que estás haciendo ? estás perdiendo tu trabajo ; luego luego se va a trozar
 muy ptonto está acabando con las tortillas
@@ -6251,7 +6236,6 @@ es José HIlario con su chamaco
 yo ya acabé
 ¿ dónde está el hacha chica ?
 quiero el sombrero nuevo . - ¿ dónde está ?
-¿ dónde está Faustino ? - se oye que está adentro
 ¿ qué dijo Pichardo ? - ¿ dónde está él ?
 ¿ cuándo llegaste ? - hace muy poco . - vinieron los dos ? ( tú y tu mujer ) ? - sí . - ¿ dónde está ella ? - donde su papá
 por favor , enróllame el turbante
@@ -6349,7 +6333,6 @@ escupirle , escupirlo ;
 escupir
 escupirle
 escupir
-escupirle
 escupidor , que escupe
 llegaban riendo
 ne ko no me reí yo
@@ -6525,13 +6508,11 @@ hacer bola
 ( hacer en forma de ) bola
 hacer que se haga ( en forma de ) bola , hacer que se apelotone
 estar ( haberse ) hecho bola , estar ( haberse ) apelotonado
-bolas , esferas , riñones , testículos
 Cabórachi Las Bolas ( nombre de lugar )
 nativo o vecino de Kabórachi
 esféricos , boludos
 hacerse bolas , apelotonarse ( varios )
 apelotonarse , estar o quedar hecho bola
-apelotonar , hacer bolas
 apelotonar ( varias cosas ) , hacer varias ( bolas ) de una cosa
 bolas , esferas , testículos
 esféricos , boludos , bolas , esferas , tener testículos
@@ -7603,7 +7584,6 @@ Son muchos los que creen que que unas serpientes se les meten en el vientre a lo
 que pongámos en la cruz las cabezas de los corderos
 ¿ y conoces las estrellas ( la constelación ) de la Cruz ? es como una cruz chiquita
 después de hacer la cruz ( de rezar ) nos habíamos de de ir ( no antes )
-¿ y conoces las estrellas ( la constelación ) de la Cruz ? es como una cruz chiquita
 mira , padre ! ahí va una agulilla
 el capulín está muy bueno para el pecho , cociéndolo
 unos son de Rareko ( Santiago Areko ) , y uno es de
@@ -7619,7 +7599,6 @@ porque aquí hay un jefe , fíjate
 Tranquilo , ya pitaron !
 el u*mí ( variedad de caña ) , no se pita ; la faluta es de carrizo
 parecía que ya habían pitado
-el u*mí ( variedad de caña ) , no se pita ; la faluta es de carrizo
 ese ( el wasárowa ) es un palo ; es algo amargo , no mucho
 te voy a pegar con este palo
 ¿ qué árbol es aquél ? - álamo
@@ -7800,7 +7779,6 @@ no más lleguemos vamos a poner pinole a su casa
 me duele mucho , sobre todo después de comer ; sieno una presión que me sube ;
 ya se fuero a comer a sus casas ( lókapia X lókaboa )
 quiero purgarme
-abusó de ella en una borrachera
 con qué tomamos el pinole ? con verduras ?
 nos tomamoes el pinole con axucar
 dame tantita sal , para tomarla con el pinole
@@ -8423,7 +8401,6 @@ calzón , cubrepierna
 máscara , tapaboca
 Serafina es mi hija
 ¿ quién está enfermo ? . - mi hija !
-¿ cómo se llama la otra ? - la ... la hija del curandero ?
 sacudir el brazo contra el costado , haciendo sonar la axila
 dioa luz gemelos
 despaletarse
@@ -9206,7 +9183,6 @@ esque ya subieron ( construyeron ) la chimenea
 no más lo han enterrado , al regresar a casa toman humo
 cuando ha muerto alguno , entonces los mismos rarámuris toman humo haciendo una lumbrada de táscate , para que pase el olor del muerto .
 es negro el mo*ríkusi ; de cola blanca ; tiene una cabeza muy bella y canta precioso .
-¿ no sabes tú tomar humo ?
 ya va a incensarlo
 se le pegó mucho el tzne , se enhollinó mucho .
 enohillado , tiznado
@@ -9393,9 +9369,7 @@ muy cerca , muy próximos uno del otro
 casi
 cercanos , próximos
 bien cerca
-más cerca , bastante cerca , muy cerca
 bien cerquita
-aún más cerca
 cercanos , próximos
 mucho muy cerca
 acercarse
@@ -9456,7 +9430,6 @@ murió aplastado ( prensado )
 no anda ( por aquí ) ; ya se perdió
 to no oí
 ¿ qué tan bonoto es ? - no mucho , como Narárachi
-no le atina !
 levántenme ( con las manos , para alcanzar a ver bien
 por eso ( Dios ) tiene el mundo en la mano
 por poco se lleva el pie en la mano ( un danzante que alzó mucho una pierna )
@@ -9567,13 +9540,11 @@ sí , obsequiémonos nutuamente , hagámonos regalos .
 ya se oyen oelear a puñetazos por el coraje
 ya se pegaron tres
 a mí no me tocó manzana
-a mí me tocaron dos
 ¿ qué tanto en un pollo de ese tamaño ? no esbastante grande ; no nos va a tocar nada
 seis piedras , tres niños , ¿ cuánto les toca ?
 párense apretados ( muy juntos ) acá
 estaba muy tupido el pinar ; muy bello el camino y muy empinado ( LIT . había muy tupidos pinos )
 ¡ cuidado ! te embarras !
-no te embarres de lodo
 debe de haberse contagiado de alguna cosa , de alguna enfermedad , o de algo
 párense aquí muy juntos ! ( no desparramados )
 ¿ escribimos apretado ? ( no separando las leras )
@@ -9836,7 +9807,6 @@ yo te lo cambio allá adentro
 vamos cambiandonos los sombreros ( intercambiandolos )
 ¿ pues cómo acabaste con tu maíz ? - cambiándolo por frijol
 también los que viven lejos deben cooperar
-no me ayudan nada los de por aquí cerca ; así vamos a ser unos salvajes
 ; nadie me ayuda , quiero decir , de los subalternos ( el jefe principal , hablando de sus auxiliares )
 todos los deTawichi son partidarios de Patricio
 el pinole es bien sabroso revolviéndole chancaca ( piloncillo )
@@ -9886,8 +9856,6 @@ andan revueltos muchísimos perros
 andaba buscando animales , como suelen hacerlo todos los tarahumares ; es que comen animales que buscan , animales del monte
 viven ustedes como los animales , obran como venados y coyotes
 pero lueg que lo traiga , me vas a dar una cosita
-parece que Manuel coge muchas cosas
-estas cosas
 no vamos a encontrar nada
 no hagamos , pues , nada
 esos hombres ( los chamanes ) no hacen nada ( ningun daño ) ; son gente que vive en oaz
@@ -10712,7 +10680,6 @@ el menudo es como lo que es chorizo
 ¿ quién acarrea la arena ?
 ¿ por quéacarreas gallinas ? - porque voy a hacer menudo ; no comí huevos hoy
 dice que va a poner el rastrojo arriba en las lajas ; que lo va a acarrear
-es que están usando la carretilla arribita , andan acarreando lodo
 ¡ ya es medio día !
 ¡ mira ! una mariposa va volando !
 mira ! no pocas moscas !
@@ -10721,9 +10688,6 @@ está muy bueno ese cuchillo
 se te saldrá tu alma , considera
 anduviste como los perros , fíjate , los perros corren por las cañadas
 no tiene marido , no quiere casarse , tiene mucho miedo
-no tengo ni un grano de maíz
-lo cogiste tú . - no !
-y el zopilote se fue a olfatear ; anduvo olfatenado sobre el cerro , y no los encontró , ni tampoco les siguió el rastro
 no tengo ni un grano de maíz
 lo cogiste tú . - no !
 y el zopilote se fue a olfatear ; anduvo olfatenado sobre el cerro , y no los encontró , ni tampoco les siguió el rastro
@@ -10777,7 +10741,6 @@ tú eres la que me tiene mala voluntad
 ¿ muerde ? - no podría ; no tiene grandes dientes
 es una serpiente . - ¿ qué clase de serpiente ? no muerde
 la víbora de cascabel muerde ; la pulga , el piojo , la chinche , muerden , la mosca muerde también
-estará muy mordente el chile
 ¿ le ayudaste tú ? - yo no le ayudé
 lo escribí yo solo , nadie me esta ayudando
 ¿ qué dice ? - te saluda mucho ( LIT . dice que Dios te ayude )
@@ -10791,7 +10754,6 @@ yo soy negro como un carbón
 uno que sea negro estará bien
 corramos en un lugar plano ( LIT . donde esté plano )
 los dos
-los cinco
 dice que es de Rosa
 dice que las lombrices de aquí no son sabrosas
 ¿ pues qué creías que era ?
@@ -10940,7 +10902,6 @@ y Dios ¿ fue creado ? - no , él existe por sí mismo
 es de aquí
 quiero pescado de lata ( LIT . de los que son de bote )
 ¿ de dónde los trajeron ( estas cosas ) ? - son de Chihuahua
-sean bien dóciles
 sean hijos de buen padre , sean buenos cristianos
 uno me dijo que me iba a embrujar , pero no tengo miedo
 hace tiempo Andrés cortó ( hirió ) a su padre
@@ -10969,7 +10930,6 @@ mi mamá me regaló carne
 sí , ofrezcámosle comida al que vive arriba ( Dios ) , él nos dará alimento a nosotros
 ¿ es casado ya ? - ya
 tú eres casado ; si se hubiera muerto tu esposa , hubiera estado bien volver a tomar mujer ; los dos se tienen miedo
-si yo fuera casado ...
 algunos no quieren casarse
 ¿ qué tan lejanos ( en parentesco ) sí pueden casarse ?
 Jose Murillo ya se casó ? - con quién ? ( LIT . con una que se llama cómo ? )
@@ -11022,7 +10982,6 @@ por poco me caigo - ¿ es que se movió la piedra ? - no ; me resbalé
 así no se moverán
 ¡ estate quieto !
 ya se están moviendo
-por poco me caigo - ¿ es que se movió la piedra ? - no ; me resbalé
 ( siento ) como que se mueve el pino al tocarlo ( cogerlo )
 la estrella se movía , como llamando a los Magos
 mueve la pierna así
@@ -11084,7 +11043,6 @@ llegamos hasta donde andaban las nubes , y no se veía nada
 ya se va poniendo borroso , ya se va ensombreciendo , porque pasan ( andan ) las nubes
 llegará ( el papalote )
 y en la cumbre se divisa todo…todo alrededor se ve ; completamente en torno se divisa
-pónganse en rueda aquí
 serán desaparecidos los que piensan mal
 desaparecerán los que piensan mal
 el Cerro Grande es el más alto de todos ( LIT . se yergue solo muy alto ) …se divisa todo en torno
@@ -11226,7 +11184,6 @@ son anchísimas las hojas
 pero toma los consejos de ahora en adelante
 de una vez por todas pongámonos a vivir en paz
 uno muy anciano es muy sensato ( se da mucho cuenta de las cosas )
-es un poquito más viejo
 pero unos cuantos de nosostros los tarahumares ya no creemos tal como dicen los ancianos
 pero algunos viejos ( hombres ) son algo vulgares
 crean bien tal como dice este viejo ( este hombre )
@@ -11309,7 +11266,6 @@ te duele mucho la cabeza
 de todos modos voy a trabajar ; ¿ o mejor mañana ?
 ¿ o es que lo dijiste tú ?
 que so te vas mañana , o al medio día
-¿ o es que no entendiste bien ?
 ¿ o lo habré hecho sin darme cuenta ?
 ¿ o quieres recibir ahorita unos cuatro azotes ?
 la habrá cogido un muerto ( a la niña que llevaba enferma ) ; porque pasamos por Sa'abochi y hay muchos tendidos en ese lugar ; serán rarámuris ; ¿ o qué serán ?
@@ -11388,9 +11344,7 @@ doler los labios
 doler la cabeza
 doler la planta de los pies
 ¿ ese es el que cura el dolor de cabeza ?
-dolor de dientes
 dolor de cabeza
-dolor de ojos
 el okorókui es de cabeza blanca y negra con rayas blancas en el rostro y en las alas ; de cola blanca
 se va a poner bravo si le duele
 ¿ qué leña quieres ? Leña de pino , ocotosa , o pura encina blanca ?
@@ -11668,7 +11622,6 @@ voy a perder al tejo
 ¿ no hay maíz aquí ? Porque yo iba a comprar
 iba yo a labrar piedra
 se va a escapar
-piensa muchísimas cosas
 estás propasandote mucho
 estás poniéndote muy celoso . VOZ PASIVA
 en caso de que no les paguen ...
@@ -11737,7 +11690,6 @@ no sirve para nada
 ¿ para eso es ese rifle ? - para eso es
 dice que no tiene dinero
 dice que no tiene
-¿ son collares de mujer ?
 tener collar
 encollarar , poner o dar collar
 ponerse el collar
@@ -11815,7 +11767,6 @@ si me hubiera dado un puñetazo , no escribiría bien
 yo tenía muchas ganas de escribir muchas hojas
 yo pensaba que tú habías escrito aquí
 tampoco me es posible escribir
-tú eres muy bueno para escribir
 en días pasados escibí , pero no la mandé ( la carta )
 está escribiendo
 Vallejo me mandó que dibujara esta cabeza
@@ -11995,7 +11946,6 @@ dice el vidente que Dios nos va a echar un dolor de pecho ; que maten reses blan
 yo no sé . echarle la montura al caballo ; échamela tú
 le tiró al sombrero
 que nos ahuyente ( que eche de nosotros ) las enfermedades
-yo no sé . echarle la montura al caballo ; échamela tú
 rémojamelo allí
 los quelites se remojan para cocerse , remojandolos así en el agua ; ustedes no remojaron los quelites para cocerlos ; se nos estropean los dientes si no se remojan
 remójalo bien en agua caliente
@@ -12120,8 +12070,6 @@ ya desollaron la res ; deshojar , quitar las hojas de elote
 estaba tendido
 así no vas a poder levantarlo
 es que tú no sabes por qué me sentía tan feliz : es que yo soy de allí
-es que no sé decir
-no tengo rastrojo
 ¿ ya ensillaron el caballo ? - no
 todavía no , tampoco
 no me espiné nada
@@ -12162,7 +12110,6 @@ sólo en una que otra encina blanca se encuentra la yesca
 unos cuantos LIT algunos tan sólo
 no más uno
 no más cuatro
-sólo cinco
 ¿ cogiste con la mano cinco pescados ? - no más cinco , ya ves
 somos dos lavanderas para una sola cobija
 hasta allí no más
@@ -12181,7 +12128,6 @@ pichicho es el papá
 ¿ cómo se barre aquí ?
 ¿ ya barrieron adentro ? - creo que ya ; ¿ aún no acaban ?
 ocúpense en barrer
-sí es fiestero
 tengo mucho quehacer allá en mi rancho , soy fiestero
 Pilar se marcha por que quiere ( no la despacha su marido ) no permanece en su hogar
 ¿ qué les dieron a ustedes ?
@@ -12287,7 +12233,6 @@ lo hicieron por odio ( según parece )
 ¿ cuándo acabarás ? - quien sabe cuándo vaya a acabar !
 ¿ por qué no me lo dijiste ? - quién sabe por qué
 sí quería yo , sino que no me fue posible
-allí en el puerto se juntan ( los caminos )
 ¿ cómo se llama aquí ? - se llama El ( lugar del ) Roble - Encino
 ¿ tienes pereza ? - cierto que no tengo pereza
 yo sí quería , pero no me dejaron
@@ -12424,13 +12369,11 @@ sí es sabroso que le peguen a uno con ese ?
 tu caballo se puso flaco ; estaba como el Retinto ; así estaba
 arroyo abajo había muchos lirios
 mira , ese palo ; parecía ocote .
-parece zopilote
 parecía que también Arroyo tenía
 parecía que estaba allí
 parecía que andaba río abajo
 estaba tendido aquí
 ya está triste
-se estaba metiendo aquí
 esa ( olla ) es la que se estaba saliendo
 me bas a dar un dulce
 en ninguna forma iba yo a abrir
@@ -13211,7 +13154,6 @@ dicen que mañana habrá juegos en Sekoráchachi
 juguemos a esto , padre , si es que sabes
 ¿ aún no se ha jugado ? ( no se ha tenido el juego ? )
 me voy a jugar afuera
-¿ cómo se juega esto ?
 ¿ quieres irte a jugar , o prefieres quedarte ?
 juguete
 ir , andar jugando
@@ -13347,7 +13289,6 @@ ahora sí los voy a juntar ( hacer que se toquen )
 duele mucho el parche ; no se puede tocar
 ¿ bebiste tesgüino ? - no ; no he tocado el tesgüino
 ¿ tú nunca has tocado mujer ?
-no te recargues en esa pared
 ustedes tienen que hablar juntos aquí
 obramos muy mal haciendo
 como si no hubiera , pues , agua
@@ -13359,7 +13300,6 @@ ya me voy a jugar las flechas
 donde se clavó la flecha
 ¡ qué bonitas flechas tienes !
 ¿ es ese el que cura el dolor de cabeza ?
-el agua asoleada es la buena
 ¿ qué es ? - quién sabe qué será ... . no sé yo .
 es muy cansado barbechar así ... sí ( así es , tienes razón )
 sí , ustedes las mujeres , también
@@ -13534,7 +13474,6 @@ y ( la palabra ) bíchígituame ¿ qué significa ? ( en castellano )
 Antonio me hizo perder ( la apuesta ) allá en Ruséachi
 acaba de llegar Antonio . - ¿ qué Antonio ?
 en días pasados Anrés hirió ( cortó ) a su padre
-desde antier caí enfermo
 cierto que algún día vemdré
 ¿ quién toca adentro ( el violín ) : - sí está alguien allí
 sí que lo traeré , si tengo burros
@@ -13627,7 +13566,6 @@ se echó a la espalda a la mujeer , se la robó ; con ella a cuestas se fue ; ca
 bisabuela es la que parió hijos con el bisabuelo
 ya se lo comerán las auras
 el aura es blanca de alas
-Genoveva es mi tía
 le dieron a comer ( al gigante ) colorín con el cocido de carne ; lo azotaron con cobijas y le tiraron con bolas de lana hilada
 el sapo terrero cava bajo tierra y vive en tuceros
 había que montar más bien el alebrestado ( el que se encabrita )
@@ -13665,7 +13603,6 @@ así tenía que ser
 jálale un poco ; hasta allí no más
 esto es todo lo que les voy a decir , cristianos ( he dicho , he terminado mi discurso )
 me lo dio un hombre . - ¿ qué hombre ?
-¿ a quién se lo diste ? - pues a Valente , tu hijo
 me lo dio quemado
 ¡ qué importa que no me den !
 ¿ qué , no te dieron una camisa hace poquito ? - sí , me dieron , pero se me rompió pronto
@@ -13723,7 +13660,6 @@ yo me voy , o mañana , o pasado mañana
 ¿ quién va por leña ? - tú o José
 nos ha purificado totalmente , adentro , nuestra alma
 a un tucero irá a dar tu alma , cuando mueras
-pero el alma no muere
 ahora el alma no se ve ; allí se verá
 se te saldrá el alma , tenlo en cuenta
 tengamos compasión de nuestra alma ; tengamos también compasión de nuestro cuerpo ; ( es decir : cuidemos nuestra vida ; miremos por nosotros )
@@ -13783,7 +13719,6 @@ arrancaron , pues ( a correr ) ; y luego dicen que la rana saltó y se sneto en 
 ¿ y luego ? - y entonces dicen que se murió
 pero yo trabajo siempre aquí . - ¿ y ? ... ( ¿ y qué ? con ello ? ¿ qué se sigue de allí ?
 cuando yo
-cuando tú
 cuando nosotros
 cuando vosotros
 cuadno
@@ -14017,7 +13952,6 @@ nadie más que Dios nos ha dado el aliento
 ¿ quién pues , es el que te dió el alma ?
 como nos han hecho hablar ; del modo como Dios nos dio el habla
 carga
-ponérselo
 me estoy riendo de ti
 no más te estás riendo de mi
 vamos a aporcar las papas

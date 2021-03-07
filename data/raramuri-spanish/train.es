@@ -1,3 +1,8 @@
+no me puse yo ; fueron los rarámuri los que me pusieron de maestro
+esta es la hermana mayor ; la hermana menor ( de ella ) es esta
+la mayor es maría ; dolores es la hermana menor
+yo mismo , tú mismo… )
+tú mismo la tiraste
 patricio mismo mató a su propio hijo
 tú mismo sabes que yo no bebo tesgüino
 ¿ qué , sí se fue por su propia virtud
@@ -75,7 +80,6 @@ torcerse el cuello
 torcer el pescuezo ( a otro ) p ej . a una gallina .
 eslabón , para sacar chispas , para hacer fuego
 ya está , ya lo torcí
-eslabón , para sacar chispas , para hacer fuego
 mira cómo se puso la soga ! ¿ la destuerzo ?
 ¡ estate quieto ! ya me hiciste que lo torciera !
 ay ! dale vueltas y tuércemelo ¡ ay ! tuérceme ( enróllame ) el cigarro ! ( canción rarámuri )
@@ -1345,7 +1349,6 @@ la pulga corre a saltos ( como botando )
 así no salta uno ( no rebota uno )
 ¿ cuánto rebota uno galopando ? ( corriendo montado ? )
 yo la hago botar muy alto
-derivados
 amargo , amargoso
 copalquín
 hiel
@@ -1705,10 +1708,8 @@ traes muy negras por dentro las orejas
 llegamos allí cuando ya estaba oscuro
 no va a llover todavía ; lloverá más tarde , luego que haya anochecido
 cuiden bien su alma , que no se vaya a ennegrecer de nuevo
-el pitorreal canta cuando va oscureciendo
 no están sucias ( negras ) las enaguas
 ve , ya se ensució ( se puso negra , la camisa ) ; habrá que lavarla . - sí seré capaz de lavarla
-el pitorreal canta cuando va oscureciendo
 ¿ llegarás ya oscuro ? - al ir oscureciendo
 estuvo zapateando con mucha habilidad , ( bailó zapateando )
 entre los dos me dieron puñetazos en la cara
@@ -1862,7 +1863,6 @@ por qué ? - quién sabe por qué
 mira ! una aguililla que se posó en aquel picacho
 traigan acá una flecha ! yo se la clavo en el hocico
 los marranos van a escarbar con el hocico
-entre los dos me dieron puñetazos en la cara
 parece muy bravo , por la cara
 el picacho
 criar pico , hocico , los animales
@@ -1886,7 +1886,6 @@ el garambullo de vainas ; sus semillas son ovaladas y algo puntiagudas ; se hien
 la víbora de cascabel tiene colmillos filosísimos ; en los colmillos tiene veneno , como un agua amarillenta
 está uno comiendo frijoles ; entonces otro chiquillo dice ; yo también quiero sopear
 está comiendo ( a sopas )
-se me pegó la trementina
 ¿ vas a comer tónari ? - no ; lo voy a sopear
 allí en la peña está pegado un saltapared
 el galán ( un pájaro ) , tiene el pico pardo y el lomo esponjado
@@ -2247,7 +2246,6 @@ tengo mucha hambre
 está cerrado
 ¿ por qué cercaron ? no hay siembra
 ¿ dónde cogiste esos pescados ? - donde estuvimos haciendo presa
-voy a cerrar ; está muy molesto el viento - cierra
 ¡ valerio ! ¿ dejaste cerrado tú ?
 le quité cosas chiquitas a mi hermano
 me quitó el peine y salió de huída
@@ -2394,7 +2392,6 @@ si vivímos aquí antes ; pero ya nos fuimos ( lit . corrimos ) a otra parte
 ¿ por qué al padre no le gusta que los blancos vivan aquí ?
 los barranqueños tienen muy gruesa la planta del pie
 ¿ de dónde son ustedes ?
-este arco es de epéwari : un árbol un poco retorcido
 pasé la noche en el llano de este lado de carichí
 se llenará ( de viviendas ) todo el valle donde está sisoguichi ; arriba de los peñales se levantarán las cosas lindamente pintadas
 andaban ( los caballos ) arriba en la meseta
@@ -2661,7 +2658,6 @@ anda ( se la pasa ) bebiendo mucho
 anda escardando ( por este tiempo se ocupa en la escarda )
 ¿ dónde vives pues ? - vivo aquí ; por aquí por el monte me mantengo ( suelo andar )
 se llama los gavilanes , porque antes había ( allí ) muchos gavilarnes
-andan trabajando del otro lado del río
 cinobia anda con faldas plisadas ( estilo tarahumar ) ; la mamá se las hizo
 y después la mamá andaba llorando , buscando a sus hijitos
 yo soy su madre ( de ustedes )
@@ -2869,7 +2865,6 @@ no tiene tan buena cara ( es un descarado , un perverso )
 si toma el cargo el mejor de los jefes , congregará muchos tarahumares
 es buenísimo el cigarro !
 ¿ quién es mejor ?
-una noticia no tan buena
 yo busco una mujer de las mejores ; de las que no son de mal carácter
 los revolvemos con bellotas
 yo como la bellota desmenuzada
@@ -3929,7 +3924,6 @@ faltan pocos años
 esa mujer ha largado a muchos ; no son pocos los que ha largado
 ¿ qué tragedia trae la bruma ? - se muere el ganado ; ( trae ) enfermedad de los animales
 las tuzas almacenaron ( raíces de ) pasto burrero en su tucero
-toda clase de cosas ha perdido ese jugando al quince
 tú la despediste por odio
 siempre llevo los caballos a la mesa , luego de darles de comer
 ¿ a dónde se fue ? - a norogachi . - ¿ allá se fue ?
@@ -4440,7 +4434,6 @@ nos subimos a una lomita desde donde se veía todo al rededor
 se ma habrá subido a mí ( un bichito que apareció en el cuarto
 y los hijos ( varones ) ¿ cómo se llamaban ? - yo no conozzco a los hijos
 cruz es hijo de iisdro
-y los hijos ( varones ) ¿ cómo se llamaban ? - yo no conozzco a los hijos
 no tengo hijos varones , ya se murieron
 llegaré hoy por la tarde
 iré a ver hoy , a ver si está
@@ -4719,7 +4712,6 @@ saber yo no sé nada
 no , enojado no estoy
 matar , ya mate ( mi res ) ; lo que no tengo son tortillas
 tos no tengo
-pasto sí hay
 que no se quede nadie
 ¿ pero que estás haciendo ? estás perdiendo tu trabajo ; luego luego se va a trozar
 muy ptonto está acabando con las tortillas
@@ -4779,7 +4771,6 @@ es josé hilario con su chamaco
 yo ya acabé
 ¿ dónde está el hacha chica ?
 quiero el sombrero nuevo . - ¿ dónde está ?
-¿ dónde está faustino ? - se oye que está adentro
 ¿ qué dijo pichardo ? - ¿ dónde está él ?
 ¿ cuándo llegaste ? - hace muy poco . - vinieron los dos ? ( tú y tu mujer ) ? - sí . - ¿ dónde está ella ? - donde su papá
 por favor , enróllame el turbante
@@ -4877,7 +4868,6 @@ escupirle , escupirlo ;
 escupir
 escupirle
 escupir
-escupirle
 escupidor , que escupe
 llegaban riendo
 ne ko no me reí yo
@@ -5053,13 +5043,11 @@ hacer bola
 ( hacer en forma de ) bola
 hacer que se haga ( en forma de ) bola , hacer que se apelotone
 estar ( haberse ) hecho bola , estar ( haberse ) apelotonado
-bolas , esferas , riñones , testículos
 cabórachi las bolas ( nombre de lugar )
 nativo o vecino de kabórachi
 esféricos , boludos
 hacerse bolas , apelotonarse ( varios )
 apelotonarse , estar o quedar hecho bola
-apelotonar , hacer bolas
 apelotonar ( varias cosas ) , hacer varias ( bolas ) de una cosa
 bolas , esferas , testículos
 esféricos , boludos , bolas , esferas , tener testículos
@@ -6131,7 +6119,6 @@ son muchos los que creen que que unas serpientes se les meten en el vientre a lo
 que pongámos en la cruz las cabezas de los corderos
 ¿ y conoces las estrellas ( la constelación ) de la cruz ? es como una cruz chiquita
 después de hacer la cruz ( de rezar ) nos habíamos de de ir ( no antes )
-¿ y conoces las estrellas ( la constelación ) de la cruz ? es como una cruz chiquita
 mira , padre ! ahí va una agulilla
 el capulín está muy bueno para el pecho , cociéndolo
 unos son de rareko ( santiago areko ) , y uno es de
@@ -6147,7 +6134,6 @@ porque aquí hay un jefe , fíjate
 tranquilo , ya pitaron !
 el u*mí ( variedad de caña ) , no se pita ; la faluta es de carrizo
 parecía que ya habían pitado
-el u*mí ( variedad de caña ) , no se pita ; la faluta es de carrizo
 ese ( el wasárowa ) es un palo ; es algo amargo , no mucho
 te voy a pegar con este palo
 ¿ qué árbol es aquél ? - álamo
@@ -6328,7 +6314,6 @@ no más lleguemos vamos a poner pinole a su casa
 me duele mucho , sobre todo después de comer ; sieno una presión que me sube ;
 ya se fuero a comer a sus casas ( lókapia x lókaboa )
 quiero purgarme
-abusó de ella en una borrachera
 con qué tomamos el pinole ? con verduras ?
 nos tomamoes el pinole con axucar
 dame tantita sal , para tomarla con el pinole
@@ -6951,7 +6936,6 @@ calzón , cubrepierna
 máscara , tapaboca
 serafina es mi hija
 ¿ quién está enfermo ? . - mi hija !
-¿ cómo se llama la otra ? - la . . . la hija del curandero ?
 sacudir el brazo contra el costado , haciendo sonar la axila
 dioa luz gemelos
 despaletarse
@@ -7734,7 +7718,6 @@ esque ya subieron ( construyeron ) la chimenea
 no más lo han enterrado , al regresar a casa toman humo
 cuando ha muerto alguno , entonces los mismos rarámuris toman humo haciendo una lumbrada de táscate , para que pase el olor del muerto .
 es negro el mo*ríkusi ; de cola blanca ; tiene una cabeza muy bella y canta precioso .
-¿ no sabes tú tomar humo ?
 ya va a incensarlo
 se le pegó mucho el tzne , se enhollinó mucho .
 enohillado , tiznado
@@ -7921,9 +7904,7 @@ muy cerca , muy próximos uno del otro
 casi
 cercanos , próximos
 bien cerca
-más cerca , bastante cerca , muy cerca
 bien cerquita
-aún más cerca
 cercanos , próximos
 mucho muy cerca
 acercarse
@@ -7984,7 +7965,6 @@ murió aplastado ( prensado )
 no anda ( por aquí ) ; ya se perdió
 to no oí
 ¿ qué tan bonoto es ? - no mucho , como narárachi
-no le atina !
 levántenme ( con las manos , para alcanzar a ver bien
 por eso ( dios ) tiene el mundo en la mano
 por poco se lleva el pie en la mano ( un danzante que alzó mucho una pierna )
@@ -8095,13 +8075,11 @@ sí , obsequiémonos nutuamente , hagámonos regalos .
 ya se oyen oelear a puñetazos por el coraje
 ya se pegaron tres
 a mí no me tocó manzana
-a mí me tocaron dos
 ¿ qué tanto en un pollo de ese tamaño ? no esbastante grande ; no nos va a tocar nada
 seis piedras , tres niños , ¿ cuánto les toca ?
 párense apretados ( muy juntos ) acá
 estaba muy tupido el pinar ; muy bello el camino y muy empinado ( lit . había muy tupidos pinos )
 ¡ cuidado ! te embarras !
-no te embarres de lodo
 debe de haberse contagiado de alguna cosa , de alguna enfermedad , o de algo
 párense aquí muy juntos ! ( no desparramados )
 ¿ escribimos apretado ? ( no separando las leras )
@@ -8364,7 +8342,6 @@ yo te lo cambio allá adentro
 vamos cambiandonos los sombreros ( intercambiandolos )
 ¿ pues cómo acabaste con tu maíz ? - cambiándolo por frijol
 también los que viven lejos deben cooperar
-no me ayudan nada los de por aquí cerca ; así vamos a ser unos salvajes
 ; nadie me ayuda , quiero decir , de los subalternos ( el jefe principal , hablando de sus auxiliares )
 todos los detawichi son partidarios de patricio
 el pinole es bien sabroso revolviéndole chancaca ( piloncillo )
@@ -8414,8 +8391,6 @@ andan revueltos muchísimos perros
 andaba buscando animales , como suelen hacerlo todos los tarahumares ; es que comen animales que buscan , animales del monte
 viven ustedes como los animales , obran como venados y coyotes
 pero lueg que lo traiga , me vas a dar una cosita
-parece que manuel coge muchas cosas
-estas cosas
 no vamos a encontrar nada
 no hagamos , pues , nada
 esos hombres ( los chamanes ) no hacen nada ( ningun daño ) ; son gente que vive en oaz
@@ -9240,7 +9215,6 @@ el menudo es como lo que es chorizo
 ¿ quién acarrea la arena ?
 ¿ por quéacarreas gallinas ? - porque voy a hacer menudo ; no comí huevos hoy
 dice que va a poner el rastrojo arriba en las lajas ; que lo va a acarrear
-es que están usando la carretilla arribita , andan acarreando lodo
 ¡ ya es medio día !
 ¡ mira ! una mariposa va volando !
 mira ! no pocas moscas !
@@ -9249,9 +9223,6 @@ está muy bueno ese cuchillo
 se te saldrá tu alma , considera
 anduviste como los perros , fíjate , los perros corren por las cañadas
 no tiene marido , no quiere casarse , tiene mucho miedo
-no tengo ni un grano de maíz
-lo cogiste tú . - no !
-y el zopilote se fue a olfatear ; anduvo olfatenado sobre el cerro , y no los encontró , ni tampoco les siguió el rastro
 no tengo ni un grano de maíz
 lo cogiste tú . - no !
 y el zopilote se fue a olfatear ; anduvo olfatenado sobre el cerro , y no los encontró , ni tampoco les siguió el rastro
@@ -9305,7 +9276,6 @@ tú eres la que me tiene mala voluntad
 ¿ muerde ? - no podría ; no tiene grandes dientes
 es una serpiente . - ¿ qué clase de serpiente ? no muerde
 la víbora de cascabel muerde ; la pulga , el piojo , la chinche , muerden , la mosca muerde también
-estará muy mordente el chile
 ¿ le ayudaste tú ? - yo no le ayudé
 lo escribí yo solo , nadie me esta ayudando
 ¿ qué dice ? - te saluda mucho ( lit . dice que dios te ayude )
@@ -9319,7 +9289,6 @@ yo soy negro como un carbón
 uno que sea negro estará bien
 corramos en un lugar plano ( lit . donde esté plano )
 los dos
-los cinco
 dice que es de rosa
 dice que las lombrices de aquí no son sabrosas
 ¿ pues qué creías que era ?
@@ -9468,7 +9437,6 @@ y dios ¿ fue creado ? - no , él existe por sí mismo
 es de aquí
 quiero pescado de lata ( lit . de los que son de bote )
 ¿ de dónde los trajeron ( estas cosas ) ? - son de chihuahua
-sean bien dóciles
 sean hijos de buen padre , sean buenos cristianos
 uno me dijo que me iba a embrujar , pero no tengo miedo
 hace tiempo andrés cortó ( hirió ) a su padre
@@ -9497,7 +9465,6 @@ mi mamá me regaló carne
 sí , ofrezcámosle comida al que vive arriba ( dios ) , él nos dará alimento a nosotros
 ¿ es casado ya ? - ya
 tú eres casado ; si se hubiera muerto tu esposa , hubiera estado bien volver a tomar mujer ; los dos se tienen miedo
-si yo fuera casado . . .
 algunos no quieren casarse
 ¿ qué tan lejanos ( en parentesco ) sí pueden casarse ?
 jose murillo ya se casó ? - con quién ? ( lit . con una que se llama cómo ? )
@@ -9550,7 +9517,6 @@ por poco me caigo - ¿ es que se movió la piedra ? - no ; me resbalé
 así no se moverán
 ¡ estate quieto !
 ya se están moviendo
-por poco me caigo - ¿ es que se movió la piedra ? - no ; me resbalé
 ( siento ) como que se mueve el pino al tocarlo ( cogerlo )
 la estrella se movía , como llamando a los magos
 mueve la pierna así
@@ -9612,7 +9578,6 @@ llegamos hasta donde andaban las nubes , y no se veía nada
 ya se va poniendo borroso , ya se va ensombreciendo , porque pasan ( andan ) las nubes
 llegará ( el papalote )
 y en la cumbre se divisa todo…todo alrededor se ve ; completamente en torno se divisa
-pónganse en rueda aquí
 serán desaparecidos los que piensan mal
 desaparecerán los que piensan mal
 el cerro grande es el más alto de todos ( lit . se yergue solo muy alto ) …se divisa todo en torno
@@ -9754,7 +9719,6 @@ son anchísimas las hojas
 pero toma los consejos de ahora en adelante
 de una vez por todas pongámonos a vivir en paz
 uno muy anciano es muy sensato ( se da mucho cuenta de las cosas )
-es un poquito más viejo
 pero unos cuantos de nosostros los tarahumares ya no creemos tal como dicen los ancianos
 pero algunos viejos ( hombres ) son algo vulgares
 crean bien tal como dice este viejo ( este hombre )
@@ -9837,7 +9801,6 @@ te duele mucho la cabeza
 de todos modos voy a trabajar ; ¿ o mejor mañana ?
 ¿ o es que lo dijiste tú ?
 que so te vas mañana , o al medio día
-¿ o es que no entendiste bien ?
 ¿ o lo habré hecho sin darme cuenta ?
 ¿ o quieres recibir ahorita unos cuatro azotes ?
 la habrá cogido un muerto ( a la niña que llevaba enferma ) ; porque pasamos por sa'abochi y hay muchos tendidos en ese lugar ; serán rarámuris ; ¿ o qué serán ?
@@ -9916,9 +9879,7 @@ doler los labios
 doler la cabeza
 doler la planta de los pies
 ¿ ese es el que cura el dolor de cabeza ?
-dolor de dientes
 dolor de cabeza
-dolor de ojos
 el okorókui es de cabeza blanca y negra con rayas blancas en el rostro y en las alas ; de cola blanca
 se va a poner bravo si le duele
 ¿ qué leña quieres ? leña de pino , ocotosa , o pura encina blanca ?
@@ -10196,7 +10157,6 @@ voy a perder al tejo
 ¿ no hay maíz aquí ? porque yo iba a comprar
 iba yo a labrar piedra
 se va a escapar
-piensa muchísimas cosas
 estás propasandote mucho
 estás poniéndote muy celoso . voz pasiva
 en caso de que no les paguen . . .
@@ -10265,7 +10225,6 @@ no sirve para nada
 ¿ para eso es ese rifle ? - para eso es
 dice que no tiene dinero
 dice que no tiene
-¿ son collares de mujer ?
 tener collar
 encollarar , poner o dar collar
 ponerse el collar
@@ -10343,7 +10302,6 @@ si me hubiera dado un puñetazo , no escribiría bien
 yo tenía muchas ganas de escribir muchas hojas
 yo pensaba que tú habías escrito aquí
 tampoco me es posible escribir
-tú eres muy bueno para escribir
 en días pasados escibí , pero no la mandé ( la carta )
 está escribiendo
 vallejo me mandó que dibujara esta cabeza
@@ -10523,7 +10481,6 @@ dice el vidente que dios nos va a echar un dolor de pecho ; que maten reses blan
 yo no sé . echarle la montura al caballo ; échamela tú
 le tiró al sombrero
 que nos ahuyente ( que eche de nosotros ) las enfermedades
-yo no sé . echarle la montura al caballo ; échamela tú
 rémojamelo allí
 los quelites se remojan para cocerse , remojandolos así en el agua ; ustedes no remojaron los quelites para cocerlos ; se nos estropean los dientes si no se remojan
 remójalo bien en agua caliente
@@ -10648,8 +10605,6 @@ ya desollaron la res ; deshojar , quitar las hojas de elote
 estaba tendido
 así no vas a poder levantarlo
 es que tú no sabes por qué me sentía tan feliz : es que yo soy de allí
-es que no sé decir
-no tengo rastrojo
 ¿ ya ensillaron el caballo ? - no
 todavía no , tampoco
 no me espiné nada
@@ -10690,7 +10645,6 @@ sólo en una que otra encina blanca se encuentra la yesca
 unos cuantos lit algunos tan sólo
 no más uno
 no más cuatro
-sólo cinco
 ¿ cogiste con la mano cinco pescados ? - no más cinco , ya ves
 somos dos lavanderas para una sola cobija
 hasta allí no más
@@ -10709,7 +10663,6 @@ pichicho es el papá
 ¿ cómo se barre aquí ?
 ¿ ya barrieron adentro ? - creo que ya ; ¿ aún no acaban ?
 ocúpense en barrer
-sí es fiestero
 tengo mucho quehacer allá en mi rancho , soy fiestero
 pilar se marcha por que quiere ( no la despacha su marido ) no permanece en su hogar
 ¿ qué les dieron a ustedes ?
@@ -10815,7 +10768,6 @@ lo hicieron por odio ( según parece )
 ¿ cuándo acabarás ? - quien sabe cuándo vaya a acabar !
 ¿ por qué no me lo dijiste ? - quién sabe por qué
 sí quería yo , sino que no me fue posible
-allí en el puerto se juntan ( los caminos )
 ¿ cómo se llama aquí ? - se llama el ( lugar del ) roble - encino
 ¿ tienes pereza ? - cierto que no tengo pereza
 yo sí quería , pero no me dejaron
@@ -10952,13 +10904,11 @@ sí es sabroso que le peguen a uno con ese ?
 tu caballo se puso flaco ; estaba como el retinto ; así estaba
 arroyo abajo había muchos lirios
 mira , ese palo ; parecía ocote .
-parece zopilote
 parecía que también arroyo tenía
 parecía que estaba allí
 parecía que andaba río abajo
 estaba tendido aquí
 ya está triste
-se estaba metiendo aquí
 esa ( olla ) es la que se estaba saliendo
 me bas a dar un dulce
 en ninguna forma iba yo a abrir
@@ -11739,7 +11689,6 @@ dicen que mañana habrá juegos en sekoráchachi
 juguemos a esto , padre , si es que sabes
 ¿ aún no se ha jugado ? ( no se ha tenido el juego ? )
 me voy a jugar afuera
-¿ cómo se juega esto ?
 ¿ quieres irte a jugar , o prefieres quedarte ?
 juguete
 ir , andar jugando
@@ -11875,7 +11824,6 @@ ahora sí los voy a juntar ( hacer que se toquen )
 duele mucho el parche ; no se puede tocar
 ¿ bebiste tesgüino ? - no ; no he tocado el tesgüino
 ¿ tú nunca has tocado mujer ?
-no te recargues en esa pared
 ustedes tienen que hablar juntos aquí
 obramos muy mal haciendo
 como si no hubiera , pues , agua
@@ -11887,7 +11835,6 @@ ya me voy a jugar las flechas
 donde se clavó la flecha
 ¡ qué bonitas flechas tienes !
 ¿ es ese el que cura el dolor de cabeza ?
-el agua asoleada es la buena
 ¿ qué es ? - quién sabe qué será . . . . no sé yo .
 es muy cansado barbechar así . . . sí ( así es , tienes razón )
 sí , ustedes las mujeres , también
@@ -12062,7 +12009,6 @@ y ( la palabra ) bíchígituame ¿ qué significa ? ( en castellano )
 antonio me hizo perder ( la apuesta ) allá en ruséachi
 acaba de llegar antonio . - ¿ qué antonio ?
 en días pasados anrés hirió ( cortó ) a su padre
-desde antier caí enfermo
 cierto que algún día vemdré
 ¿ quién toca adentro ( el violín ) : - sí está alguien allí
 sí que lo traeré , si tengo burros
@@ -12155,7 +12101,6 @@ se echó a la espalda a la mujeer , se la robó ; con ella a cuestas se fue ; ca
 bisabuela es la que parió hijos con el bisabuelo
 ya se lo comerán las auras
 el aura es blanca de alas
-genoveva es mi tía
 le dieron a comer ( al gigante ) colorín con el cocido de carne ; lo azotaron con cobijas y le tiraron con bolas de lana hilada
 el sapo terrero cava bajo tierra y vive en tuceros
 había que montar más bien el alebrestado ( el que se encabrita )
@@ -12193,7 +12138,6 @@ así tenía que ser
 jálale un poco ; hasta allí no más
 esto es todo lo que les voy a decir , cristianos ( he dicho , he terminado mi discurso )
 me lo dio un hombre . - ¿ qué hombre ?
-¿ a quién se lo diste ? - pues a valente , tu hijo
 me lo dio quemado
 ¡ qué importa que no me den !
 ¿ qué , no te dieron una camisa hace poquito ? - sí , me dieron , pero se me rompió pronto
@@ -12251,7 +12195,6 @@ yo me voy , o mañana , o pasado mañana
 ¿ quién va por leña ? - tú o josé
 nos ha purificado totalmente , adentro , nuestra alma
 a un tucero irá a dar tu alma , cuando mueras
-pero el alma no muere
 ahora el alma no se ve ; allí se verá
 se te saldrá el alma , tenlo en cuenta
 tengamos compasión de nuestra alma ; tengamos también compasión de nuestro cuerpo ; ( es decir : cuidemos nuestra vida ; miremos por nosotros )
@@ -12311,7 +12254,6 @@ arrancaron , pues ( a correr ) ; y luego dicen que la rana saltó y se sneto en 
 ¿ y luego ? - y entonces dicen que se murió
 pero yo trabajo siempre aquí . - ¿ y ? . . . ( ¿ y qué ? con ello ? ¿ qué se sigue de allí ?
 cuando yo
-cuando tú
 cuando nosotros
 cuando vosotros
 cuadno
@@ -12545,7 +12487,6 @@ nadie más que dios nos ha dado el aliento
 ¿ quién pues , es el que te dió el alma ?
 como nos han hecho hablar ; del modo como dios nos dio el habla
 carga
-ponérselo
 me estoy riendo de ti
 no más te estás riendo de mi
 vamos a aporcar las papas
@@ -13246,6 +13187,7 @@ sí habla bien , eh ?
 ahora ya habló bien , se explicó bien
 no puede hablar , habla en secreto ( está afónico )
 ¿ por dónde va ? - ¡ por aquí se oye ! ¡ por aquí se oye ! ( suena )
+y luego ya van a tomar el tesgüino
 diciendo que para mandarlo para la iglesia
 "ya lo mandé" asi le va a decir
 sí , ya lo mandé
@@ -13318,7 +13260,6 @@ no aguantó
 manejar troca yo creo
 "me gustaría manejar troca a mi" asi se dice
 si no puedo manejar troka
-dándole
 dándole
 "le voy a dar a ella" diciendo
 "ya le di" , asi se dice
@@ -13434,7 +13375,6 @@ con la comida esvan con la comida y lo levantan
 entonces era que llovía rápido
 y por eso llovía , pronto llovía
 si es cierto que cuando baila uno pronto llueve'uhummm'
-sí
 así llamaban la lluvia antesnomás así era , así la llamábamos ,
 antes amanecíamos bailando y sin tomar
 'they would drink the next day in the morning'
@@ -13748,7 +13688,6 @@ y cómo le hacían para llamar . . . y cuando no llueve . . .
 cómo le hablaban antes a la lluvia ?
 entonces se tira para arriba
 haciendo wirónuwa ?
-si
 y entonces si empezaba a llover luego ?
 a veces al tercer día ?
 también los pescados
@@ -13802,7 +13741,6 @@ así era , así era antes
 y del maíz ? en qué guardaban antes ?
 como sea , agujerados antes , porque los de antes no tenpian hachas muy filosas
 unos ponían lodo con piedra ( enjarrar ) para comer
-sí
 nosotros poníamos en enjarrado para comer allá abajo . . . allá en anáuchi hay muchos relices , allá crecí yo
 allá desperté ( empecé a acordarme )
 sí , así nomás
@@ -13876,11 +13814,9 @@ entonces
 y entonces el muchacho atruro
 y "soróchi" ( tía ) , mis hijos , mi hermano mayor . . .
 también "sorochi" ?
-sí
 dicen "rihchí"
 así como los hijos de mi hermano mayor , yo soy su "rihchí" ?
 también tus hijos también le dicen igual , también te van a decir "rihchí"
-sí
 y el "kuríchi" ?
 del kuríchi
 del "kuríchi" ?
@@ -14556,7 +14492,6 @@ por eso dicen que tiene mucho dinero el mestizo
 y entonces dicen que el tarahumar es muy pobre , por eso no tenemos dinero nosotros
 por eso le dicen con mucho dinero al mestizo
 porque se lo tomó muy a gusto el moco
-gracias
 gracias
 de todo lo que me acuerdo cuando estaba chiquita
 levantaba mucho antes cosas para comer cuando sembraban los de antes
@@ -15436,7 +15371,6 @@ y se emborrachan mucho tomando
 si esta bueno el tesgüino si esta bien cosido
 nos emborachamos mucho
 el tesguino , ya deste tanto te voy a decir
-gracias
 esto voy a contar de un tecolote
 y antes dicen que cumplían muchos años todos los que vivían por aquí
 y ese hombre decían que no se moría
@@ -15477,7 +15411,6 @@ y ya al ratito ya de desmayó esa muchacha , esa señora
 ya también se oyó que se fue el tecolote
 entonces de ahí ya supe como creer yo muchas cosas
 ya sabíamos ya al otro día se oía que se morían los que vivían en otra parte
-gracias
 los niños los mandan asi
 unos los mandan a cuidar las chivas y otros ayudan a barbechar
 andan al año andan barbechando otra vez
@@ -15549,7 +15482,6 @@ en todas partes dicen que era así , nomás allí era el pueblo mas grande , asi
 este ejido ya nos apartaron
 midieron , por eso todos viven aparte por aquí en los pueblos
 así es por allí , así les voy a decir a toda la gente
-gracias
 allá donde vivía antes
 allá vivíamos por arriba de una cueva
 y un día estábamos chiquitas nosotras
@@ -15802,6 +15734,119 @@ yo así pienso , o a lo mejor ya no quiere correr el corredor o la corredora
 a lo mejor se están haciendo muy chabochis
 también vas a correr
 o a amparo
+acostarse caerse al suelo
+echarse
+derribarse
+estar esperando
+adentro estaban sentados , esperando
+tambalearse
+cobrar quitar algo multar
+me cobró diez pesos
+agacharse
+inclinarse
+ladear agachar inclinar
+tener poseer
+yo tengo sóla una vaca .
+mi vaca
+mis vacas
+hacer camino
+poco más allá van a hacer un camino grande
+amarrar
+vamos a amarrar manojos de rastrojo
+va a amarrar
+manojo
+yunta
+llevar preso
+que llevar preso
+burro
+estar el camino
+¿ dónde está el camino ?
+¿ donde está el camino hacia samachique ?
+acaba de estar el camino
+si le amarran
+si le amarran
+hace mucho había un camino allí
+despertarse
+muy temprano desperté
+mañana temprano te voy a despertar .
+acaba de despertarse
+va a despertarse
+tener ojos
+ojo
+ciego
+despertar
+hundirse
+nadar debajo del agua
+salir
+acaba de salir
+enfermar
+llevar
+se fue llevando un cuchillo .
+traer
+llegó trayendo un palo .
+salir
+hacer sombra
+tú estás muy enfermo ; te voy a hacer sombra .
+sombra
+ser
+yo era un poco chico
+ya que sea viejo , morirá .
+en otra ocasión tal vez
+siendo chico
+estar bajo a la sombra
+voy a estar allí , a la sombra
+enrollar
+¡ enrolla el papel !
+un rollo largo una pieza entera de manta
+rodarse
+rodar , envolver
+enrollar en una bola
+ya enrollé el mecate
+pantorrilla
+mi pantorrilla
+músculo
+en la pantorilla
+ser esféricos
+uno ser esféricos
+esféricos
+tecolote blanco búho chico
+¿ cuándo ?
+¿ cuándo viniste ?
+¿ cuándo ?
+cadera
+escupir
+el tambor se secó ; sería bueno escupirlo .
+vamos a escupir
+le escupe
+reírse
+cadera
+me duele mucho una cadera
+mi cadera
+en mi cadera
+arrugarse
+hace tiempo compré este sombrero ; ya se arrugó completamente .
+arrugarse
+arrugar
+arrugar
+que arrugar
+poner huevos
+ahora no hay huevos ; las gallinas no ponen .
+va a poner huevos
+huevos de gallina
+caballo
+herradura
+dueño del caballo
+el hocico del caballo
+la cola del caballo
+yegua
+vientre del caballo
+tener liendres
+tiene muchas liendres en la cabeza
+va a tener liendres
+menospreciar despreciar
+ese hombre no me ama ; solamente me desprecia
+monte terreno tierra campo mundo
+¿ no tienes tierra donde puedas sembrar ?
 tierra de cultivo
 herencia de terrenos
 tener tierra
@@ -15903,7 +15948,6 @@ completamente
 de todas clases
 tengo de todas clases
 mejorar
-sombra
 debajo del manzano hay sombra
 parecerse
 va a parecerse a los mestizos
@@ -16329,7 +16373,6 @@ enfermarse
 se enfermará más ; le saldrán más granos .
 sus granos
 granujoso lleno de llagas
-tener granos o llagas
 sonar mal
 resonar
 tocar a la puerta
@@ -16561,7 +16604,6 @@ hacer negro
 sucio , obscuro
 a obscuras en la obscuridad
 hocico
-el hocico del caballo
 el pico del pájaro
 máscara
 moverse el hocico
@@ -16887,7 +16929,6 @@ esa niña es mi hermana menor
 mi hermana menor
 sanguijuela
 muy mucho
-muchísimo
 las viejas
 uno las viejas
 otate aguijada
@@ -16955,7 +16996,6 @@ manzanilla
 piojoso
 cuero piel
 piojo
-cuero de vaca
 liendres
 suelo
 vino a pie
@@ -17053,7 +17093,6 @@ extenso
 estaba lloviendo por mucho tiempo .
 alargar
 muy extenso
-estar parado
 ¿ dónde está parada la escoba ?
 va a estar parado
 parado nacido
@@ -17104,7 +17143,6 @@ donde sale un chorro
 ordeñar
 hacer estiércol
 va a ordeñar
-estiércol de chiva
 tener diarrea
 fertilizar la tierra con estiércol
 fertilizar la tierra con estiércol
@@ -17120,7 +17158,6 @@ cada uno unos a otros
 cada uno escogió una cosa .
 uno por otro
 chile
-chile piquín
 bueyes
 uno bueyes
 hacer aire soplar el viento
@@ -17301,7 +17338,6 @@ pararse
 ¡ estén quietos !
 uno algunos unos
 este esta esto
-le dice esto
 dice esto
 aquí
 aquí estoy a gusto
@@ -17722,7 +17758,6 @@ hay humo hacer humo
 va a hay humo hacer humo
 hacer humo
 moros
-incienso
 desmenuzar
 desmenuzado así
 poner almohada
@@ -17784,7 +17819,6 @@ añadido
 tú usted
 ¿ y tú ?
 tú
-tú mismo
 su
 de usted
 sus
@@ -17944,7 +17978,6 @@ entre cuatro
 cuarto , cuarta
 cuarenta
 aquí
-aquí
 lumbre
 en la lumbre
 estar luchando
@@ -17976,7 +18009,6 @@ ese pino ya está seco ; lo tumbaremos .
 va a tumbar
 cosa animal
 hay muchas cosas
-cosas de todas clases
 cosas notables
 sonar mucho
 tapar
@@ -18218,7 +18250,6 @@ mío
 tuyo
 de él
 del perro
-hacerse
 el mango de hacha se hace del fresno
 estar haciéndose rico
 ese hombre está haciéndose muy rico , porque su ganado está aumentando mucho
@@ -18240,7 +18271,6 @@ dios da el día bueno
 ¿ quién se lo entregó ?
 ese hombre lo entregó
 yo
-yo mismo
 mi mía mío
 hacer caso
 ese hombre no me hizo caso
@@ -18319,7 +18349,6 @@ mi hijo
 confiar
 admirar
 yo admiro las flores
-admirándolo
 moverse
 va a moverse
 moverse
@@ -19179,7 +19208,6 @@ allí cuesta abajo
 hacer cimiento para una casa
 suelo
 ahondar
-debajo
 echar a cuestas
 abajo más abajo
 por abajo
@@ -19259,7 +19287,6 @@ obscurecerse
 rata montés
 lagartija negra
 pez pescado
-aletas de pez
 escama de pez
 entretejer hacer mecates
 tipo de quelite
@@ -19587,7 +19614,6 @@ iba
 caminar
 varios caminar
 va a caminar
-caminar
 querían irse
 pasar
 iba pasando .
@@ -19663,7 +19689,6 @@ gobernador de ellos
 tipo de hongo venenoso
 arrugarse
 arrugado aflojado
-frente arrugada
 cazar pescar
 fuimos a cazar venados
 cazador
@@ -19810,7 +19835,6 @@ mazorca
 mazorca
 ombligo
 mi ombligo
-en el ombligo
 pájaro carpintero
 aflojarse
 rebajar la cuenta
@@ -19854,7 +19878,6 @@ calentar
 lugar estrecho
 zapeta taparrabo
 tabla
-más chiquito
 menor
 hacer menor
 hacer más chico
@@ -19867,7 +19890,6 @@ me vio
 nosotros
 nuestro
 mudo
-pedir
 le pide
 fiar
 prestar
@@ -19891,8 +19913,6 @@ semilla de trigo
 apuesta
 no
 no hay . no está
-no
-no sirve
 no vale mucho
 falta
 por el arroyo abajito
@@ -19978,9 +19998,7 @@ gallina pollo
 pluma de gallina
 blanquillo
 cresta del gallo
-gallina
 hueso de gallina
-gallo
 molleja de pollo
 blancos
 uno blancos
@@ -20097,7 +20115,6 @@ escribe con la mano izquierda
 dar convidar
 dar convidar
 dándole
-de repente
 vendrá de repente
 inmediatamente pronto
 quitar
@@ -20162,92 +20179,58 @@ llevar a otro al caer
 esa piedra que rodó se llevó otra piedra grande también
 a pesar de
 abajo
-abajo
-de abajo
 lo de abajo
 más abajo
-por abajo
 por el arroyo abajo
-por el lado de abajo
-por el río abajo
-abandonar
-abanicar
-abanico
-abanico
-abeja
 abejorro
 abertura
-abertura
 abierto
-estar abierto
 abofetear
-abollarse
 abono
-aborrecer
-abotonar
-abrir
 absorber
 abuela
 abuela
 abuelo
 abuelo
 acá
-más acá en tiempo
 para acá
 por acá
 acabar
 acabará
-habrán acabado
-acallar
 acarrear
 acarrear
 acaso
 acaso
 aceptar
 acercar
-aclarar
 aconsejar
 dar consejo
 acontecer
-después de lo acontecido
-raramente acontecerá
 acordarse
 acordarse
-ponerse de acuerdo
 acornear
 acostarse
 estar acostado
-se acostarán
 ponlo acostado
 acostumbrar
 acusar
 le acusará
-cuando lo acusan
 adelantar
 adelante
 más adelante
 por adelante
 va adelante
-adentro
 por adentro
-puesto adentro
 adiós
 admirar
-admirándolo
 adónde
 adormecer
-adornar
 afilar
 afinar
 afirmar
 aflojado
-aflojar
 afuera
-los echa afuera
-por afuera
 agachar
-agarrar
-agarrar
 agarrar
 agarrado
 lo quería agarrar
@@ -20255,106 +20238,65 @@ agarrotar
 agotar
 agotar
 agradar
-agradecer
-agrandar
 agrio
 está agrio
-agua
-hay agua
 tira agua
-toma agua
 aguaje
-aguantar
 aguantar
 agudo
 aguijada
-águila
 aguililla
-aguja
 agujerear
 agujero
 tiene agujero
 agusanarse
-agusanarse
 ahí
-ahogar
-estar ahogándose
-ahondar
-ahora
-desde ahora
 ahorcar
 ahumar
 hace aire
 persona ajena
-ala
-alas de pájaro
-alabar
 alabeado
-alacrán
-alamillo
-alargar
 alcanzar
 no le alcanza
 alegrar
 está alegre
-alejar
-aleta
-aletas de pez
 aletear
 algo
 por algo
-alguien
 algunos
 alimento
 alisar
 lo está alisando
 aliviar
 aliviado del pie
-alma
-almas de los antepasados
 almohada
-poner almohada
-almud
-alrededor
 ir alrededor
 alto
 muy alto
 estar muy alto
 alumbrar
-alzado
 alzar
 allá
 allá
 más allá
-para allá
-poco más allá
 por allá
 allí
 allí
 amable
 amamantar
-amanecer
 al amanecer
-amansar
 amar
-amado
-amargo
 amargo
 amargo
 amargo
 amarillo
 amarrado
-amarrado
 amarrar
 amarrar
 amarrar
 amarrar
 amarrar
 amarrar
-si le amarran
-amasar
-ambos
-amigo
 mis amigos
 amo
 amontonar
@@ -20372,35 +20314,22 @@ andar
 andar
 andar
 andar
-andar
-andar
 angosto
 muy angosto
-que tiene ángulo
 siente angustia
 anhelar
 animal
 animar
 ánimo
-anoche
 anochecer
 ante
-anteanoche
 anteayer , antier
-de antemano
 antepasado
 antepasado
-almas de los antepasados
-anterior
-antes
 antes
 antes de
-de antes
 mucho antes
 de antigüedad
-anzuelo
-añadido
-año
 año antepasado
 año pasado
 apenas tiene un año
@@ -20411,67 +20340,42 @@ apagar
 aparece delante de
 apartar
 apartado
-el que los aparta
-aparte
 aparte
 apedrear
-apedreado
 le ponen apellido
-apenas tiene un año
-apenas salió
 apersogar
 apestar
-que tiene apetito
 aplanar
-aplastado
 aplastar
 lo aplastó
 se aplastó
-aplaudir
 apoyar
 aprender
 aprenderá
-que puede aprender
-apresurar
 apretar
 aprisa
 anda aprisa
-apuesta
 apuntar
 apunta bien jugando cuatro
 apúntalo
-apuñalar
 apurar
 apurar
-que se apura mucho
 aquél , aquélla
 aquel , aquella
 aquí
-desde aquí
 por aquí
-arado
-araña
 araña
 arar
 arar
-arco
-arco
 arco
 tiene arco
 arder
-está ardiendo
-ardiente
 ardilla
 ardilla
 ardilla
 ardilla
-arena
-arenal
-arenoso
-arete
 tiene arete
 arma
-aro
 arrancar
 arráncalos
 arrastrar
@@ -20479,32 +20383,21 @@ arrear
 arrebatar
 arreglar
 arreglado
-arrepentirse
-arriba
 arriba
 arriba
 muy arriba
 arriba por el arroyo
 para arriba
-para arriba
-para arriba
 por arriba
 por allí más arriba en la falda
 arrimar
 arrodillar
-arrojar
-arroyo
-arroyo
-arriba por el arroyo
 arribita por el arroyo
 donde el arroyo ha hecho un hueco en la laja
 hacer como arroyo
 hay arroyo
-para arriba en el arroyo
 arrugado
-frente arrugada
 arrugar
-asado
 asar
 da asco
 asentar
@@ -20512,37 +20405,25 @@ asesino
 asesinar
 así
 así
-así es
-así
 asolear
-astilla
 astillar
 asustar
 atajar
-atajar
-dar ataques epilépticos
 atardecer
-atascadero
 atascar
 atiesar
 atizar
 atizar
 atole
 hace atole
-atónito
 atorar
-atormentar
 atrancar
 atrás
 atrás
-atrás
 hacía atrás
-por atrás
 atrasar
 atravesar
-atravesar
 aullar
-aumentar
 aún
 autoridad
 es autoridad
@@ -20552,85 +20433,50 @@ avanzar
 avergonzar
 avisar
 avisado
-avisándole
 fue avisado
 avispa
 ay
-ayer
-ayudante
 ayudar
-azadón
 azotar
-azotado
-querían azotarle
 azul
 es azul
-azulejo
-azuzar
 babear
-bailar
-baile indígena
 bajar
 bajo
 banca
-poner banca
 banda
 a la otra banda
-a la otra banda
-banquillo
-bañar
 está barato
 barba
-barbacoa
 barbechar
-barranca
-en la barranca
-barrer
 barro
-barroso
 estar barroso
 basquear
-bastante
 bastón
 anda con bastón
 usa bastón
 basura
-en la basura
 batir
 batir
-bautizar
 el que bautiza
 bazo
-enfermo del bazo
 beber
 hacerle beber
 bello
-bellota
 besar
-bestia ajena
-bien
 muy bien
 no lo hace bien
 nota bien
 bigote
-bilis
 bisabuelo
 bisnieto
 blanco
 medio blanco
-blando
 blanquear
-blanquillo
-boca
-boca abajo
-boca arriba
-en la boca
-bola
 hacer bola
 se hace una bola
 bolita
 bolsa
-bolsita de gusanos del madroño
 bonito
 está bonito
 lo hace bonito
@@ -20646,27 +20492,21 @@ borrego
 borreguito
 bostezar
 botella
-bracear
-bramar
 bramar
 brasa
 se hacen brasas
 bravo
 está bravo
-brazo
 tiene brazo
-brillante
 brillar
 brillar
 brincar
 hace bromas con las cuñadas
 brotar
 brotar
-brotar
 brujo
 buche
 en el buche
-bueno
 bueno para tomar
 está bueno
 lo hace muy bueno
@@ -20675,22 +20515,17 @@ sería bueno
 buey
 búho
 burlar
-burro
 buscar
 buscar
-fue a buscarlo
 caballo
 cabecilla
 hacer cabecillas
 cabello
 cabelludo
 que no cabe
-cabeza
 cabeza de vaca
-en la cabeza
 poner la cabeza
 cabrito
-cacarear
 cacto
 cada uno
 cadáver
@@ -20708,53 +20543,35 @@ caer
 caer
 caer
 lleva a otro al caer
-café
-heces del café
 cajete
-en el cajete
 hace cajetes
 calabacilla
 calabacitas
 calabaza
-calabaza
-flor de calabaza
-semilla de calabaza
 tiene calambre
 calcañar
 caldo
 hace caldo
-calentar
 tiene calentura
 calmar
 calmar
 cuando hace calor
-en el tiempo de calor
 hace calor
 tiene calor
 calzón
 cama
 hacer una cama o una banca
 camaleón
-cambiado
-cambiar
-cambio
 en cambio
 caminar
 caminar
 caminar
 caminar dormido
-camino
-en el camino
-hacer camino
 hay camino
 había camino
 camisa
 poner una camisa a otro
 ponerse camisa
-quitar la camisa
-camote
-campana
-toca la campana
 campo
 cana
 tiene canas
@@ -20765,17 +20582,10 @@ cansado
 cansar
 cantar
 cuando cantan
-esa cantidad
 qué cantidad
-caña de maíz
 come caña
-capar
-capitán
-capulín
 capulín
 cara
-en su cara
-caracol
 carbón
 cárcel
 cardar
@@ -20783,29 +20593,22 @@ carecer
 carga
 cargado
 cargar
-cargar
 tiene cargo
 tiene cariño
-carne
 caro
 carona
 carpintero
 carpintero
 carpintero
 carpintero
-carpintero
-carrete
-carrizo
 carta
 casa
-casa de la comunidad
 en la casa
 entre las casas
 hace una casa
 tiene casa
 casar
 está casada
-cascabel
 cascabel
 cascabel del pascolero
 que tiene cascabel
@@ -20822,32 +20625,20 @@ que no hace caso
 va a hacer caso
 castellano
 castigar
-castrar
 tiene catarro
-catorce
-cazador
 cazar
 cazuela
-cecina
-ceja
 tiene celos
-celoso
 cellisca
 ceniza
 ceñir
 cepa
 cepillar
-cerca
-muy cerca
 lo pone cerca
 cercar
 cercar
 cerco
-cerco
-junto al cerco
 tiene cerebro
-cerrado
-donde está cerrado
 cerrar
 lo que cierra
 cerro
@@ -20855,148 +20646,95 @@ cerro
 cerro
 en el cerro donde es pura laja
 entre los cerros
-cervato
 cesta
 tiene un cetro de autoridad
-ciego
-ciego
 en el cielo
-ciempiés
 ciento
-ciénaga
-ciertamente
 cierto
 no es cierto
-cigarro
-cilíndrico
 está cilíndrico
 hace cilíndrico
 cima
 hace cimiento para casa
 cinco
-cinco decalitros
-en cinco partes
-cincuenta
-cincha
-cinchar
-cintura
-en la cintura
 cinturón
-círculos
-ciudad
 claramente
 claro
-clase
 de todas clases
 esa clase
-esta clase
 qué clase
 tengo de todas clases
-clavado
 clavar
-clavar
-clueca
 coatí
 cobarde
 cobija
 cobija
 se llevó una cobija
-tapándose con la cobija
 tiene cobija
-cobrador
 cobrar
 cocer
 cocer
-cocinar
 cócono
 codiciar
 codicioso
 codo
-codorniz
 coger
 cogiendo
 cojo
-cojo de una pierna
-cola
 cola de caballo
 cola de vaca
-colar
 colear
-colgar
 está colgado
 colibrí
 colina
 color
 qué color
-colorado
 se pone colorado
 collar
-comadreja
-comal
 comenzar
 comenzaron a decir
 comer
-a comer
-comiéndolo así
 el que come
-en el tiempo de comer
 le da de comer
 tiene ganas de comer
 que le da de comer a otro
 comerciante
 tiene comezón
-cómico
-comida
 comida
 tiene comida
 le da comida
 le da comida regalada
-comilón
 cómo
 como
-comoquiera
 hace comoquiera
 hace mal comoquiera
 compadecer
-compañero
 comparecer
 tiene compasión
 complacer
 complejo
 completamente
 completar
-completo
 están completas
 componer
 comprador
-comprar
 comprender
 comprometer
 con
 con
 con
-cóncavo
 es cóncavo
 hace cóncavo
-hecho cóncavo
 conceder
 condenar
-conducir
 le conducirá
-conectar
-conejo
 confesar
-confiar
 confundir
-congelar
-conocer
 conocer
 fué conocido
-hubieran conocido
 que conozcan
 conocido
 conque
-conseguir
 dar consejo
 consentir
 consigo
@@ -21004,194 +20742,121 @@ consolar
 construir
 contado
 contagiar
-contar
 contener
-contener
-que contiene un líquido
 contentar
 está contento
 contestar
-contigo
 está en contra
 contradecir
-al contrario
 convencer
 no me conviene
 convertir
 no quiere convidarle
-corazón
-corazón del pino
-en el corazón
 tiene corazón
-corcové
 cordillera
 arriba en la cordillera
-cornear
 corona
 corona
 se pone la corona
-correa
 correcamino
 correr
 correr
 correr
 correr
 va corriendo 'mahuá corretear
-cortar
-al tiempo de cortarlo
 corteza
-corto
 cosa
 cosa ajena
-cosas notables
 cosechar
-coser
 lo cose para uno
 que cose
 hace cosquillas a otro
 costar
 cuesta mucho
-costilla
-en las costillas
 costoso
 tenía costumbre de hacerlo
 cotense
-coyote
-piel de coyote
-coyuntura
 crecer
-crecer
-creer
 cree que sí
 cresta de gallo
-creyente
 criar
 criatura
 criticar
-crucifijo
 cruel
 crujir
-cruz
-en la cruz
 cruzar
-cuadrado
 cuajar
 cuajo
 cuál
 cualquier color o clase
 cualquiera
 cuándo
-cuando
 cuánto
 cuántas veces
 cuanto
-cuarenta
 cuarta
 cuatro
-en cuatro partes
-entre cuatro
 cubrir
 cuchichear
-cuchillo
 cuello
-en el cuello
 cuerda
-cuerno
-que tiene cuernos
 tiene cuernos
 cuero
 cuero
-cuero de chiva
-cuero de vaca
 en todo el cuerpo
 tiene cuerpo
-cuervo
 cuesta
 cuesta
 en cuesta abajo
 en cuesta arriba
-por cuesta abajo
-cueva
-en la cueva
 tiene cuidado
 cuidar
 cuidar
 cuidar
 culebra
-tiene la culpa
-culpable
-cultivar
 cumbre
 cumplir
 cuñado
 cuñado
-cura
 curandero
 curandero
-curandero
-curar
 curar
 curar
 chamaco
 chamuscar
-chanate
 chancear
-chapalear
 chaparro
 chapulín
-charco
 charlar
 chico
-más chiquito
 lo hace más chico
 chicotear
 chiflar
 chile
-chile
-chile
-chilicote
-chiltipiquín
 chillar
 en la chimenea
 chirriar
-echar chispas
 lo hace echar chispas
 está echando chispas
 chistoso
-chiva
 chivato
 chocar
 cholubo
-donde sale un chorro
 salir un chorro
-chuchupate
 chueco
 chulo
 chupamirto
 chupar
 dar
-dando
 dar a luz
-dar vuelta
 mecate
 de
 de
-de
-debajo
-deber
-decalitro
 decir
 así dice
-comenzaron a decir
-dice esto
 fue dicho
-le dice esto
-le fue dicho
 le había dicho que le iba a dar
 qué quiere decir
-en el tiempo en que se dice
-dedo
-dejar
 delante
 delgado
 demás
@@ -21200,7 +20865,6 @@ dentro
 derecho
 derramar
 derretir
-derribar
 derrumbar
 desabrido
 desamarrar
@@ -21212,83 +20876,49 @@ desapareciéndose
 se despareció
 desatar
 se desató
-desbaratar
 descabezar
-descansar
-hacer descansar
-tiempo de descansar
 descender
 descomponer
 lugar en que se descompone
 quiere descomponer
-descornar
 descoyuntar
 descubrir
 desde
-desde abajo
-desde ahora
-desde aquí
-desde que
-desde entonces
 desear
 desean sentarse
 desenredar
-desgajar
 desgastar
 desgranar
 desgranar
-no desgranado
 desherbar
 desherbar
 deshojar
-deslumbrar
 desmayar
 desmenuzado
-desmenuzar
-desmoronar
 desnudar
-desnudo
 desobedecer
 desobediente
 desparramar
 despedazar
-despedir
 despeinado
-despellejar
-desperdiciar
-despertar
 despintar
-desplumar
 despreciar
 después
-después de lo acontecido
-mucho después
 poco después
-despuntar
-destapar
 destruir
 detener
 detrás
-día
 algún día
 algunos días
 al siguiente día
-día de fiesta
-el día anterior
 el otro día
-en el día
 hace buen día
 hace el día
 hace un día
-hoy día
 qué día
 todos los días
-un día
 tiene diarrea
-diente
-en el diente
 tiene dientes
-diez
 diferente
 difícil
 está difícil
@@ -21297,8 +20927,6 @@ dilatar
 diluir
 dinero
 tiene dinero
-dios
-dios padre
 discípulo
 disculpar
 discutir
@@ -21309,69 +20937,40 @@ distinguir
 distinto
 distribuir
 divisar
-doblar
-doce
 doctor , médico
-doler
-tiene dolor
 siente el cuerpo dolorido
 dominar
-domingo
 donar
 dónde
 dondequiera
-en dondequiera
 dormir
 le hace dormir
 quiere dormir
-dos
-de dos en dos
-dos reales
-en dos partes
 entre dos
-entre los dos
-dueño del caballo
-dulce
-está dulce o sabroso
 durar
-duro
 duro
 está duro
 lo hace duro
 echar
 echa a correr
-echado
 echó fuera del corral
-ejote
 salen ejotes
 él , ella
-elástico
 elegir
-elevar
 elote
-elote tostado
-ellos , ellas
-emblanquecer
 emborrachar
 emborrachó
-que emborracha
 embotar
 empachado
-empalmado
 emparejar
 empezar
 empezar
-emplear
 empollar
 empollar
 emprender
-empujar
-empujar
 enagua
 se ponen enaguas
 se quita enaguas
-encanecer
-encarcelar
 encarrujado
 encarrujar
 encender
@@ -21382,50 +20981,32 @@ uno encima del otro
 poner uno encima del otro
 encino
 encino
-encino
 bellotas que crecen en los encinos
-entre los encinos
-hay encinos
-hojas de encino
 encinta
 enclocar
 encoger
-encomendar
-encontrar
 está encorvado
 enchilar
-enchuecar
-enderezar
-endurecer
 enemigo
 se hacen enemigos
 enfermar
 enfermar
-enfermar
 enfermarse
 enfermedad venérea
-enfermo
 enflaquecer
 enfrente
 enfrente de
-enfriar
 engendrar
-engordar
 enhebrar
 enjambre
 enlazar
 enlodar
 enloquecer
 ennegrecer
-está enojado
-enojar
 enorme
-enraizar
 enramada
 hace enramada
-enredar
 enrojecer
-enrollado
 enrollar
 enrollar
 enseñar
@@ -21441,42 +21022,28 @@ está entero
 enterrar
 entonar
 entonces
-desde entonces
 entrar
 entren uds
 entregar
 entretanto
 entretejer
-entristecer
 entumecer
-entumido
 enturbiar
 envejecer
-envenenar
 enviar
 tiene envidia
 envidioso
-enviudar
-enviudar
 envolver
 envolver
-epiléptico
 equivocar
 me equivoqué
 eructar
 escama
 escapar
-escarbar
 escardar
-escardar
-escarpado
 escarpadura
-escoba
 escoger
 esconder
-anda escondido
-escribir
-escuchar
 escupir
 ése
 ese
@@ -21484,33 +21051,20 @@ esférico
 es esférico
 hace esférico
 éso , ésos
-esófago
-espalda
-en la espalda
 espantajo , espantapájaros m
 espantar
 espanto
-espanto
-espantoso
 español
 esparcir
-espejo
-esperar
 está esperando
 espérense
 espesar
-espeso
 espiga
-espiga
-en la espiga
-espigar
 espina
 espina dorsal
 tiene espinas la oruga
 espinar
 espinazo
-espinilla
-en mi espinilla
 espíritu
 da espíritu
 espíritus de los antepasados
@@ -21536,26 +21090,16 @@ estará
 estaremos sentado
 este
 éste
-estéril
 estiércol
-estiércol de chiva
-estiércol de vaca
-estirar
 esto
 estómago
-en mi estómago
 tiene estómago
 estorbar
 hace estorbo
-que anda estorbando
-estornudar
 estrangular
 estrangular
 estrecho
-lugar estrecho
 muy estrecho
-estrella
-estuche
 estuche
 estudiar
 examinar
@@ -21563,53 +21107,37 @@ excremento
 explicar
 exprimir
 extender
-extenso
-muy extenso
 extinguir
 extraer
 extraño
-extraordinario
 extraviar
 fácil
-faisán
 faja
 falsear el tobillo
-falta
-falta de algo
 hace falta
 fallecer
-tiene fama
 fantasma
 dar fe
 feo
 está feo el lugar
 feroz
 fertilizar
-fiar
 fibra
 fiebre
-fierro
-fierro
-fiesta
 hacen fiesta
-día de fiesta
 tiene filo
 al fin
 finalmente
 fino
 firme
 flaco
-flauta
 toca la flauta
 flecha
 tirar flecha o balazo
-flexible
 tiene flojera
 flor
 flor
-flor
 florecer
-flotar
 formar
 fortalecer
 fragante
@@ -21618,12 +21146,8 @@ frente arrugada
 frecuentemente
 fresco
 fresco
-fresno
-frijol
 frijol
 frío
-hace frío
-tengo frío
 frotar
 fuera de sí
 fuerte
@@ -21632,29 +21156,18 @@ fuerte
 está fuerte
 fuerte
 lo hace fuerte
-con fuerza
 tiene fuerza
-fumador
-fumar
 futuro
-gallina
-gallo
 ganar
-si gana
 garganta
-garrapata
-garza
 gastado
 gastar
 gastar
 gatear
 gato
 gato de algalia
-gato montés
 gavilán
 gavilán
-gavilán
-gemir
 gemir
 gemir
 gente
@@ -21662,16 +21175,12 @@ toda la gente
 germinar
 gigante
 en la gloria
-gobernador
-ante el gobernador
-golondrina
 golpear
 gordo
 está gordo
 gorgojo
 gorgojo
 gorgojo
-gotear
 gozar
 gracias
 dar gracias
@@ -21680,20 +21189,16 @@ cae grajea
 grande
 más grande
 tan grande
-granizo
 grano
 tiene granos
 salir granos
 granujoso
 gratis
-grillo
 gris
 gritar
 gritar
 cuando gritan
-grueso
 está grueso
-que tiene grumos el atole
 gruñir
 gruñir
 guacamayo
@@ -21703,68 +21208,47 @@ guardar
 guiar
 gusano
 gusano
-gustar
-gustar
-con mucho gusto
-me dio gusto
 tiene gusto
 habitación
-habitación de ellos
 habitar
 habla
-hablador
 es muy hablador
 hablar
 hablar
 hablar
 hablar
 hablar
-durante el tiempo de hablar
-habla con palabras bonitas y suaves
-hacer
 hacer
 hacer
 así hace
 hace muchísimo
 haciéndose rico
 lo hace así
-los que hacen
 no le hace
 que hace mal comoquiera
-recién hecho
 tiene mucho que hacer
 hacia allá
-hacha
-mango de hacha
 hallar
 tiene hambre
 tiene demasiada hambre o sed
 hartar
-hasta
-hasta luego
 hasta que
-hay
 no hay de qué
 hechicero
 hechicero
 hechizar
 helar
-helecho
-hembra
 herencia
 herir
 hermana mayor
-hermana menor
 tiene hermana menor
 hermano
 hermanos y primos hermanos
 tiene hermanos
 son hermanos
-hermano mayor
 tiene hermano mayor
 hermano menor
 hermoso
-herradura
 herrar
 hervir
 hierve mucho
@@ -21772,17 +21256,11 @@ hierba
 hierba
 crecen muchas hierbas
 entre las hierbas
-hierro
 hígado
 tiene hígado
 higo
-higuera
-en la higuera
-hija
-hija
 que tenía hijas el hombre
 tiene hija el padre
-hijo
 hijo
 tiene hijo
 que tiene hijos
@@ -21797,98 +21275,57 @@ hinchar
 hinchar
 hinchar
 hinchar
-tiene hipo
 hocico
-hocico
-hogar del hombre
-hoja
 hoja
 hoja
 tiene hojas
-que tiene muchas hojas
 se caen las hojas
 hojarasca
 hola
-hollín
 se pone negro de hollín
-hombre
 hombro
-en el hombro
 llevar en hombros
-homicida
-honda
-hondo
-donde está hondo
 está hondo
-hongo
 hongo
 a qué hora
 horcón
 hormiga
 se llena de hormigas
 hoy
-hoy día
-hoy temprano
-hoyo
 escarbar hoyo
-en el hoyo
-hacer hoyo
 hacer un hoyito redondo
-hecho hoyo
-huarache
 se pone huaraches
 se quita huaraches
 tiene huaraches
 huari grande
-hueco
-hecho hueco
 hacer hueco
 hueja
 hueja
-hacer huejas
 huellas
-seguir las huellas
-huérfano
 hueso
 hueso
-hueso
-hueso de gallina
-parte gruesa del hueso que fue roto
 tiene huesos
 huevo
-poner huevos
-huevos de gallina
 huir
 humear
 humedecer
 húmedo
 está húmedo
-humo
 estaba haciendo humo
 hay humo
 hundir
-idioma
 iglesia
-en la iglesia
-ignorante
 igual
-es igual
 son iguales
-igualar
 iluminar
 importar
-no importa
 es incapaz
-incienso
-donde se quema incienso
-inclinado
 inclinar
 incrédulo
 indígena
 infante
 infectar
 inflado
-inflar
 informar
 inmediatamente
 inmenso
@@ -21896,133 +21333,90 @@ inocente
 instruir
 insultar
 interpretar
-intérprete
 interrogar
 intestino
-inundar
-invierno
 comienza el invierno
 invitar
 inyectar
 ir
 no quiere dejarle ir
 quiere ir
-va a pie
 vamos
 vaya
 yendo
-ir cuesta abajo
-querían irse
 izquierdo
 jactancioso
-jalar
 jamás
 jarro
 jefe
 hacen jefe
-jefe supremo
-jorobado
 joven
-jugador
 jugar
 juega con alguna cosa
 juega tirando los palos
 jugaban
 juegan cuatro , juegan teja
 jugo
-jugo de fruta
 juntar
 los que se van juntando
 lugar donde se juntan
 juntamos
 junto
 están juntos
-poner juntos
 jurar
 hace justicia
-justo
-labio
 tiene labios
-labrado
 labrar
-ladear
 a un lado del camino
 al otro lado
 de un lado
 el otro lado del cerro
 lado derecho
-por el otro lado
 por este lado
-por los dos lados
 se echa de un lado al otro
-ladrar
-ladrón
 lagartija
 lagartija
 lagarto
-lágrima
 salen lágrimas
-laja
 en la laja
 hay laja
 que tiene laja
 lama
-hay lama
-lamer
-lana
-carda la lana
 hilo de lana
-hacer hilo de lana
-lana de borrego
 tiene lana
-una bola de lana
 lanudo
-lanza
 largo
 tiene lástima
 lavar
 lavar
 lavar
 lavar
-lavar
-lavar
-lavar
 lazar
 dar leche
-leer
-sabe leer
-legaña
-tener legañas
 lejos
 de lejos
 más lejos
-muy lejos
 qué tan lejos está interr
-lengua
 leña
 trae leña
 león
 levantar
 levantar la caja
-levantar una acta
 levántese
 levantó
 ley
 liacho
 hacer liacho
 licencia
-liebre
 liendre
 tiene liendres
 lienzo
-ligamento
 ligamento
 ligamento
 lugar de los ligamentos
 ligero
 es muy ligero
 lijar
-limpiar
 limpiar
 limpiar
 limpio
@@ -22032,59 +21426,41 @@ hace un lío
 lirio
 se hace liso
 listo
-listón
 lobo
 loco
 está loco
 se vuelve loco
 lodo
 hace lodo
-lograr
-loma
 lombriz
 lomo
 lonche
 hace lonche
 lucero
-luciérnaga
-luchar
 luchar
 desde luego
-hasta luego
 lugar
-en lugar feo
-este lugar
 lugar donde hay hierba “basigó”
 lugar donde le alcanza
-lugar donde ponen algo
-lugar donde vive gente
-lugar cerca
-lumbre
 encender lumbre
 en la lumbre
 hace lumbre
 prende lumbre
 luna
 hay luna
-hay luz
 llaga
 lleno de llagas
-llamar
 está llamándole por nombre en su presencia
 llano
-llano
 hay llano
-llave
 llegar
 llegar
-cuando llega el tiempo
 donde llega
 llegamos
 llegándose
 llegaron
 llegó de repente
 llenar
-lleno
 llevar
 llevar
 llevar
@@ -22094,75 +21470,48 @@ llevar
 llevar
 llevar
 llevar
-llevar
-llevar
-llevar preso
 lleva por el agua
 lleva de compañero en un viaje
-llorar
-llorón
 es llorón
-llover
-todavía llueve
-lloviznar
-lluvia
 llega el tiempo de lluvias
 tiempo de lluvias
 macizo
-macho
 machucar
 madera
-madera fofa seca
-madera fofa mojada
 madrastra
 madre
 madrina
-madroño
-madrugada
 hoy temprano en la madrugada
 madurar
 maduro
 maestro
 flor de maguey
-quiote de maguey
 maíz
 maíz
 maíz
-maíz
-entre las matas de maíz
-hay matas de maíz
-matas de maíz
 maíz nacido para hacer tesgüino
 mal
 mal de salud
 tiene mal olor
-malacate
 maldad
 maldecir
-malgastar
 malhechor
-maltratar
 malvado
 mamá
 la mamá de él
-que tiene mamá
-mamador
 mamar
 le da de mamar
 manantial
-mana agua
 mandamiento
 mandar
 mandar
 el que manda a otro
 manda un recado
-mandado
 mandó
 mandó llevar alguna cosa
 manear
 manejar
 manejar
-de alguna manera
 de esa manera
 de esta manera
 de la misma manera
@@ -22170,37 +21519,22 @@ de ninguna manera
 de otra manera
 de qué manera
 mango
-poner mango al hacha
 mano
-a mano
-en la mano
 mano derecha
 mano izquierda
-manojo
 manso
 manta
-pieza de manta
 manteca
-que tiene mucha manteca
 manzanilla
-en la manzanilla
-mañana
-hasta mañana
-mañana temprano
 por la mañana
 pasado mañana
-mapache
-mar
-orilla del mar
 no se maravilla
 marcar
-marchante
 marchitar
 marear
 marear
 marido
 tiene marido
-mariposa
 marrano
 marro
 martillar
@@ -22208,9 +21542,6 @@ más
 más allá
 más allá en tiempo
 más todavía
-masa
-máscara
-masticar
 mata
 mata
 mata
@@ -22222,25 +21553,18 @@ mata
 matado
 matar
 matar
-fue matado
 quiere matarlo
 maullar
 mazo
 mazorca
 me
-mecapal
-mecate
 hace mecate
-medianoche
 medicina
 médico
 medida
 medida de una cuarta
-medio
-mediodía
 medir
 médula
-mejilla
 en la mejilla
 tiene mejillas
 mejorar
@@ -22248,41 +21572,27 @@ mellar
 tiene buena memoria
 menear
 menear
-menear
-es menester
-menor
-menor
 lo hace menor
 menospreciar
-mentar
 mentir
 mes
 tiene mes
-mesa
 en la meseta alta
-mestizo
 metamorfosear
-metate
-mano de metate
 meter
 meter
 meter
-mezcal
 mezclar
 mezclar
-mezclado con
 mézclalo
 mí
 a mí
-por mí
 mi
 miedoso
 tiene miedo
 miel de abeja
 miel de abeja
 mientras
-miércoles
-milpa
 en la milpa
 mío , mía
 mirar
@@ -22291,10 +21601,7 @@ mira
 mirando
 miserable
 mismo
-mitad
-moco
 tiene moco
-mocoso
 mocho
 de ese modo
 de otro modo
@@ -22302,27 +21609,16 @@ de qué modo
 de todos modos
 moho
 mojado
-en algún lugar mojado
 mojar
-moler
-moler
 molestar
 molleja
-molleja de pollo
 al momento
 mondar
 moneda
-montar
-montando
 monte
-en el monte
-montón
-montón
 morado
 morador
 morar
-morder
-morder
 morder
 que te mordió
 morir
@@ -22330,20 +21626,16 @@ muere de frío 'aché moro
 mosca
 mosquito
 mostrar
-mover
 mosquito
-que se puede mover
 muchacha
 muchacho
 muchísimo
 mucho
-mucho después
 mucho más
 mucho más rato
 mudo
 muela
 muerto
-hecho con muescas
 le hace muescas
 mugir
 mugre
@@ -22351,96 +21643,53 @@ mugriento
 está mugriento
 mujer
 multar
-multiplicar
 mundo
-en el mundo
 murciélago
 murmurar
-músculo
-musgo
 músico
 muslo
 mutuamente
 muy
 nacer
-nació un niño
 de nada , por nada
 nada más
-sin nada
-nadar
 nadar
 nadie
-nalga
-naranja
 nariz
 en la nariz
-hoyo de la nariz
 neblina
 hay neblina
 necesitar
-negar
-negro
 lo hace negro
 nene
-nervio
-nervioso
-nevar
-que tiene nieve encima
-ni uno
-nido
 nido
 hace nido
 niebla
-en la niebla
 nieta
-nieta
-nieto
-nieto
 mi nieto
-nieve
 ninguno
 ninguna parte
 niño
-nivelar
-nixtamal
 hace nixtamal
 no
-no importa
-no le hace
 no se maravilla
-noche
 anoche adv
-de noche
 medianoche f
-muy noche
-nombrado
 lugar nombrado así
 nombrar
 nombrar
-nombrar
-nombre
 tiene nombre
 nopal
 nopal
-nopalera
-norte
-hacer norte
-nosotros
-noveno
-noventa
-nube
 está nublado
 nublar
-nuca
 hace nudo
 nuera
 tiene nuera
 nuestro
 nuevamente
-nueve
 nuevo
 nunca
-nutria
 o
 obedecer
 obediente
@@ -22456,55 +21705,37 @@ obsequio
 observar
 no obstante
 en otra ocasión
-ocote
 ocotoso
-octavo
 ocultar
 ocultar
 ocupar
-ochenta
-ocho
-odiar
 oído
 tiene oídos
 oír
 oír
 oír
 oír
-oír
-si quiere oírlo
 oiga
-ojo
 tiene ojos
 ojo de agua
 hace olas el agua
 oler
-que huele bonito
 huele mal
 huele mucho
 olfatear
 lo sigue olfateando
 olor
 olor
-tiene buen olor
-olote
 que tiene olotes
 olvidar
 olla
 hace ollas
-ombligo
-en el ombligo
-once
 opinar
 oponer
-orar
 ordenar
-ordeñar
 oreja
-oreja de alguien
 que tiene orejas largas o chicas
 tiene orgullo
-orgulloso
 está orgulloso
 orilla
 orilla
@@ -22512,29 +21743,18 @@ orilla
 orilla
 se acerca a la orilla
 moja con orina
-orinar
-ortiga
 oruga
-oso
 otate
 otro
 otro
-en otra ocasión
-en otra parte
 otra vez
-otro poco
-uno por otro
-uno tras otro
 unos a otros
 oveja
-oxidado
 oxidar
 pacer
 padecer
 padre
-padre
 tiene padre
-que tiene padre
 padrino
 paga
 pagar
@@ -22547,38 +21767,22 @@ pájaro
 pájaro
 pájaro
 pájaro
-pájaro
 pico de pájaro
-nido de pájaro
-palabra
-paleta
-en la paleta
-pálido
-palma
 palma
 palma
 palmillo
 palo
 palo
-palo
 palo usado por las mujeres en las carreras
-palo picudo
-palo semejante al carrizo
 palo o árbol seco
 palo podrido
-paloma
 hace palomitas
 hacer palomitas de maíz
-palpitar
 tiene paludismo
 panal
 pandear
 está pando
-hecho pando
 pantalón
-panteón
-pantorrilla
-panza
 panzón
 paño
 paño
@@ -22586,9 +21790,6 @@ pañuelo
 papa
 papel
 para
-para acá
-para allá
-para arriba
 parado
 parado
 andar parado
@@ -22607,43 +21808,29 @@ pardo
 es pardo
 parecer
 parecer
-parecer
 no me parece
 qué te parece interr
-parejo
-estar parejo
 hacer parejo
 parir
-en dos partes
 en la parte superior
 en muchas partes
 en otra parte
 en todas partes
 en todas partes donde hay gente
-en tres partes
 en una parte desconocida , en alguna parte
 en una sola parte
 ninguna parte
 partir
-se está partiendo
-pasado mañana
-pasador
 pasar
-cuando pasaban
-los que pasan
 pasa a pie al otro lado del agua
 pasa la noche posar
 pasa un día o noche tiempo
 pasando
 qué pasa interr
 sabe lo que pasó
-pasear
 pasto
-pastor
 pastorear
 pata
-patear
-patio
 arreglar patio para bailar
 patio donde arreglaron parejo
 pato
@@ -22651,9 +21838,7 @@ pavo
 pecado
 pecador
 pecar
-pecho
 en el pecho
-que tiene pecho
 dar el pecho
 pedazos que sobran al hacer una cobija
 se hace pedazos
@@ -22661,20 +21846,14 @@ pedernal
 pedir
 pide a dios
 pedir perdón
-pedregal
-está pegado
-en donde están pegados
 está pegajoso
 pegar
 pegar rápidamente
 pegarse con ceniza
 peinado
 despeinado
-peinar
-peine
 peine
 pelar
-pelear
 pelo
 tiene pelo
 que tiene el pelo despeinado
@@ -22682,17 +21861,13 @@ pellizcar
 pensador
 pensar
 no piensa bien
-peña
 en la peña
 peñasco
 hay peñasco
-peón
 perder
 se echa a perder
 pierde en el juego
-perdón
 pide perdón
-perdonar
 perdónale
 perecer
 perfecto
@@ -22708,26 +21883,17 @@ permiso
 permitir
 pernoctar
 pero
-perro
-perrito
-perseguir
 persogar
 está pesado
 pesar
 pescado
 pescar
 pesca con anzuelo
-pestaña
-pestañear
 petaca
-petate
-peyote
 pez , pescado
 tipo de pez negro , barbón
 pezuña
 picacho
-picador
-picante
 picar
 le pica
 está picando
@@ -22740,8 +21906,6 @@ pie
 a pie
 poner los pies
 tiene pies o patas
-piedra
-cerco de piedra
 hecho de piedra
 piedra blanca
 trampa de piedras
@@ -22749,17 +21913,8 @@ piedra que cae de la trampa
 piedra parada
 piel
 pierna
-en la pierna
 sin pierna
-pinabete
-pino
-corazón del pino
-donde hay pinos
-entre los pinos
 hay muchos pinos
-tipo de pino
-tipo de pino
-pinole
 pinole
 come pinole seco
 hace pinole
@@ -22768,54 +21923,36 @@ pintar
 pintar
 pinto
 piña
-piojo
-piojoso
-pisar
 piso
 segundo piso
 pisotear
 pizca
 pizcar
 pizcar
-plano
 está plano
 platicar
 plato
-plegar
 pluma
 pobre
 poco
 hace poco
-muy poco
-otro poco
 poco a poco
 poquito
-podar
 poder
 tiene poder
-poderoso
-podrido
-podrido
 podrido
 podrido
 polvo
 hay polvo
-pollito
 pollo
 poner
 pollo
 pollo
 pollo
 pollo
-por
 por allá
-por algo
-por aquí
-por eso
 por favor
-por nada
 por qué interr
-porque
 posar
 poseedor
 poseer
@@ -22826,27 +21963,21 @@ postrar
 potable
 pozo
 pozo hecho
-pozole
 preceder
 predicado
 predicador
 predicar
 tiene ganas de predicar
-preguntar
 preguntándole
 prender
-prendido
 preñado
 preparar
 preparar
 lo hicieron preso
 lo lleva como preso
 quisieron hacerlo preso
-prestar
 primeramente
 primo , prima
-primogénito
-principio
 al principio , en el principio
 producir
 produce lana
@@ -22862,19 +21993,16 @@ pudrir
 pudrir
 pudrir
 pudrir
-pudrir
 puerta
 puerta
 puerta abierta
 puerta de la casa
 puesto menor
-pulga
 pulmón
 puma
 punta
 que tiene punta
 en la punta del cerro
-sacar punta
 punzar
 puñado
 sale pus
@@ -22882,33 +22010,23 @@ hace salir pus
 qué
 qué es
 para qué
-qué cantidad
 que
 quebrado
 quebrar
-oír que se quiebra
 quedar
 quedar en la noche
-queja
 lanza quejas
 quejar
 quelite
 quelite
 quelite
-juntar quelites
-quemado
 quemar
 querer
 quería
 quiso
-si quiere
 quién
 quien
 quieto
-quijada
-quince
-quinto
-quiote
 quitar
 quitar
 quitar
@@ -22921,11 +22039,8 @@ quitar
 quitar
 quizá
 rabia
-enfermar de rabia
 pegar rabia a otro
-que tiene rabia
 rabo
-raíz
 que tiene raíz
 tiene raíz
 raíz con la que se hace pegamento
@@ -22940,29 +22055,21 @@ rana
 rana
 rana
 rascar
-rasgar
 rasguñar
 raspar
 se raspó
 rastrillo
-rastrojo
 rata
-rata
-al poco rato
 al rato
 hace rato
 un rato
-ratón
 ratón
 rayar
 rayar
 real
 rebajar
-rebanar
 rebosar
-rebozo
 recibir
-recién hecho
 recio
 reclamar
 recoger
@@ -22976,16 +22083,13 @@ rechinar
 redondo
 está redondo
 hace redondo
-reforzar
 regalar
 'ya
 regañar
 regar
-en el regazo
 regocijar
 regresar
 reír
-relampaguear
 relatar
 relinchar
 cuando reluce
@@ -22993,11 +22097,7 @@ relumbrar
 remedio
 remendar
 remojar
-remoler
-remolino
 se formó un remolino
-renacuajo
-rendija
 rendir
 rengo
 renovar
@@ -23005,12 +22105,7 @@ renunciar
 reñir
 repartir
 de repente
-de repente
-vendrá de repente
 repetir
-repetir
-reponer
-reprender
 res
 resbalar
 resbalar
@@ -23019,179 +22114,106 @@ está muy resbaloso
 resfriar
 resina
 resolver
-resollar
-resonar
 respetar
-respiración
-respirar
 resplandecer
 el sol resplandece
 responder
 va a responder
-restante
 resucitar
 retener
-retirar
-retoñar
 retornar
 retrasar
 retronar
-retumbar
 tiene reúma
 reunir
-cuando están reunidos
-al revés
 revolcar
 revolver
-revuelto
-rezar
-perteneciente a la acción de rezar
-rezumbar
 rico
 está haciéndose rico
 rifle
 tira con rifle
 rincón
-en un rincón
-río
 por río abajo
 dar risa
-risueño
-robar
 robar
 roban mucho
-robando
-rociar
 rodar
 rodear
 rodilla
-en las rodillas
 le ruega
 rojear
 rojo
 lo pinta de rojo
-romper
 roncar
 está ronco
 roñoso
 está roñoso
 ropa
-rostro
 roto
 rozar
 rugir
-hacer mucho ruido
 hacer ruido
-sábana
 saber
-como deben saber
 le hace saber
 que sabe bien
 sabe leer
 que sepan
-sabe lo que pasó
-sabido
-sabina
 sabio
 sacar
 sacar
 sacar
-sacar
-sacar
-sacar punta
 sacar tiras
 saco
 sacudir
-sahumar
-sal
 tiene sal
-salado
 está salado
-salamandra
-salar
 salir
 salir
 salir
-salir
-apenas salió
 le salió salpullido
 salimos del trabajo
-saliva
 salivar
 salpicar
-le salió salpullido
-saltamontes
-saltapared
 saltapared
 salto de agua
-saludar
-saludar
-salvador
 salvar
 samachique
 sanar
 sano de los pies , brazos
 sangrar
 sangre
-sangriento
-sanguijuela
 sapo
-sarampión
-sauz
 sebo
 sebo de chiva
 secar
-seco
-secretamente
 tiene sed
 sediento
-sedimento del tesgüino
 segar el trigo
 en seguida
-seguidor
 seguir
 seguir
 seguir
 siguen haciendo algo
-siguieron haciéndolo
 según
-según dice juan
-segundo
 seguro
-estoy seguro
-seis
-semana
-semana santa
-sembrado
-sembrador
 sembrar
-sembrar
-de siembra
-fue sembrado
 siémbrenlo ustedes
-semejante
-semejanza
 semilla
 semilla de trigo
 sencillo
-seno
 sentar
 sentar
 sentar
 sentar
 está sentado haciendo algo
-quería sentarse
 hacer sentarse , desean sentarse
 siéntate
 sentir
 sentir
 señalar
 separado
-separar
-séptimo
 sepulcro
 sepultar
-ser
 ser
 era
 éramos
@@ -23209,22 +22231,13 @@ serpiente
 serpiente
 servir
 no sirve
-sesenta
-setenta
-sexto
 sí
-cree que sí
 sí también
-siempre
 sierra
-siete
 silencio
 sin embargo
 sino
-siquiera
-sobaco
 sobar
-sobrante
 sobrar
 sobre
 sofocar
@@ -23234,17 +22247,13 @@ sol
 el sol resplandece
 hace sol
 solamente
-soldado
 solera
 solo
 uno solo
 soltar
 soltero
-sombra
 está a la sombra
 hace sombra
-sombrero
-sonaja
 sonaja
 sonaja
 sonaja
@@ -23254,10 +22263,8 @@ sonar
 sonar
 sonar
 sonar
-sonar
 hace sonidos con la voz
 sonreír
-soñar
 soplar
 soplar
 soplar
@@ -23267,10 +22274,7 @@ sordo
 sorprender
 su , sus
 su , sus
-subir
-subir el humo
 subir de tierra baja
-ir subiendo
 suceder
 suciedad
 sucio
@@ -23278,53 +22282,36 @@ sucio
 está sucio
 está sudando
 tener mucho sudor
-suegra
 suegro
 suelo
 tiene sueño
-tengo suficiente
 sufrir
 sumamente
 sumergir
-sur
-surcar
-surtido
 tabaco
-tábano
-tabla
 tacaño
 tal
-tal como está
-tal como era
 tal vez adv
 taladrar
 talega
 talón
 tamaño
-tamaño de un caballo
 tambalear
 también
-tambor
 tampoco
 entre tanto
-ese tanto
 por lo tanto
-tapado
-tapar
 tapar
 tapar
 tapar
 tapar
 tapar
 tarahumara
-idioma tarahumara
 tarántula
 tardar
-tarde
 es tarde
 esta tarde
 tardecer
-tascatal
 táscate
 tatemado
 taza
@@ -23339,61 +22326,38 @@ temblar
 temer
 temeroso
 templo
-temprano
 tender
 tendidos para dormir
 tener
 tener
-tiene ganas de comer
-tengo de todas clases
 tenga
 tentar
-teñir
 lo tiñe de anaranjado
-tercero
 terminar
 termita
 terreno
-herencia de terrenos
 tesgüino
 que toma tesgüino
 tomar tesgüino
 tener tesgüino en su casa
 testificar
-teta
 ti
 tía
-tía
-tía
-tibio
-al mismo tiempo
-cuando llega el tiempo
-en todo tiempo
 hace muchísimo tiempo
 hace mucho tiempo
 poco tiempo
 tiempo de calor antes de las lluvias
-tiempo de lluvias
 está tierno
 tierra
 tierra
-hay tierra
 lugar en donde la tierra está colorada
 mi tierra
 tiene tierra
-tierra blanca
-tierra de siembra
 tijera
-hay tinieblas
 en las tinieblas
-tinta
-tío
-tío
 tío
 tirar
 tirando las bolas
-tobillo
-hueso del tobillo
 tocador
 tocar
 tocar
@@ -23401,11 +22365,8 @@ tocar
 tocar
 tocar
 tocar
-es tocayo
 todavía
-todo
 es todo
-todo cuanto
 todos
 tomar
 tomar
@@ -23414,63 +22375,36 @@ hacer tomar
 tomar pecho
 ir al tesgüinada a tomar
 toma
-tomatillo
-tonto
 torcer
 torcido
-que ha sido torcido
-tordo
 toro
 tortilla
-hacer tortillas
-toser
-tostado
-tostar
-tostar
 tostar
 trabajador
-trabajar
-a trabajar
 poner a trabajar
 está trabajando agachado
-trabajo
 donde hay trabajo
 trabajoso
-traducir
-traer
 traer
 traer
 traer
 traer en las manos
 quiere traerlo
-tragar
 poner una trampa
 trampa de piedras
-transformar
 transparente
 trapo
 tráquea
-trasquilar
 trasquilará
 travieso
-trece
-treinta
 tiene trementina
-tremolar
 hace trenzas
 hace trenzas para otra
-tres
 tres tantos
-en tres partes
-trigo
-paja de trigo
-segar el trigo
 tiempo de cortar trigo
-triguillo
 trillar
 tripa
 tiene tripas
-triste
 está triste
 troje
 en la troje
@@ -23479,53 +22413,36 @@ tronar
 tronar
 está tronando el cielo
 truena la pólvora
-tropezar
-tropezar
 trozar
 trozar
 trozo
 tú
-tú mismo
-tuerto
 tuétano
 tumba
 tumbar
 tumbar
-tuna
-turbio
 está turbia
-tuza
 tuyo
 ubre
 último
 un , uno
-cada uno
 ni uno
-uno tras otro
-uno por otro
 ungido
 ungir
-único
 unido
 unir
 unos
-unos a otros
 untar
 uña
-urgente
 usado
-usar
 usted
-de usted
 de ustedes
 útil
 vaca
 vaciar
-vacunar
 vadear
 vaina
 valer
-no vale mucho
 vale mucho
 valiente
 valor
@@ -23535,36 +22452,23 @@ hace vapor
 vaqueta
 vaso
 vecino
-veinte
 vejiga
-vela
 veloz
-vena
 venado
-vencer
 vender
 venenoso
 venir
-allá viene
 vénganse
-viniendo
 ventana
 ventana
-ventilar
 ver
 a verlo
-cuando estaban viéndolo
-podía ver
-el que ve
-que puede ver
 ve bien
 viéndolo
 verdad
-verdadero
 verde
 es verde
 lo pinta de verde
-sinvergüenza
 tiene vergüenza
 verter
 está vertiginoso
@@ -23572,9 +22476,6 @@ le causa vértigo
 vestido
 vez
 a veces , de vez en cuando
-una vez
-una sola vez
-cuántas veces
 otra vez
 muchas veces
 tal vez
@@ -23609,48 +22510,29 @@ volver
 volver
 volver
 vomitar
-tener ganas de vomitar
-voraz
-voz
-vuelta
-andar dando vueltas
 dar vuelta
 está dando vueltas solo
-que hace vueltas
 vuestro
 y
-ya
-ya casi
 ya mero
-yegua
 yerba
 yesca
 yescoso
-yo
-yo a ti
-yo mismo
 yugo
-yunta
 yunta de bueyes
 zacate
-en el zacate
 hay zacate
 zafar
 zambullir
-zancudo
 zanja
 zapeta
 que lleva zapeta
 se pone zapeta
 pieza triangular de la zapeta
-zarzamora
-zopilote
 zopilote
 zoquete
 zorra
 zorrillo
-zorrillo
-zumbar
 zurdo
 el hijo de matusalén , el hijo de enoc , el hijo de jared , el hijo de mahalaleel , el hijo de cainán ,
 hermanos y hermanas , si yo vengo a ustedes hablando en lenguas , ¿ qué beneficio les aportaría si no les traigo una revelación , un conocimiento , o un mensaje profético , o una enseñanza ?

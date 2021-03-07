@@ -355,7 +355,6 @@ manejar troca yo creo
 "me gustaría manejar troca a mi" asi se dice
 si no puedo manejar troka
 dándole
-dándole
 "le voy a dar a ella" diciendo
 "ya le di", asi se dice
 no, dijiste que ya te habían dado
@@ -470,7 +469,6 @@ con la comida esvan con la comida y lo levantan
 entonces era que llovía rápido
 y por eso llovía, pronto llovía
 si es cierto que cuando baila uno pronto llueve'uhummm'
-sí
 así llamaban la lluvia antesnomás así era, así la llamábamos,
 antes amanecíamos bailando y sin tomar
 'they would drink the next day in the morning'
@@ -784,7 +782,6 @@ y cómo le hacían para llamar ... y cuando no llueve...
 cómo le hablaban antes a la lluvia?
 entonces se tira para arriba
 haciendo wirónuwa?
-si
 y entonces si empezaba a llover luego?
 a veces al tercer día?
 también los pescados
@@ -838,7 +835,6 @@ así era, así era antes
 y del maíz? en qué guardaban antes?
 como sea, agujerados antes, porque los de antes no tenpian hachas muy filosas
 unos ponían lodo con piedra (enjarrar) para comer
-sí
 nosotros poníamos en enjarrado para comer allá abajo ... allá en anáuchi hay muchos relices, allá crecí yo
 allá desperté (empecé a acordarme)
 sí, así nomás
@@ -912,11 +908,9 @@ entonces
 y entonces el muchacho Atruro
 y "soróchi" (tía), mis hijos, mi hermano mayor ...
 también "sorochi"?
-sí
 dicen "rihchí"
 así como los hijos de mi hermano mayor, yo soy su "rihchí"?
 también tus hijos también le dicen igual, también te van a decir "rihchí"
-sí
 y el "kuríchi"?
 del kuríchi
 del "kuríchi"?
@@ -1592,7 +1586,6 @@ Por eso dicen que tiene mucho dinero el mestizo
 Y entonces dicen que el tarahumar es muy pobre, por eso no tenemos dinero nosotros
 Por eso le dicen con mucho dinero al mestizo
 Porque se lo tomó muy a gusto el moco
-Gracias
 Gracias
 De todo lo que me acuerdo cuando estaba chiquita
 Levantaba mucho antes cosas para comer cuando sembraban los de antes
@@ -2472,7 +2465,6 @@ Y se emborrachan mucho tomando
 Si esta bueno el tesgüino si esta bien cosido
 Nos emborachamos mucho
 El tesguino, ya deste tanto te voy a decir
-Gracias
 Esto voy a contar de un tecolote
 Y antes dicen que cumplían muchos años todos los que vivían por aquí
 Y ese hombre decían que no se moría
@@ -2513,7 +2505,6 @@ Y ya al ratito ya de desmayó esa muchacha, esa señora
 Ya también se oyó que se fue el tecolote
 Entonces de ahí ya supe como creer yo muchas cosas
 Ya sabíamos ya al otro día se oía que se morían los que vivían en otra parte
-Gracias
 Los niños los mandan asi
 Unos los mandan a cuidar las chivas y otros ayudan a barbechar
 Andan al año andan barbechando otra vez
@@ -2585,7 +2576,6 @@ En todas partes dicen que era así, nomás allí era el pueblo mas grande, asi c
 Este ejido ya nos apartaron
 Midieron, por eso todos viven aparte por aquí en los pueblos
 Así es por allí, así les voy a decir a toda la gente
-Gracias
 Allá donde vivía antes
 Allá vivíamos por arriba de una cueva
 Y un día estábamos chiquitas nosotras

@@ -1079,8 +1079,6 @@ a ) brumoso , aneblinado
 a ) levantarse la niebla , aclararse el ambiente
 desempolvar , quitar el polvo
 a ) estar brumoso , haber neblina
-desempolvar , quitar el polvo
-a ) estar brumoso , haber neblina
 a ) estar brumoso , turbio , empolvado
 a ) neblina , bruma
 a ) crear , producir neblina
@@ -1465,11 +1463,6 @@ porque también tú fuiste maestro mío
 ya vas a volver avivir en la morada de los tarahumares… allá donde hay mucho rarámuri que no conocen la enseñanza de jesucristo
 no sabes enseñar ? pero si aprendiste muy bien…
 ¿ no me enseñas a hablar castellano ?
-no me puse yo ; fueron los rarámuri los que me pusieron de maestro
-esta es la hermana mayor ; la hermana menor ( de ella ) es esta
-la mayor es maría ; dolores es la hermana menor
-yo mismo , tú mismo… )
-tú mismo la tiraste
 coman revuelto con sopa
 revuelvan cpon sopa para que coman
 revuelto sopa con frijoles
@@ -1753,7 +1746,6 @@ ani nomás abajito van a dejar de bailar los matachines
 y ya de ahí cuando ya tiren las faldas
 ahi van a costarse y van a dormir un rato
 y ya se van a venir para acá
-y luego ya van a tomar el tesgüino
 buscar
 voy a buscar el caballo
 ¡ vayan a buscarlo !
@@ -1863,7 +1855,6 @@ que tiene cuernos
 águila
 pasador
 ligeros
-asado
 bailar
 en esta fiesta algunos jóvenes bailarán matachines .
 va a bailar
@@ -2378,7 +2369,6 @@ torcer , dar vueltas
 rasparse
 salir pus
 hacer salir pus
-despellejar
 ya matando esa vaca , inmediatamente vamos a despellejarla
 habitar morar vivir
 ¿ dónde vives ?
@@ -2511,121 +2501,6 @@ varios acostarse
 va a acostarse
 en el camino
 se cayó un pino seco en el camino
-acostarse caerse al suelo
-echarse
-derribarse
-estar esperando
-adentro estaban sentados , esperando
-tambalearse
-cobrar quitar algo multar
-me cobró diez pesos
-agacharse
-inclinarse
-ladear agachar inclinar
-tener poseer
-yo tengo sóla una vaca .
-mi vaca
-mis vacas
-hacer camino
-poco más allá van a hacer un camino grande
-amarrar
-vamos a amarrar manojos de rastrojo
-va a amarrar
-amarrado
-manojo
-yunta
-una yunta
-llevar preso
-que llevar preso
-burro
-estar el camino
-¿ dónde está el camino ?
-¿ donde está el camino hacia samachique ?
-acaba de estar el camino
-si le amarran
-si le amarran
-hace mucho había un camino allí
-despertarse
-muy temprano desperté
-mañana temprano te voy a despertar .
-acaba de despertarse
-va a despertarse
-tener ojos
-ojo
-ciego
-despertar
-hundirse
-nadar debajo del agua
-salir
-acaba de salir
-enfermar
-llevar
-se fue llevando un cuchillo .
-traer
-llegó trayendo un palo .
-salir
-hacer sombra
-tú estás muy enfermo ; te voy a hacer sombra .
-sombra
-ser
-yo era un poco chico
-ya que sea viejo , morirá .
-en otra ocasión tal vez
-siendo chico
-estar bajo a la sombra
-voy a estar allí , a la sombra
-enrollar
-¡ enrolla el papel !
-un rollo largo una pieza entera de manta
-rodarse
-rodar , envolver
-enrollar en una bola
-ya enrollé el mecate
-pantorrilla
-mi pantorrilla
-músculo
-en la pantorilla
-ser esféricos
-uno ser esféricos
-esféricos
-tecolote blanco búho chico
-¿ cuándo ?
-¿ cuándo viniste ?
-¿ cuándo ?
-cadera
-escupir
-el tambor se secó ; sería bueno escupirlo .
-vamos a escupir
-le escupe
-reírse
-cadera
-me duele mucho una cadera
-mi cadera
-en mi cadera
-arrugarse
-hace tiempo compré este sombrero ; ya se arrugó completamente .
-arrugarse
-arrugar
-arrugar
-que arrugar
-poner huevos
-ahora no hay huevos ; las gallinas no ponen .
-va a poner huevos
-huevos de gallina
-caballo
-herradura
-dueño del caballo
-el hocico del caballo
-la cola del caballo
-yegua
-vientre del caballo
-tener liendres
-tiene muchas liendres en la cabeza
-va a tener liendres
-menospreciar despreciar
-ese hombre no me ama ; solamente me desprecia
-monte terreno tierra campo mundo
-¿ no tienes tierra donde puedas sembrar ?
 a la reverencia , aprecio por los hermanos creyentes ; y a este aprecio , amor .
 ellos han dado buen testimonio de tu amor ante la iglesia . por favor , al enviarlos de camino , trátalos de un modo que agrade a dios ,
 es sembrado con tristeza , pero es levantado en gloria . es enterrado en debilidad , pero es levantado en poder .

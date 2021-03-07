@@ -107,7 +107,6 @@ que tiene cuernos
 águila
 pasador
 ligeros
-asado
 bailar
 En esta fiesta algunos jóvenes bailarán matachines.
 va a bailar
@@ -622,7 +621,6 @@ torcer, dar vueltas
 rasparse
 salir pus
 hacer salir pus
-despellejar
 Ya matando esa vaca, inmediatamente vamos a despellejarla
 habitar  morar  vivir
 ¿Dónde vives?
@@ -775,10 +773,8 @@ Poco más allá van a hacer un camino grande
 amarrar
 Vamos a amarrar manojos de rastrojo
 va a amarrar
-amarrado
 manojo
 yunta
-una yunta
 llevar preso
 que llevar preso
 burro
@@ -971,7 +967,6 @@ completamente
 de todas clases
 Tengo de todas clases
 mejorar
-sombra
 Debajo del manzano hay sombra
 parecerse
 Va a parecerse a los mestizos
@@ -1397,7 +1392,6 @@ enfermarse
 Se enfermará más; le saldrán más granos.
 sus granos
 granujoso  lleno de llagas
-tener granos o llagas
 sonar mal
 resonar
 tocar a la puerta
@@ -1629,7 +1623,6 @@ hacer negro
 sucio, obscuro
 a obscuras  en la obscuridad
 hocico
-el hocico del caballo
 el pico del pájaro
 máscara
 moverse el hocico
@@ -1955,7 +1948,6 @@ Esa niña es mi hermana menor
 mi hermana menor
 sanguijuela
 muy  mucho
-muchísimo
 las viejas
 uno las viejas
 otate  aguijada
@@ -2023,7 +2015,6 @@ manzanilla
 piojoso
 cuero  piel
 piojo
-cuero de vaca
 liendres
 suelo
 Vino a pie
@@ -2121,7 +2112,6 @@ extenso
 Estaba lloviendo por mucho tiempo.
 alargar
 muy extenso
-estar parado
 ¿Dónde está parada la escoba?
 va a estar parado
 parado  nacido
@@ -2172,7 +2162,6 @@ donde sale un chorro
 ordeñar
 hacer estiércol
 va a ordeñar
-estiércol de chiva
 tener diarrea
 fertilizar la tierra con estiércol
 fertilizar la tierra con estiércol
@@ -2188,7 +2177,6 @@ cada uno  unos a otros
 Cada uno escogió una cosa.
 uno por otro
 chile
-chile piquín
 bueyes
 uno bueyes
 hacer aire  soplar el viento
@@ -2369,7 +2357,6 @@ pararse
 ¡Estén quietos!
 uno algunos  unos
 este  esta  esto
-le dice esto
 dice esto
 aquí
 Aquí estoy a gusto
@@ -2790,7 +2777,6 @@ hay humo  hacer humo
 va a hay humo  hacer humo
 hacer humo
 moros
-incienso
 desmenuzar
 desmenuzado así
 poner almohada
@@ -2852,7 +2838,6 @@ añadido
 tú  usted
 ¿Y tú?
 tú
-tú mismo
 su
 de usted
 sus
@@ -3012,7 +2997,6 @@ entre cuatro
 cuarto, cuarta
 cuarenta
 aquí
-aquí
 lumbre
 en la lumbre
 estar luchando
@@ -3044,7 +3028,6 @@ Ese pino ya está seco; lo tumbaremos.
 va a tumbar
 cosa  animal
 Hay muchas cosas
-cosas de todas clases
 cosas notables
 sonar mucho
 tapar
@@ -3286,7 +3269,6 @@ mío
 tuyo
 de él
 del perro
-hacerse
 El mango de hacha se hace del fresno
 estar haciéndose rico
 Ese hombre está haciéndose muy rico, porque su ganado está aumentando mucho
@@ -3308,7 +3290,6 @@ Dios da el día bueno
 ¿Quién se lo entregó?
 Ese hombre lo entregó
 yo
-yo mismo
 mi  mía  mío
 hacer caso
 Ese hombre no me hizo caso
@@ -3387,7 +3368,6 @@ mi hijo
 confiar
 admirar
 Yo admiro las flores
-admirándolo
 moverse
 va a moverse
 moverse
@@ -4247,7 +4227,6 @@ allí cuesta abajo
 hacer cimiento para una casa
 suelo
 ahondar
-debajo
 echar a cuestas
 abajo  más abajo
 por abajo
@@ -4327,7 +4306,6 @@ obscurecerse
 rata montés
 lagartija negra
 pez  pescado
-aletas de pez
 escama de pez
 entretejer  hacer mecates
 tipo de quelite
@@ -4655,7 +4633,6 @@ iba
 caminar
 varios caminar
 va a caminar
-caminar
 querían irse
 pasar
 Iba pasando.
@@ -4731,7 +4708,6 @@ gobernador de ellos
 tipo de hongo venenoso
 arrugarse
 arrugado  aflojado
-frente arrugada
 cazar  pescar
 Fuimos a cazar venados
 cazador
@@ -4878,7 +4854,6 @@ mazorca
 mazorca
 ombligo
 mi ombligo
-en el ombligo
 pájaro carpintero
 aflojarse
 rebajar la cuenta
@@ -4922,7 +4897,6 @@ calentar
 lugar estrecho
 zapeta taparrabo
 tabla
-más chiquito
 menor
 hacer menor
 hacer más chico
@@ -4935,7 +4909,6 @@ Me vio
 nosotros
 nuestro
 mudo
-pedir
 le pide
 fiar
 prestar
@@ -4959,8 +4932,6 @@ semilla de trigo
 apuesta
 no
 No hay. No está
-no
-no sirve
 no vale mucho
 falta
 por el arroyo abajito
@@ -5046,9 +5017,7 @@ gallina  pollo
 pluma de gallina
 blanquillo
 cresta del gallo
-gallina
 hueso de gallina
-gallo
 molleja de pollo
 blancos
 uno blancos
@@ -5165,7 +5134,6 @@ Escribe con la mano izquierda
 dar  convidar
 dar  convidar
 dándole
-de repente
 vendrá de repente
 inmediatamente  pronto
 quitar
@@ -5230,92 +5198,58 @@ llevar a otro al caer
 Esa piedra que rodó se llevó otra piedra grande también
 a pesar de
 abajo
-abajo
-de abajo
 lo de abajo
 más abajo
-por abajo
 por el arroyo abajo
-por el lado de abajo
-por el río abajo
-abandonar
-abanicar
-abanico
-abanico
-abeja
 abejorro
 abertura
-abertura
 abierto
-estar abierto
 abofetear
-abollarse
 abono
-aborrecer
-abotonar
-abrir
 absorber
 abuela
 abuela
 abuelo
 abuelo
 acá
-más acá en tiempo
 para acá
 por acá
 acabar
 acabará
-habrán acabado
-acallar
 acarrear
 acarrear
 acaso
 acaso
 aceptar
 acercar
-aclarar
 aconsejar
 dar consejo
 acontecer
-después de lo acontecido
-raramente acontecerá
 acordarse
 acordarse
-ponerse de acuerdo
 acornear
 acostarse
 estar acostado
-se acostarán
 ponlo acostado
 acostumbrar
 acusar
 le acusará
-cuando lo acusan
 adelantar
 adelante
 más adelante
 por adelante
 va adelante
-adentro
 por adentro
-puesto adentro
 adiós
 admirar
-admirándolo
 adónde
 adormecer
-adornar
 afilar
 afinar
 afirmar
 aflojado
-aflojar
 afuera
-los echa afuera
-por afuera
 agachar
-agarrar
-agarrar
 agarrar
 agarrado
 lo quería agarrar
@@ -5323,106 +5257,65 @@ agarrotar
 agotar
 agotar
 agradar
-agradecer
-agrandar
 agrio
 está agrio
-agua
-hay agua
 tira agua
-toma agua
 aguaje
-aguantar
 aguantar
 agudo
 aguijada
-águila
 aguililla
-aguja
 agujerear
 agujero
 tiene agujero
 agusanarse
-agusanarse
 ahí
-ahogar
-estar ahogándose
-ahondar
-ahora
-desde ahora
 ahorcar
 ahumar
 hace aire
 persona ajena
-ala
-alas de pájaro
-alabar
 alabeado
-alacrán
-alamillo
-alargar
 alcanzar
 no le alcanza
 alegrar
 está alegre
-alejar
-aleta
-aletas de pez
 aletear
 algo
 por algo
-alguien
 algunos
 alimento
 alisar
 lo está alisando
 aliviar
 aliviado del pie
-alma
-almas de los antepasados
 almohada
-poner almohada
-almud
-alrededor
 ir alrededor
 alto
 muy alto
 estar muy alto
 alumbrar
-alzado
 alzar
 allá
 allá
 más allá
-para allá
-poco más allá
 por allá
 allí
 allí
 amable
 amamantar
-amanecer
 al amanecer
-amansar
 amar
-amado
-amargo
 amargo
 amargo
 amargo
 amarillo
 amarrado
-amarrado
 amarrar
 amarrar
 amarrar
 amarrar
 amarrar
 amarrar
-si le amarran
-amasar
-ambos
-amigo
 mis amigos
 amo
 amontonar
@@ -5440,35 +5333,22 @@ andar
 andar
 andar
 andar
-andar
-andar
 angosto
 muy angosto
-que tiene ángulo
 siente angustia
 anhelar
 animal
 animar
 ánimo
-anoche
 anochecer
 ante
-anteanoche
 anteayer, antier
-de antemano
 antepasado
 antepasado
-almas de los antepasados
-anterior
-antes
 antes
 antes de
-de antes
 mucho antes
 de antigüedad
-anzuelo
-añadido
-año
 año antepasado
 año pasado
 apenas tiene un año
@@ -5479,67 +5359,42 @@ apagar
 aparece delante de
 apartar
 apartado
-el que los aparta
-aparte
 aparte
 apedrear
-apedreado
 le ponen apellido
-apenas tiene un año
-apenas salió
 apersogar
 apestar
-que tiene apetito
 aplanar
-aplastado
 aplastar
 lo aplastó
 se aplastó
-aplaudir
 apoyar
 aprender
 aprenderá
-que puede aprender
-apresurar
 apretar
 aprisa
 anda aprisa
-apuesta
 apuntar
 apunta bien jugando cuatro
 apúntalo
-apuñalar
 apurar
 apurar
-que se apura mucho
 aquél, aquélla
 aquel, aquella
 aquí
-desde aquí
 por aquí
-arado
-araña
 araña
 arar
 arar
-arco
-arco
 arco
 tiene arco
 arder
-está ardiendo
-ardiente
 ardilla
 ardilla
 ardilla
 ardilla
-arena
-arenal
-arenoso
-arete
 tiene arete
 arma
-aro
 arrancar
 arráncalos
 arrastrar
@@ -5547,32 +5402,21 @@ arrear
 arrebatar
 arreglar
 arreglado
-arrepentirse
-arriba
 arriba
 arriba
 muy arriba
 arriba por el arroyo
 para arriba
-para arriba
-para arriba
 por arriba
 por allí más arriba en la falda
 arrimar
 arrodillar
-arrojar
-arroyo
-arroyo
-arriba por el arroyo
 arribita por el arroyo
 donde el arroyo ha hecho un hueco en la laja
 hacer como arroyo
 hay arroyo
-para arriba en el arroyo
 arrugado
-frente arrugada
 arrugar
-asado
 asar
 da asco
 asentar
@@ -5580,37 +5424,25 @@ asesino
 asesinar
 así
 así
-así es
-así
 asolear
-astilla
 astillar
 asustar
 atajar
-atajar
-dar ataques epilépticos
 atardecer
-atascadero
 atascar
 atiesar
 atizar
 atizar
 atole
 hace atole
-atónito
 atorar
-atormentar
 atrancar
 atrás
 atrás
-atrás
 hacía atrás
-por atrás
 atrasar
 atravesar
-atravesar
 aullar
-aumentar
 aún
 autoridad
 es autoridad
@@ -5620,85 +5452,50 @@ avanzar
 avergonzar
 avisar
 avisado
-avisándole
 fue avisado
 avispa
 ay
-ayer
-ayudante
 ayudar
-azadón
 azotar
-azotado
-querían azotarle
 azul
 es azul
-azulejo
-azuzar
 babear
-bailar
-baile indígena
 bajar
 bajo
 banca
-poner banca
 banda
 a la otra banda
-a la otra banda
-banquillo
-bañar
 está barato
 barba
-barbacoa
 barbechar
-barranca
-en la barranca
-barrer
 barro
-barroso
 estar barroso
 basquear
-bastante
 bastón
 anda con bastón
 usa bastón
 basura
-en la basura
 batir
 batir
-bautizar
 el que bautiza
 bazo
-enfermo del bazo
 beber
 hacerle beber
 bello
-bellota
 besar
-bestia ajena
-bien
 muy bien
 no lo hace bien
 nota bien
 bigote
-bilis
 bisabuelo
 bisnieto
 blanco
 medio blanco
-blando
 blanquear
-blanquillo
-boca
-boca abajo
-boca arriba
-en la boca
-bola
 hacer bola
 se hace una bola
 bolita
 bolsa
-bolsita de gusanos del madroño
 bonito
 está bonito
 lo hace bonito
@@ -5714,27 +5511,21 @@ borrego
 borreguito
 bostezar
 botella
-bracear
-bramar
 bramar
 brasa
 se hacen brasas
 bravo
 está bravo
-brazo
 tiene brazo
-brillante
 brillar
 brillar
 brincar
 hace bromas con las cuñadas
 brotar
 brotar
-brotar
 brujo
 buche
 en el buche
-bueno
 bueno para tomar
 está bueno
 lo hace muy bueno
@@ -5743,22 +5534,17 @@ sería bueno
 buey
 búho
 burlar
-burro
 buscar
 buscar
-fue a buscarlo
 caballo
 cabecilla
 hacer cabecillas
 cabello
 cabelludo
 que no cabe
-cabeza
 cabeza de vaca
-en la cabeza
 poner la cabeza
 cabrito
-cacarear
 cacto
 cada uno
 cadáver
@@ -5776,53 +5562,35 @@ caer
 caer
 caer
 lleva a otro al caer
-café
-heces del café
 cajete
-en el cajete
 hace cajetes
 calabacilla
 calabacitas
 calabaza
-calabaza
-flor de calabaza
-semilla de calabaza
 tiene calambre
 calcañar
 caldo
 hace caldo
-calentar
 tiene calentura
 calmar
 calmar
 cuando hace calor
-en el tiempo de calor
 hace calor
 tiene calor
 calzón
 cama
 hacer una cama o una banca
 camaleón
-cambiado
-cambiar
-cambio
 en cambio
 caminar
 caminar
 caminar
 caminar dormido
-camino
-en el camino
-hacer camino
 hay camino
 había camino
 camisa
 poner una camisa a otro
 ponerse camisa
-quitar la camisa
-camote
-campana
-toca la campana
 campo
 cana
 tiene canas
@@ -5833,17 +5601,10 @@ cansado
 cansar
 cantar
 cuando cantan
-esa cantidad
 qué cantidad
-caña de maíz
 come caña
-capar
-capitán
-capulín
 capulín
 cara
-en su cara
-caracol
 carbón
 cárcel
 cardar
@@ -5851,29 +5612,22 @@ carecer
 carga
 cargado
 cargar
-cargar
 tiene cargo
 tiene cariño
-carne
 caro
 carona
 carpintero
 carpintero
 carpintero
 carpintero
-carpintero
-carrete
-carrizo
 carta
 casa
-casa de la comunidad
 en la casa
 entre las casas
 hace una casa
 tiene casa
 casar
 está casada
-cascabel
 cascabel
 cascabel del pascolero
 que tiene cascabel
@@ -5890,32 +5644,20 @@ que no hace caso
 va a hacer caso
 castellano
 castigar
-castrar
 tiene catarro
-catorce
-cazador
 cazar
 cazuela
-cecina
-ceja
 tiene celos
-celoso
 cellisca
 ceniza
 ceñir
 cepa
 cepillar
-cerca
-muy cerca
 lo pone cerca
 cercar
 cercar
 cerco
-cerco
-junto al cerco
 tiene cerebro
-cerrado
-donde está cerrado
 cerrar
 lo que cierra
 cerro
@@ -5923,148 +5665,95 @@ cerro
 cerro
 en el cerro donde es pura laja
 entre los cerros
-cervato
 cesta
 tiene un cetro de autoridad
-ciego
-ciego
 en el cielo
-ciempiés
 ciento
-ciénaga
-ciertamente
 cierto
 no es cierto
-cigarro
-cilíndrico
 está cilíndrico
 hace cilíndrico
 cima
 hace cimiento para casa
 cinco
-cinco decalitros
-en cinco partes
-cincuenta
-cincha
-cinchar
-cintura
-en la cintura
 cinturón
-círculos
-ciudad
 claramente
 claro
-clase
 de todas clases
 esa clase
-esta clase
 qué clase
 tengo de todas clases
-clavado
 clavar
-clavar
-clueca
 coatí
 cobarde
 cobija
 cobija
 se llevó una cobija
-tapándose con la cobija
 tiene cobija
-cobrador
 cobrar
 cocer
 cocer
-cocinar
 cócono
 codiciar
 codicioso
 codo
-codorniz
 coger
 cogiendo
 cojo
-cojo de una pierna
-cola
 cola de caballo
 cola de vaca
-colar
 colear
-colgar
 está colgado
 colibrí
 colina
 color
 qué color
-colorado
 se pone colorado
 collar
-comadreja
-comal
 comenzar
 comenzaron a decir
 comer
-a comer
-comiéndolo así
 el que come
-en el tiempo de comer
 le da de comer
 tiene ganas de comer
 que le da de comer a otro
 comerciante
 tiene comezón
-cómico
-comida
 comida
 tiene comida
 le da comida
 le da comida regalada
-comilón
 cómo
 como
-comoquiera
 hace comoquiera
 hace mal comoquiera
 compadecer
-compañero
 comparecer
 tiene compasión
 complacer
 complejo
 completamente
 completar
-completo
 están completas
 componer
 comprador
-comprar
 comprender
 comprometer
 con
 con
 con
-cóncavo
 es cóncavo
 hace cóncavo
-hecho cóncavo
 conceder
 condenar
-conducir
 le conducirá
-conectar
-conejo
 confesar
-confiar
 confundir
-congelar
-conocer
 conocer
 fué conocido
-hubieran conocido
 que conozcan
 conocido
 conque
-conseguir
 dar consejo
 consentir
 consigo
@@ -6072,194 +5761,121 @@ consolar
 construir
 contado
 contagiar
-contar
 contener
-contener
-que contiene un líquido
 contentar
 está contento
 contestar
-contigo
 está en contra
 contradecir
-al contrario
 convencer
 no me conviene
 convertir
 no quiere convidarle
-corazón
-corazón del pino
-en el corazón
 tiene corazón
-corcové
 cordillera
 arriba en la cordillera
-cornear
 corona
 corona
 se pone la corona
-correa
 correcamino
 correr
 correr
 correr
 correr
 va corriendo 'mahuá corretear
-cortar
-al tiempo de cortarlo
 corteza
-corto
 cosa
 cosa ajena
-cosas notables
 cosechar
-coser
 lo cose para uno
 que cose
 hace cosquillas a otro
 costar
 cuesta mucho
-costilla
-en las costillas
 costoso
 tenía costumbre de hacerlo
 cotense
-coyote
-piel de coyote
-coyuntura
 crecer
-crecer
-creer
 cree que sí
 cresta de gallo
-creyente
 criar
 criatura
 criticar
-crucifijo
 cruel
 crujir
-cruz
-en la cruz
 cruzar
-cuadrado
 cuajar
 cuajo
 cuál
 cualquier color o clase
 cualquiera
 cuándo
-cuando
 cuánto
 cuántas veces
 cuanto
-cuarenta
 cuarta
 cuatro
-en cuatro partes
-entre cuatro
 cubrir
 cuchichear
-cuchillo
 cuello
-en el cuello
 cuerda
-cuerno
-que tiene cuernos
 tiene cuernos
 cuero
 cuero
-cuero de chiva
-cuero de vaca
 en todo el cuerpo
 tiene cuerpo
-cuervo
 cuesta
 cuesta
 en cuesta abajo
 en cuesta arriba
-por cuesta abajo
-cueva
-en la cueva
 tiene cuidado
 cuidar
 cuidar
 cuidar
 culebra
-tiene la culpa
-culpable
-cultivar
 cumbre
 cumplir
 cuñado
 cuñado
-cura
 curandero
 curandero
-curandero
-curar
 curar
 curar
 chamaco
 chamuscar
-chanate
 chancear
-chapalear
 chaparro
 chapulín
-charco
 charlar
 chico
-más chiquito
 lo hace más chico
 chicotear
 chiflar
 chile
-chile
-chile
-chilicote
-chiltipiquín
 chillar
 en la chimenea
 chirriar
-echar chispas
 lo hace echar chispas
 está echando chispas
 chistoso
-chiva
 chivato
 chocar
 cholubo
-donde sale un chorro
 salir un chorro
-chuchupate
 chueco
 chulo
 chupamirto
 chupar
 dar
-dando
 dar a luz
-dar vuelta
 mecate
 de
 de
-de
-debajo
-deber
-decalitro
 decir
 así dice
-comenzaron a decir
-dice esto
 fue dicho
-le dice esto
-le fue dicho
 le había dicho que le iba a dar
 qué quiere decir
-en el tiempo en que se dice
-dedo
-dejar
 delante
 delgado
 demás
@@ -6268,7 +5884,6 @@ dentro
 derecho
 derramar
 derretir
-derribar
 derrumbar
 desabrido
 desamarrar
@@ -6280,83 +5895,49 @@ desapareciéndose
 se despareció
 desatar
 se desató
-desbaratar
 descabezar
-descansar
-hacer descansar
-tiempo de descansar
 descender
 descomponer
 lugar en que se descompone
 quiere descomponer
-descornar
 descoyuntar
 descubrir
 desde
-desde abajo
-desde ahora
-desde aquí
-desde que
-desde entonces
 desear
 desean sentarse
 desenredar
-desgajar
 desgastar
 desgranar
 desgranar
-no desgranado
 desherbar
 desherbar
 deshojar
-deslumbrar
 desmayar
 desmenuzado
-desmenuzar
-desmoronar
 desnudar
-desnudo
 desobedecer
 desobediente
 desparramar
 despedazar
-despedir
 despeinado
-despellejar
-desperdiciar
-despertar
 despintar
-desplumar
 despreciar
 después
-después de lo acontecido
-mucho después
 poco después
-despuntar
-destapar
 destruir
 detener
 detrás
-día
 algún día
 algunos días
 al siguiente día
-día de fiesta
-el día anterior
 el otro día
-en el día
 hace buen día
 hace el día
 hace un día
-hoy día
 qué día
 todos los días
-un día
 tiene diarrea
-diente
-en el diente
 tiene dientes
-diez
 diferente
 difícil
 está difícil
@@ -6365,8 +5946,6 @@ dilatar
 diluir
 dinero
 tiene dinero
-Dios
-Dios Padre
 discípulo
 disculpar
 discutir
@@ -6377,69 +5956,40 @@ distinguir
 distinto
 distribuir
 divisar
-doblar
-doce
 doctor, médico
-doler
-tiene dolor
 siente el cuerpo dolorido
 dominar
-domingo
 donar
 dónde
 dondequiera
-en dondequiera
 dormir
 le hace dormir
 quiere dormir
-dos
-de dos en dos
-dos reales
-en dos partes
 entre dos
-entre los dos
-dueño del caballo
-dulce
-está dulce o sabroso
 durar
-duro
 duro
 está duro
 lo hace duro
 echar
 echa a correr
-echado
 echó fuera del corral
-ejote
 salen ejotes
 él, ella
-elástico
 elegir
-elevar
 elote
-elote tostado
-ellos, ellas
-emblanquecer
 emborrachar
 emborrachó
-que emborracha
 embotar
 empachado
-empalmado
 emparejar
 empezar
 empezar
-emplear
 empollar
 empollar
 emprender
-empujar
-empujar
 enagua
 se ponen enaguas
 se quita enaguas
-encanecer
-encarcelar
 encarrujado
 encarrujar
 encender
@@ -6450,50 +6000,32 @@ uno encima del otro
 poner uno encima del otro
 encino
 encino
-encino
 bellotas que crecen en los encinos
-entre los encinos
-hay encinos
-hojas de encino
 encinta
 enclocar
 encoger
-encomendar
-encontrar
 está encorvado
 enchilar
-enchuecar
-enderezar
-endurecer
 enemigo
 se hacen enemigos
 enfermar
 enfermar
-enfermar
 enfermarse
 enfermedad venérea
-enfermo
 enflaquecer
 enfrente
 enfrente de
-enfriar
 engendrar
-engordar
 enhebrar
 enjambre
 enlazar
 enlodar
 enloquecer
 ennegrecer
-está enojado
-enojar
 enorme
-enraizar
 enramada
 hace enramada
-enredar
 enrojecer
-enrollado
 enrollar
 enrollar
 enseñar
@@ -6509,42 +6041,28 @@ está entero
 enterrar
 entonar
 entonces
-desde entonces
 entrar
 entren Uds
 entregar
 entretanto
 entretejer
-entristecer
 entumecer
-entumido
 enturbiar
 envejecer
-envenenar
 enviar
 tiene envidia
 envidioso
-enviudar
-enviudar
 envolver
 envolver
-epiléptico
 equivocar
 me equivoqué
 eructar
 escama
 escapar
-escarbar
 escardar
-escardar
-escarpado
 escarpadura
-escoba
 escoger
 esconder
-anda escondido
-escribir
-escuchar
 escupir
 ése
 ese
@@ -6552,33 +6070,20 @@ esférico
 es esférico
 hace esférico
 éso, ésos
-esófago
-espalda
-en la espalda
 espantajo, espantapájaros m
 espantar
 espanto
-espanto
-espantoso
 español
 esparcir
-espejo
-esperar
 está esperando
 espérense
 espesar
-espeso
 espiga
-espiga
-en la espiga
-espigar
 espina
 espina dorsal
 tiene espinas la oruga
 espinar
 espinazo
-espinilla
-en mi espinilla
 espíritu
 da espíritu
 espíritus de los antepasados
@@ -6604,26 +6109,16 @@ estará
 estaremos sentado
 este
 éste
-estéril
 estiércol
-estiércol de chiva
-estiércol de vaca
-estirar
 esto
 estómago
-en mi estómago
 tiene estómago
 estorbar
 hace estorbo
-que anda estorbando
-estornudar
 estrangular
 estrangular
 estrecho
-lugar estrecho
 muy estrecho
-estrella
-estuche
 estuche
 estudiar
 examinar
@@ -6631,53 +6126,37 @@ excremento
 explicar
 exprimir
 extender
-extenso
-muy extenso
 extinguir
 extraer
 extraño
-extraordinario
 extraviar
 fácil
-faisán
 faja
 falsear el tobillo
-falta
-falta de algo
 hace falta
 fallecer
-tiene fama
 fantasma
 dar fe
 feo
 está feo el lugar
 feroz
 fertilizar
-fiar
 fibra
 fiebre
-fierro
-fierro
-fiesta
 hacen fiesta
-día de fiesta
 tiene filo
 al fin
 finalmente
 fino
 firme
 flaco
-flauta
 toca la flauta
 flecha
 tirar flecha o balazo
-flexible
 tiene flojera
 flor
 flor
-flor
 florecer
-flotar
 formar
 fortalecer
 fragante
@@ -6686,12 +6165,8 @@ frente arrugada
 frecuentemente
 fresco
 fresco
-fresno
-frijol
 frijol
 frío
-hace frío
-tengo frío
 frotar
 fuera de sí
 fuerte
@@ -6700,29 +6175,18 @@ fuerte
 está fuerte
 fuerte
 lo hace fuerte
-con fuerza
 tiene fuerza
-fumador
-fumar
 futuro
-gallina
-gallo
 ganar
-si gana
 garganta
-garrapata
-garza
 gastado
 gastar
 gastar
 gatear
 gato
 gato de algalia
-gato montés
 gavilán
 gavilán
-gavilán
-gemir
 gemir
 gemir
 gente
@@ -6730,16 +6194,12 @@ toda la gente
 germinar
 gigante
 en la gloria
-gobernador
-ante el gobernador
-golondrina
 golpear
 gordo
 está gordo
 gorgojo
 gorgojo
 gorgojo
-gotear
 gozar
 gracias
 dar gracias
@@ -6748,20 +6208,16 @@ cae grajea
 grande
 más grande
 tan grande
-granizo
 grano
 tiene granos
 salir granos
 granujoso
 gratis
-grillo
 gris
 gritar
 gritar
 cuando gritan
-grueso
 está grueso
-que tiene grumos el atole
 gruñir
 gruñir
 guacamayo
@@ -6771,68 +6227,47 @@ guardar
 guiar
 gusano
 gusano
-gustar
-gustar
-con mucho gusto
-me dio gusto
 tiene gusto
 habitación
-habitación de ellos
 habitar
 habla
-hablador
 es muy hablador
 hablar
 hablar
 hablar
 hablar
 hablar
-durante el tiempo de hablar
-habla con palabras bonitas y suaves
-hacer
 hacer
 hacer
 así hace
 hace muchísimo
 haciéndose rico
 lo hace así
-los que hacen
 no le hace
 que hace mal comoquiera
-recién hecho
 tiene mucho que hacer
 hacia allá
-hacha
-mango de hacha
 hallar
 tiene hambre
 tiene demasiada hambre o sed
 hartar
-hasta
-hasta luego
 hasta que
-hay
 no hay de qué
 hechicero
 hechicero
 hechizar
 helar
-helecho
-hembra
 herencia
 herir
 hermana mayor
-hermana menor
 tiene hermana menor
 hermano
 hermanos y primos hermanos
 tiene hermanos
 son hermanos
-hermano mayor
 tiene hermano mayor
 hermano menor
 hermoso
-herradura
 herrar
 hervir
 hierve mucho
@@ -6840,17 +6275,11 @@ hierba
 hierba
 crecen muchas hierbas
 entre las hierbas
-hierro
 hígado
 tiene hígado
 higo
-higuera
-en la higuera
-hija
-hija
 que tenía hijas el hombre
 tiene hija el padre
-hijo
 hijo
 tiene hijo
 que tiene hijos
@@ -6865,98 +6294,57 @@ hinchar
 hinchar
 hinchar
 hinchar
-tiene hipo
 hocico
-hocico
-hogar del hombre
-hoja
 hoja
 hoja
 tiene hojas
-que tiene muchas hojas
 se caen las hojas
 hojarasca
 hola
-hollín
 se pone negro de hollín
-hombre
 hombro
-en el hombro
 llevar en hombros
-homicida
-honda
-hondo
-donde está hondo
 está hondo
-hongo
 hongo
 a qué hora
 horcón
 hormiga
 se llena de hormigas
 hoy
-hoy día
-hoy temprano
-hoyo
 escarbar hoyo
-en el hoyo
-hacer hoyo
 hacer un hoyito redondo
-hecho hoyo
-huarache
 se pone huaraches
 se quita huaraches
 tiene huaraches
 huari grande
-hueco
-hecho hueco
 hacer hueco
 hueja
 hueja
-hacer huejas
 huellas
-seguir las huellas
-huérfano
 hueso
 hueso
-hueso
-hueso de gallina
-parte gruesa del hueso que fue roto
 tiene huesos
 huevo
-poner huevos
-huevos de gallina
 huir
 humear
 humedecer
 húmedo
 está húmedo
-humo
 estaba haciendo humo
 hay humo
 hundir
-idioma
 iglesia
-en la iglesia
-ignorante
 igual
-es igual
 son iguales
-igualar
 iluminar
 importar
-no importa
 es incapaz
-incienso
-donde se quema incienso
-inclinado
 inclinar
 incrédulo
 indígena
 infante
 infectar
 inflado
-inflar
 informar
 inmediatamente
 inmenso
@@ -6964,133 +6352,90 @@ inocente
 instruir
 insultar
 interpretar
-intérprete
 interrogar
 intestino
-inundar
-invierno
 comienza el invierno
 invitar
 inyectar
 ir
 no quiere dejarle ir
 quiere ir
-va a pie
 vamos
 vaya
 yendo
-ir cuesta abajo
-querían irse
 izquierdo
 jactancioso
-jalar
 jamás
 jarro
 jefe
 hacen jefe
-jefe supremo
-jorobado
 joven
-jugador
 jugar
 juega con alguna cosa
 juega tirando los palos
 jugaban
 juegan cuatro, juegan teja
 jugo
-jugo de fruta
 juntar
 los que se van juntando
 lugar donde se juntan
 juntamos
 junto
 están juntos
-poner juntos
 jurar
 hace justicia
-justo
-labio
 tiene labios
-labrado
 labrar
-ladear
 a un lado del camino
 al otro lado
 de un lado
 el otro lado del cerro
 lado derecho
-por el otro lado
 por este lado
-por los dos lados
 se echa de un lado al otro
-ladrar
-ladrón
 lagartija
 lagartija
 lagarto
-lágrima
 salen lágrimas
-laja
 en la laja
 hay laja
 que tiene laja
 lama
-hay lama
-lamer
-lana
-carda la lana
 hilo de lana
-hacer hilo de lana
-lana de borrego
 tiene lana
-una bola de lana
 lanudo
-lanza
 largo
 tiene lástima
 lavar
 lavar
 lavar
 lavar
-lavar
-lavar
-lavar
 lazar
 dar leche
-leer
-sabe leer
-legaña
-tener legañas
 lejos
 de lejos
 más lejos
-muy lejos
 qué tan lejos está interr
-lengua
 leña
 trae leña
 león
 levantar
 levantar la caja
-levantar una acta
 levántese
 levantó
 ley
 liacho
 hacer liacho
 licencia
-liebre
 liendre
 tiene liendres
 lienzo
-ligamento
 ligamento
 ligamento
 lugar de los ligamentos
 ligero
 es muy ligero
 lijar
-limpiar
 limpiar
 limpiar
 limpio
@@ -7100,59 +6445,41 @@ hace un lío
 lirio
 se hace liso
 listo
-listón
 lobo
 loco
 está loco
 se vuelve loco
 lodo
 hace lodo
-lograr
-loma
 lombriz
 lomo
 lonche
 hace lonche
 lucero
-luciérnaga
-luchar
 luchar
 desde luego
-hasta luego
 lugar
-en lugar feo
-este lugar
 lugar donde hay hierba “basigó”
 lugar donde le alcanza
-lugar donde ponen algo
-lugar donde vive gente
-lugar cerca
-lumbre
 encender lumbre
 en la lumbre
 hace lumbre
 prende lumbre
 luna
 hay luna
-hay luz
 llaga
 lleno de llagas
-llamar
 está llamándole por nombre en su presencia
 llano
-llano
 hay llano
-llave
 llegar
 llegar
-cuando llega el tiempo
 donde llega
 llegamos
 llegándose
 llegaron
 llegó de repente
 llenar
-lleno
 llevar
 llevar
 llevar
@@ -7162,75 +6489,48 @@ llevar
 llevar
 llevar
 llevar
-llevar
-llevar
-llevar preso
 lleva por el agua
 lleva de compañero en un viaje
-llorar
-llorón
 es llorón
-llover
-todavía llueve
-lloviznar
-lluvia
 llega el tiempo de lluvias
 tiempo de lluvias
 macizo
-macho
 machucar
 madera
-madera fofa seca
-madera fofa mojada
 madrastra
 madre
 madrina
-madroño
-madrugada
 hoy temprano en la madrugada
 madurar
 maduro
 maestro
 flor de maguey
-quiote de maguey
 maíz
 maíz
 maíz
-maíz
-entre las matas de maíz
-hay matas de maíz
-matas de maíz
 maíz nacido para hacer tesgüino
 mal
 mal de salud
 tiene mal olor
-malacate
 maldad
 maldecir
-malgastar
 malhechor
-maltratar
 malvado
 mamá
 la mamá de él
-que tiene mamá
-mamador
 mamar
 le da de mamar
 manantial
-mana agua
 mandamiento
 mandar
 mandar
 el que manda a otro
 manda un recado
-mandado
 mandó
 mandó llevar alguna cosa
 manear
 manejar
 manejar
-de alguna manera
 de esa manera
 de esta manera
 de la misma manera
@@ -7238,37 +6538,22 @@ de ninguna manera
 de otra manera
 de qué manera
 mango
-poner mango al hacha
 mano
-a mano
-en la mano
 mano derecha
 mano izquierda
-manojo
 manso
 manta
-pieza de manta
 manteca
-que tiene mucha manteca
 manzanilla
-en la manzanilla
-mañana
-hasta mañana
-mañana temprano
 por la mañana
 pasado mañana
-mapache
-mar
-orilla del mar
 no se maravilla
 marcar
-marchante
 marchitar
 marear
 marear
 marido
 tiene marido
-mariposa
 marrano
 marro
 martillar
@@ -7276,9 +6561,6 @@ más
 más allá
 más allá en tiempo
 más todavía
-masa
-máscara
-masticar
 mata
 mata
 mata
@@ -7290,25 +6572,18 @@ mata
 matado
 matar
 matar
-fue matado
 quiere matarlo
 maullar
 mazo
 mazorca
 me
-mecapal
-mecate
 hace mecate
-medianoche
 medicina
 médico
 medida
 medida de una cuarta
-medio
-mediodía
 medir
 médula
-mejilla
 en la mejilla
 tiene mejillas
 mejorar
@@ -7316,41 +6591,27 @@ mellar
 tiene buena memoria
 menear
 menear
-menear
-es menester
-menor
-menor
 lo hace menor
 menospreciar
-mentar
 mentir
 mes
 tiene mes
-mesa
 en la meseta alta
-mestizo
 metamorfosear
-metate
-mano de metate
 meter
 meter
 meter
-mezcal
 mezclar
 mezclar
-mezclado con
 mézclalo
 mí
 a mí
-por mí
 mi
 miedoso
 tiene miedo
 miel de abeja
 miel de abeja
 mientras
-miércoles
-milpa
 en la milpa
 mío, mía
 mirar
@@ -7359,10 +6620,7 @@ mira
 mirando
 miserable
 mismo
-mitad
-moco
 tiene moco
-mocoso
 mocho
 de ese modo
 de otro modo
@@ -7370,27 +6628,16 @@ de qué modo
 de todos modos
 moho
 mojado
-en algún lugar mojado
 mojar
-moler
-moler
 molestar
 molleja
-molleja de pollo
 al momento
 mondar
 moneda
-montar
-montando
 monte
-en el monte
-montón
-montón
 morado
 morador
 morar
-morder
-morder
 morder
 que te mordió
 morir
@@ -7398,20 +6645,16 @@ muere de frío 'aché moro
 mosca
 mosquito
 mostrar
-mover
 mosquito
-que se puede mover
 muchacha
 muchacho
 muchísimo
 mucho
-mucho después
 mucho más
 mucho más rato
 mudo
 muela
 muerto
-hecho con muescas
 le hace muescas
 mugir
 mugre
@@ -7419,96 +6662,53 @@ mugriento
 está mugriento
 mujer
 multar
-multiplicar
 mundo
-en el mundo
 murciélago
 murmurar
-músculo
-musgo
 músico
 muslo
 mutuamente
 muy
 nacer
-nació un niño
 de nada, por nada
 nada más
-sin nada
-nadar
 nadar
 nadie
-nalga
-naranja
 nariz
 en la nariz
-hoyo de la nariz
 neblina
 hay neblina
 necesitar
-negar
-negro
 lo hace negro
 nene
-nervio
-nervioso
-nevar
-que tiene nieve encima
-ni uno
-nido
 nido
 hace nido
 niebla
-en la niebla
 nieta
-nieta
-nieto
-nieto
 mi nieto
-nieve
 ninguno
 ninguna parte
 niño
-nivelar
-nixtamal
 hace nixtamal
 no
-no importa
-no le hace
 no se maravilla
-noche
 anoche adv
-de noche
 medianoche f
-muy noche
-nombrado
 lugar nombrado así
 nombrar
 nombrar
-nombrar
-nombre
 tiene nombre
 nopal
 nopal
-nopalera
-norte
-hacer norte
-nosotros
-noveno
-noventa
-nube
 está nublado
 nublar
-nuca
 hace nudo
 nuera
 tiene nuera
 nuestro
 nuevamente
-nueve
 nuevo
 nunca
-nutria
 o
 obedecer
 obediente
@@ -7524,55 +6724,37 @@ obsequio
 observar
 no obstante
 en otra ocasión
-ocote
 ocotoso
-octavo
 ocultar
 ocultar
 ocupar
-ochenta
-ocho
-odiar
 oído
 tiene oídos
 oír
 oír
 oír
 oír
-oír
-si quiere oírlo
 oiga
-ojo
 tiene ojos
 ojo de agua
 hace olas el agua
 oler
-que huele bonito
 huele mal
 huele mucho
 olfatear
 lo sigue olfateando
 olor
 olor
-tiene buen olor
-olote
 que tiene olotes
 olvidar
 olla
 hace ollas
-ombligo
-en el ombligo
-once
 opinar
 oponer
-orar
 ordenar
-ordeñar
 oreja
-oreja de alguien
 que tiene orejas largas o chicas
 tiene orgullo
-orgulloso
 está orgulloso
 orilla
 orilla
@@ -7580,29 +6762,18 @@ orilla
 orilla
 se acerca a la orilla
 moja con orina
-orinar
-ortiga
 oruga
-oso
 otate
 otro
 otro
-en otra ocasión
-en otra parte
 otra vez
-otro poco
-uno por otro
-uno tras otro
 unos a otros
 oveja
-oxidado
 oxidar
 pacer
 padecer
 padre
-padre
 tiene padre
-que tiene padre
 padrino
 paga
 pagar
@@ -7615,38 +6786,22 @@ pájaro
 pájaro
 pájaro
 pájaro
-pájaro
 pico de pájaro
-nido de pájaro
-palabra
-paleta
-en la paleta
-pálido
-palma
 palma
 palma
 palmillo
 palo
 palo
-palo
 palo usado por las mujeres en las carreras
-palo picudo
-palo semejante al carrizo
 palo o árbol seco
 palo podrido
-paloma
 hace palomitas
 hacer palomitas de maíz
-palpitar
 tiene paludismo
 panal
 pandear
 está pando
-hecho pando
 pantalón
-panteón
-pantorrilla
-panza
 panzón
 paño
 paño
@@ -7654,9 +6809,6 @@ pañuelo
 papa
 papel
 para
-para acá
-para allá
-para arriba
 parado
 parado
 andar parado
@@ -7675,43 +6827,29 @@ pardo
 es pardo
 parecer
 parecer
-parecer
 no me parece
 qué te parece interr
-parejo
-estar parejo
 hacer parejo
 parir
-en dos partes
 en la parte superior
 en muchas partes
 en otra parte
 en todas partes
 en todas partes donde hay gente
-en tres partes
 en una parte desconocida, en alguna parte
 en una sola parte
 ninguna parte
 partir
-se está partiendo
-pasado mañana
-pasador
 pasar
-cuando pasaban
-los que pasan
 pasa a pie al otro lado del agua
 pasa la noche posar
 pasa un día o noche tiempo
 pasando
 qué pasa interr
 sabe lo que pasó
-pasear
 pasto
-pastor
 pastorear
 pata
-patear
-patio
 arreglar patio para bailar
 patio donde arreglaron parejo
 pato
@@ -7719,9 +6857,7 @@ pavo
 pecado
 pecador
 pecar
-pecho
 en el pecho
-que tiene pecho
 dar el pecho
 pedazos que sobran al hacer una cobija
 se hace pedazos
@@ -7729,20 +6865,14 @@ pedernal
 pedir
 pide a Dios
 pedir perdón
-pedregal
-está pegado
-en donde están pegados
 está pegajoso
 pegar
 pegar rápidamente
 pegarse con ceniza
 peinado
 despeinado
-peinar
-peine
 peine
 pelar
-pelear
 pelo
 tiene pelo
 que tiene el pelo despeinado
@@ -7750,17 +6880,13 @@ pellizcar
 pensador
 pensar
 no piensa bien
-peña
 en la peña
 peñasco
 hay peñasco
-peón
 perder
 se echa a perder
 pierde en el juego
-perdón
 pide perdón
-perdonar
 perdónale
 perecer
 perfecto
@@ -7776,26 +6902,17 @@ permiso
 permitir
 pernoctar
 pero
-perro
-perrito
-perseguir
 persogar
 está pesado
 pesar
 pescado
 pescar
 pesca con anzuelo
-pestaña
-pestañear
 petaca
-petate
-peyote
 pez, pescado
 tipo de pez negro, barbón
 pezuña
 picacho
-picador
-picante
 picar
 le pica
 está picando
@@ -7808,8 +6925,6 @@ pie
 a pie
 poner los pies
 tiene pies o patas
-piedra
-cerco de piedra
 hecho de piedra
 piedra blanca
 trampa de piedras
@@ -7817,17 +6932,8 @@ piedra que cae de la trampa
 piedra parada
 piel
 pierna
-en la pierna
 sin pierna
-pinabete
-pino
-corazón del pino
-donde hay pinos
-entre los pinos
 hay muchos pinos
-tipo de pino
-tipo de pino
-pinole
 pinole
 come pinole seco
 hace pinole
@@ -7836,54 +6942,36 @@ pintar
 pintar
 pinto
 piña
-piojo
-piojoso
-pisar
 piso
 segundo piso
 pisotear
 pizca
 pizcar
 pizcar
-plano
 está plano
 platicar
 plato
-plegar
 pluma
 pobre
 poco
 hace poco
-muy poco
-otro poco
 poco a poco
 poquito
-podar
 poder
 tiene poder
-poderoso
-podrido
-podrido
 podrido
 podrido
 polvo
 hay polvo
-pollito
 pollo
 poner
 pollo
 pollo
 pollo
 pollo
-por
 por allá
-por algo
-por aquí
-por eso
 por favor
-por nada
 por qué interr
-porque
 posar
 poseedor
 poseer
@@ -7894,27 +6982,21 @@ postrar
 potable
 pozo
 pozo hecho
-pozole
 preceder
 predicado
 predicador
 predicar
 tiene ganas de predicar
-preguntar
 preguntándole
 prender
-prendido
 preñado
 preparar
 preparar
 lo hicieron preso
 lo lleva como preso
 quisieron hacerlo preso
-prestar
 primeramente
 primo, prima
-primogénito
-principio
 al principio, en el principio
 producir
 produce lana
@@ -7930,19 +7012,16 @@ pudrir
 pudrir
 pudrir
 pudrir
-pudrir
 puerta
 puerta
 puerta abierta
 puerta de la casa
 puesto menor
-pulga
 pulmón
 puma
 punta
 que tiene punta
 en la punta del cerro
-sacar punta
 punzar
 puñado
 sale pus
@@ -7950,33 +7029,23 @@ hace salir pus
 qué
 qué es
 para qué
-qué cantidad
 que
 quebrado
 quebrar
-oír que se quiebra
 quedar
 quedar en la noche
-queja
 lanza quejas
 quejar
 quelite
 quelite
 quelite
-juntar quelites
-quemado
 quemar
 querer
 quería
 quiso
-si quiere
 quién
 quien
 quieto
-quijada
-quince
-quinto
-quiote
 quitar
 quitar
 quitar
@@ -7989,11 +7058,8 @@ quitar
 quitar
 quizá
 rabia
-enfermar de rabia
 pegar rabia a otro
-que tiene rabia
 rabo
-raíz
 que tiene raíz
 tiene raíz
 raíz con la que se hace pegamento
@@ -8008,29 +7074,21 @@ rana
 rana
 rana
 rascar
-rasgar
 rasguñar
 raspar
 se raspó
 rastrillo
-rastrojo
 rata
-rata
-al poco rato
 al rato
 hace rato
 un rato
-ratón
 ratón
 rayar
 rayar
 real
 rebajar
-rebanar
 rebosar
-rebozo
 recibir
-recién hecho
 recio
 reclamar
 recoger
@@ -8044,16 +7102,13 @@ rechinar
 redondo
 está redondo
 hace redondo
-reforzar
 regalar
 'ya
 regañar
 regar
-en el regazo
 regocijar
 regresar
 reír
-relampaguear
 relatar
 relinchar
 cuando reluce
@@ -8061,11 +7116,7 @@ relumbrar
 remedio
 remendar
 remojar
-remoler
-remolino
 se formó un remolino
-renacuajo
-rendija
 rendir
 rengo
 renovar
@@ -8073,12 +7124,7 @@ renunciar
 reñir
 repartir
 de repente
-de repente
-vendrá de repente
 repetir
-repetir
-reponer
-reprender
 res
 resbalar
 resbalar
@@ -8087,179 +7133,106 @@ está muy resbaloso
 resfriar
 resina
 resolver
-resollar
-resonar
 respetar
-respiración
-respirar
 resplandecer
 el Sol resplandece
 responder
 va a responder
-restante
 resucitar
 retener
-retirar
-retoñar
 retornar
 retrasar
 retronar
-retumbar
 tiene reúma
 reunir
-cuando están reunidos
-al revés
 revolcar
 revolver
-revuelto
-rezar
-perteneciente a la acción de rezar
-rezumbar
 rico
 está haciéndose rico
 rifle
 tira con rifle
 rincón
-en un rincón
-río
 por río abajo
 dar risa
-risueño
-robar
 robar
 roban mucho
-robando
-rociar
 rodar
 rodear
 rodilla
-en las rodillas
 le ruega
 rojear
 rojo
 lo pinta de rojo
-romper
 roncar
 está ronco
 roñoso
 está roñoso
 ropa
-rostro
 roto
 rozar
 rugir
-hacer mucho ruido
 hacer ruido
-sábana
 saber
-como deben saber
 le hace saber
 que sabe bien
 sabe leer
 que sepan
-sabe lo que pasó
-sabido
-sabina
 sabio
 sacar
 sacar
 sacar
-sacar
-sacar
-sacar punta
 sacar tiras
 saco
 sacudir
-sahumar
-sal
 tiene sal
-salado
 está salado
-salamandra
-salar
 salir
 salir
 salir
-salir
-apenas salió
 le salió salpullido
 salimos del trabajo
-saliva
 salivar
 salpicar
-le salió salpullido
-saltamontes
-saltapared
 saltapared
 salto de agua
-saludar
-saludar
-Salvador
 salvar
 Samachique
 sanar
 sano de los pies, brazos
 sangrar
 sangre
-sangriento
-sanguijuela
 sapo
-sarampión
-sauz
 sebo
 sebo de chiva
 secar
-seco
-secretamente
 tiene sed
 sediento
-sedimento del tesgüino
 segar el trigo
 en seguida
-seguidor
 seguir
 seguir
 seguir
 siguen haciendo algo
-siguieron haciéndolo
 según
-según dice Juan
-segundo
 seguro
-estoy seguro
-seis
-semana
-Semana Santa
-sembrado
-sembrador
 sembrar
-sembrar
-de siembra
-fue sembrado
 siémbrenlo ustedes
-semejante
-semejanza
 semilla
 semilla de trigo
 sencillo
-seno
 sentar
 sentar
 sentar
 sentar
 está sentado haciendo algo
-quería sentarse
 hacer sentarse, desean sentarse
 siéntate
 sentir
 sentir
 señalar
 separado
-separar
-séptimo
 sepulcro
 sepultar
-ser
 ser
 era
 éramos
@@ -8277,22 +7250,13 @@ serpiente
 serpiente
 servir
 no sirve
-sesenta
-setenta
-sexto
 sí
-cree que sí
 sí también
-siempre
 sierra
-siete
 silencio
 sin embargo
 sino
-siquiera
-sobaco
 sobar
-sobrante
 sobrar
 sobre
 sofocar
@@ -8302,17 +7266,13 @@ sol
 el Sol resplandece
 hace sol
 solamente
-soldado
 solera
 solo
 uno solo
 soltar
 soltero
-sombra
 está a la sombra
 hace sombra
-sombrero
-sonaja
 sonaja
 sonaja
 sonaja
@@ -8322,10 +7282,8 @@ sonar
 sonar
 sonar
 sonar
-sonar
 hace sonidos con la voz
 sonreír
-soñar
 soplar
 soplar
 soplar
@@ -8335,10 +7293,7 @@ sordo
 sorprender
 su, sus
 su, sus
-subir
-subir el humo
 subir de tierra baja
-ir subiendo
 suceder
 suciedad
 sucio
@@ -8346,53 +7301,36 @@ sucio
 está sucio
 está sudando
 tener mucho sudor
-suegra
 suegro
 suelo
 tiene sueño
-tengo suficiente
 sufrir
 sumamente
 sumergir
-sur
-surcar
-surtido
 tabaco
-tábano
-tabla
 tacaño
 tal
-tal como está
-tal como era
 tal vez adv
 taladrar
 talega
 talón
 tamaño
-tamaño de un caballo
 tambalear
 también
-tambor
 tampoco
 entre tanto
-ese tanto
 por lo tanto
-tapado
-tapar
 tapar
 tapar
 tapar
 tapar
 tapar
 tarahumara
-idioma tarahumara
 tarántula
 tardar
-tarde
 es tarde
 esta tarde
 tardecer
-tascatal
 táscate
 tatemado
 taza
@@ -8407,61 +7345,38 @@ temblar
 temer
 temeroso
 templo
-temprano
 tender
 tendidos para dormir
 tener
 tener
-tiene ganas de comer
-tengo de todas clases
 tenga
 tentar
-teñir
 lo tiñe de anaranjado
-tercero
 terminar
 termita
 terreno
-herencia de terrenos
 tesgüino
 que toma tesgüino
 tomar tesgüino
 tener tesgüino en su casa
 testificar
-teta
 ti
 tía
-tía
-tía
-tibio
-al mismo tiempo
-cuando llega el tiempo
-en todo tiempo
 hace muchísimo tiempo
 hace mucho tiempo
 poco tiempo
 tiempo de calor antes de las lluvias
-tiempo de lluvias
 está tierno
 tierra
 tierra
-hay tierra
 lugar en donde la tierra está colorada
 mi tierra
 tiene tierra
-tierra blanca
-tierra de siembra
 tijera
-hay tinieblas
 en las tinieblas
-tinta
-tío
-tío
 tío
 tirar
 tirando las bolas
-tobillo
-hueso del tobillo
 tocador
 tocar
 tocar
@@ -8469,11 +7384,8 @@ tocar
 tocar
 tocar
 tocar
-es tocayo
 todavía
-todo
 es todo
-todo cuanto
 todos
 tomar
 tomar
@@ -8482,63 +7394,36 @@ hacer tomar
 tomar pecho
 ir al tesgüinada a tomar
 toma
-tomatillo
-tonto
 torcer
 torcido
-que ha sido torcido
-tordo
 toro
 tortilla
-hacer tortillas
-toser
-tostado
-tostar
-tostar
 tostar
 trabajador
-trabajar
-a trabajar
 poner a trabajar
 está trabajando agachado
-trabajo
 donde hay trabajo
 trabajoso
-traducir
-traer
 traer
 traer
 traer
 traer en las manos
 quiere traerlo
-tragar
 poner una trampa
 trampa de piedras
-transformar
 transparente
 trapo
 tráquea
-trasquilar
 trasquilará
 travieso
-trece
-treinta
 tiene trementina
-tremolar
 hace trenzas
 hace trenzas para otra
-tres
 tres tantos
-en tres partes
-trigo
-paja de trigo
-segar el trigo
 tiempo de cortar trigo
-triguillo
 trillar
 tripa
 tiene tripas
-triste
 está triste
 troje
 en la troje
@@ -8547,53 +7432,36 @@ tronar
 tronar
 está tronando el cielo
 truena la pólvora
-tropezar
-tropezar
 trozar
 trozar
 trozo
 tú
-tú mismo
-tuerto
 tuétano
 tumba
 tumbar
 tumbar
-tuna
-turbio
 está turbia
-tuza
 tuyo
 ubre
 último
 un, uno
-cada uno
 ni uno
-uno tras otro
-uno por otro
 ungido
 ungir
-único
 unido
 unir
 unos
-unos a otros
 untar
 uña
-urgente
 usado
-usar
 usted
-de usted
 de ustedes
 útil
 vaca
 vaciar
-vacunar
 vadear
 vaina
 valer
-no vale mucho
 vale mucho
 valiente
 valor
@@ -8603,36 +7471,23 @@ hace vapor
 vaqueta
 vaso
 vecino
-veinte
 vejiga
-vela
 veloz
-vena
 venado
-vencer
 vender
 venenoso
 venir
-allá viene
 vénganse
-viniendo
 ventana
 ventana
-ventilar
 ver
 a verlo
-cuando estaban viéndolo
-podía ver
-el que ve
-que puede ver
 ve bien
 viéndolo
 verdad
-verdadero
 verde
 es verde
 lo pinta de verde
-sinvergüenza
 tiene vergüenza
 verter
 está vertiginoso
@@ -8640,9 +7495,6 @@ le causa vértigo
 vestido
 vez
 a veces, de vez en cuando
-una vez
-una sola vez
-cuántas veces
 otra vez
 muchas veces
 tal vez
@@ -8677,46 +7529,27 @@ volver
 volver
 volver
 vomitar
-tener ganas de vomitar
-voraz
-voz
-vuelta
-andar dando vueltas
 dar vuelta
 está dando vueltas solo
-que hace vueltas
 vuestro
 y
-ya
-ya casi
 ya mero
-yegua
 yerba
 yesca
 yescoso
-yo
-yo a ti
-yo mismo
 yugo
-yunta
 yunta de bueyes
 zacate
-en el zacate
 hay zacate
 zafar
 zambullir
-zancudo
 zanja
 zapeta
 que lleva zapeta
 se pone zapeta
 pieza triangular de la zapeta
-zarzamora
-zopilote
 zopilote
 zoquete
 zorra
 zorrillo
-zorrillo
-zumbar
 zurdo
