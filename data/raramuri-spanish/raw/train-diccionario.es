@@ -1,7555 +1,7555 @@
-buscar
-Voy a buscar el caballo
-¡Vayan a buscarlo!
-acaba de buscar
-va a buscar
-fueron a buscarlo
-lo buscaremos, Uds. lo buscarán
-si lo busca
-buscándolo
-lo buscaba
-hoy
-Hoy llovió mucho.
-hace rato
-sí
-¿Se lo dieron? Sí
-todavía  aún
-¡Espera todavía!
-Todavía no llueve
-temprano todavía
-sobrante
-todavía llueve
-ellos, ellas
-habitación de ellos
-cara, nariz
-su cara
-en su cara
-tener sal
-¿Tienen suficiente sal los frijoles?
-Están muy bien de sal estos frijoles.
-está dulce o sabroso
-huarache
-No tengo huaraches
-poner
-quitarse
-quitar
-embotarse, quitarse
-Se embotó el hacha
-salado
-dulce
-sano de pie o de brazo
-Ese hombre es cojo porque tiene la pierna chueca.
-cojo
-cojo de una pierna
-hoyo de la nariz, ventana de la nariz
-abuela paterna
-La mamá de mi papá es mi abuela paterna.
-nieta
-mi abuela
-salar
-correa
-Ya se soltó la correa del huarache.
-ponerse correas a los huaraches
-mis correas
-vivo
-Todavía está vivo el perro
-boca abajo
-Se cayó boca abajo
-¡Voltea el cajete!
-aliviado sano así
-herrar
-rostro
-¿acaso?
-¿Estás bien?
-¿No estás bien?
-poner colocar
-Voy a ponerlo allí.
-Yo quería ponerlo allí.
-Fue puesto allí
-Puso la piedra en el rincón.
-varios poner
-una mata espinosa
-lugar donde hay esa mata
-golpear ropa para quitar el agua
-atiesarse , morirse
-Un niño chiquito se atiesó, y murió así, porque no tenía cobija
-reír  sonreír
-Los tarahumaras se rieron mucho cuando me caí
-risueño
-es igual
-de la misma manera, así también
-Ese hombre hizo una cosa de la misma manera que vió en la ciudad.
-tal como era
-cómico
-iguales
-Son iguales
-Los dos son iguales
-son iguales
-le da  dándole
-bilis
-animalito parecido al alacrán
-El “agóona” está muy bravo porque pica a la gente
-cuerno
-Un toro bravo me acorneó
-cuernos de chiva
-tragar
-Ya se tragó el chicle.
-meter  echar
-Ya echó hacia adentro las piedras
-ligeros
-Los jóvenes son muy ligeros
-asar
-Ya maté una res; voy a asar la carne
-asado
-tener cuernos
-Ese borrego tiene cuatro cuernos
-que tiene cuernos
-águila
-pasador
-ligeros
-bailar
-En esta fiesta algunos jóvenes bailarán matachines.
-va a bailar
-brotar, nacer o germinar
-acaba de brotar, nacer o germinar
-va a brotar, nacer o germinar
-solos
-uno solos
-aparte
-Ellos se juntaron aparte de los demás
-desgranar maíz
-mosquito, zancudo
-mejorar, arreglar, preparar
-Está muy malo el camino; lo arreglaremos.
-decalitro
-hígado
-tener hígado
-hígado de vaca
-rezar
-La gente ya entró en la iglesia; van a rezar.
-perteneciente a la acción de rezar
-estar entero
-Así está la calabaza; todavía está entera.
-entero, complejo
-buscar
-Voy a buscar dinero
-Vamos a buscar dinero.
-¡Vaya a buscarlo!
-fue a buscarlo
-amigo
-mis amigos
-panal, miel de abeja
-Allá arriba, en la escarpadura, está colgado un panal
-de otro modo
-Habló de otro modo
-ala
-aleta
-alas de pájaro
-aletas de pez
-juntarse
-La gente de aquí se juntó en la casa de la comunidad
-aguantar
-Cuando corrieron con la bola, ese hombre no aguantó.
-Solamente aguantó tres vueltas
-Me duele mucho la muela; no puedo aguantarla más.
-acaba de aguantar
-va a aguantar
-aletear
-por los dos lados
-La pinté por los dos lados
-cuadrado
-mutuamente  unos a otros
-aletear
-medir  pesar
-Midieron bien el maíz, para que cada uno reciba la misma cantidad.
-acaba de medir  pesar
-va a medir  pesar
-al mismo tiempo
-Nacieron al mismo tiempo
-Salieron al mismo tiempo.
-igual
-Los dos son iguales
-son iguales
-perseguir
-Ese hombre se robó una cobija; por eso lo perseguiremos.
-acaba de perseguir
-va a perseguir
-uno encima del otro
-poner
-Las puso una encima de la otra, haciendo un montón
-igualar
-los que vivieron hace mucho  los espíritus de los antepasados
-Algunos tarahumaras creen que los espíritus de los que vivieron hace mucho todavía andan aquí, por eso, cuando ellos están muy asustados en la noche, creen que los espíritus de los antepasados andan por ahí
-decir
-Cuando ese hombre habló conmigo, me dijo que su papá ya había muerto.
-sonar fuerte
-le dice esto
-le hubiéramos dicho
-le hubiera dicho
-le fue dicho
-fue dicho  fue avisado
-rezumbar
-decir
-querer decir
-¿Qué quiere decir?
-decir
-¿Cómo dirá?
-en el tiempo en que se dice
-nombrado
-lugar nombrado Samachique
-tascatal
-táscate
-andar acarreando
-va a andar acarreando
-compañero
-abuelo materno
-El papá de mi madre es mi abuelo materno.
-nieto
-Y yo también soy su nieto.
-mi abuelo materno, mi nieto
-estar bravo
-bravo  cruel  feroz  malvado  valiente  violento
-echar a la espalda
-Yo voy a traerlo en la espalda
-Ese hombre se va a echar un tercio de leña en la espalda
-llevar en la espalda
-Va a llevar el maíz en la espalda.
-va a llevar en la espalda
-varios llevar en la espalda
-hacer olas
-un árbol de la barranca
-tener huaraches
-nadar
-desaparecer
-varios desaparecer
-arado
-descornar
-Ese toro me acorneó; ya voy a descornarlo
-tarde
-hoy en la tarde  en seguida
-entonces
-tardar  dilatar
-a pesar de, de todos modos
-A pesar del frío vamos a trabajar
-urgente
-es menester
-ser tarde  atardecer
-Ya es tarde, pronto va a obscurecer
-alma
-dejar
-El hombre dejó a su esposa
-Dejó el hacha en la casa.
-¡Déjalo! ¡No le hagas nada!
-que dejar
-va a dejar
-almud
-al poco rato
-A poco de haberse ido usted, llegó él
-¡adiós!
-¡ay!
-marchitarse
-sacudir
-sacudir
-Sacudió bien la cobija, porque tenía mucho polvo
-enemigos
-uno enemigos
-montar
-Montando el caballo, se fué.
-Todavía no está entrenado a ser montado.
-montando
-también
-Su esposa también se fue
-siéntate
-Ya te cansaste de andar, siéntate allí sobre la piedra
-sentarse
-Sentándose adentro, comió mucho
-Le ví sentado allí, en la escuela.
-quedarse
-Esa piedra rodó desde arriba y se quedó allí abajo.
-varios siéntate
-quería sentarse
-estar sentado
-Estaba sentado leyendo
-levantarse
-arco
-pudrirse
-podridas
-podar
-tener arco
-que tener arco
-estar  estar sentado
-varios estar  estar sentado
-estornudar
-otro
-tres tantos
-otro
-en otra parte
-el próximo domingo
-otros
-otro poco
-otra vez
-otra vez
-repetir
-reponer
-dando
-Aquí andaba un médico dándonos medicinas de todas clases
-uno tras otro
-Cuando hicieron distribución del maíz, la gente llegaba una tras otra
-sí
-¿Está tu papá? Sí, está allí adentro
-también  aún  sí
-Aún los niños se enfermaron.
-Mi papá también vino
-sí también
-mañana
-mañana temprano
-hasta mañana
-al siguiente día por la mañana
-Al día siguiente de la gran nevada hizo mucho frío
-carrizo
-Allá abajo, en el río, hay mucho carrizo
-Los tarahumaras hacen flautas del carrizo
-hoja de la mazorca
-En la pizca juntamos las hojas de las mazorcas; después haremos tamales
-infectarse , hincharse
-Desde hace algún tiempo le salió un grano, ahora ya se hinchó con pus
-tipo de mata que crece en las barrancas.
-tipo de víbora chica con rayas blancas
-tener enfermedad venérea
-ponerse amarillo
-Hace un mes llovió mucho todos los días, por eso las matas de maíz se pusieron amarillas
-río
-Allá en el fondo de la barranca, muy abajo, está el río
-otate
-palo semejante al carrizo
-primeramente  adelante  enfrente
-Cuando tumbamos un pino, primeramente amolamos el hacha.
-primogénito
-de antemano
-avanza, precede
-meter , poner
-que meter
-quisieron ponerlo preso
-estaba preso  estaba encerrado
-ante  delante  por delante  enfrente de
-Voy a comparecer delante del gobernador.
-ante el gobernador
-aparecer delante de  comparecer
-comparecen
-parte gruesa del hueso que fue roto
-hueso del tobillo
-ir adelante
-Se apuró a sembrar primero
-Tengo mucha prisa; por eso voy adelante
-hacer preso
-apuntar bien jugando cuatro
-¡Apúntelo bien!
-tener hermano mayor
-No tengo hermano mayor, porque yo soy el primero
-hermano mayor
-Yo soy el primogénito, porque nací primero.
-mi hermano mayor
-calabaza
-flor de calabaza
-rociar
-primogénito, hermano mayor
-hay agua
-Allí está muy seco, no hay agua.
-acaba de hay agua
-va a hay agua
-agua
-Voy a traer agua
-toma agua
-cascada
-mana agua
-riega
-trae agua
-jugo de fruta
-caer el sereno
-Ahora es el tiempo de aguas. Todos los días, temprano, cae mucho sereno
-herrar
-Ya vamos a herrar esa vaca, porque es mía
-jugo, caldo
-Esta manzana está muy seca. No tiene jugo.
-jugo de manzana
-hacer caldo, echar agua a un líquido
-Echó mucha agua al esquiate
-tercero
-treinta
-hinchado
-Tengo muy hinchada la encía, porque la muela me duele mucho
-tomar, beber
-Allí hay mucho tesgüino. Tal vez van a tomar mañana.
-Voy a tomar agua
-curandero
-hinchado por desnutrición
-Ese niño está hinchado por desnutrición. Se le hinchó todo el cuerpo
-hacer norte
-norte
-Ahora está muy helado el aire. Es un norte
-pozo  ojo de agua  manantial
-Hace tiempo se secó allí donde salió agua; pero ya sale otra vez porque llueve bastante ahora
-tiempo de tomar tesgüino
-Algunos tarahumaras pelean mucho cuando es tiempo de tomar tesgüino
-potable
-¿Se puede tomar?
-agua potable
-hincharse
-Me duele mucho la muela, y se me hinchó mucho la mejilla.
-acaba de hincharse
-va a hincharse
-hacer tomar o beber
-Yo no quería tomar tesgüino, pero algunos hombres me hicieron tomarlo a la fuerza
-salir agua
-acaba de salir agua
-va a salir agua
-ir a la tesgüinada
-A ese hombre le gusta mucho el tesgüino; por eso se irá a la tesgüinada
-invitar a la casa o al trabajo
-Algunos tarahumaras invitan a muchos a tomar tesgüino, pero los ponen a trabajar antes
-nutria
-La nutria es un animal que puede nadar en el agua
-hacer un año
-Ya hace un año que murió mi papá
-año
-Tengo muchos años
-el año pasado
-el año antepasado
-mejilla
-Me pegó en la mejilla
-en la mejilla
-mi mejilla
-lama, moho
-Hay mucha lama en el agua
-Ahora hay mucha lama allí, en el arroyo.
-hay lama
-tener mejillas
-Tiene mejillas gordas
-que tiene mejillas
-gastarse la cobija
-una cobija gastada
-Mi cobija ya está gastada
-crecer larga y enredada
-Creció larga la mata de calabaza
-arrastrar  llevar
-Voy a llevar el caballo jalandolo.
-Arrastrando ramas de encino, voy a echarlas en el barbecho para quemarlas allí.
-acaba de arrastrar  llevar
-va a arrastrar  llevar
-jalar
-No pude jalar ese caballo, porque está muy bravo
-apedrear
-entrar
-El maestro ya entró a la escuela; pero los niños no han entrado todavía.
-varios entrar
-padrino, madrina
-Ese hombre es mi padrino. Él me puso mi nombre.
-mi padrino, mi madrina
-el tiempo de lluvias
-Ya es tiempo de lluvias; hay muchos elotes.
-Pronto llegará el tiempo de lluvias
-tener sed
-huérfano
-tener sed
-Tengo mucha sed, porque no hay agua.
-va a tener sed
-llegar el tiempo de lluvias
-cura
-quiote
-El quiote del maguey de la barranca está muy grande
-quiote de maguey
-la flor de maguey
-pardo
-apedrear
-Me apedreó
-Le dí una pedrada.
-pegándole con piedras
-coyote
-Ya está muy obscuro; me puede morder el coyote.
-piel de coyote
-pasear
-taza  vaso
-triguillo
-Los tarahumaras juntan triguillo arrancándolo y lo mezclan para hacer el tesgüino
-apedrear
-Vamos a apedrearle
-apedreado
-lavarse
-¡Estás muy mugroso; lávate bien la cara!
-le lava la cara
-hierba que sirve para calmar el dolor de muelas
-lugar donde crece
-pato
-Allí donde está ancho el agua están los patos
-derretir
-Ya no tenemos agua; vamos a derretir nieve
-pozole
-cocer  hervir
-Voy a cocer frijol.
-derretir
-Ya se derritió la nieve.
-lo derrite
-tener tesgüino
-tesgüino
-Dicen que van a tomar tesgüino
-mapache
-moler
-Voy a moler en el metate
-masa
-Hay masa para que hagamos tortillas
-llamar
-Yo quería llamarle
-llamado  invitado
-guiar  llevar
-sanguijuela
-Cuando los muchachos andan en el agua, las sanguijuelas les chupan en los pies
-invitar
-parecer bonito, estar bonito
-Esto está muy bonito
-Me parecieron bonitas las flores
-bello  chulo  hermoso  lindo  bonito
-hacer bonito
-adornar
-va a adornar
-gustar
-pudrir
-Ya se pudrió la calabaza
-Hace días que se murió el burro; ya se pudrió.
-acaba de pudrir
-va a pudrir
-podrido
-oler mal
-Huele muy mal
-salir pus
-Se infectó; ya salió pus
-en tres partes
-capar
-Vamos a capar a un toro
-entonces  y
-raspar  quitar  la piel
-Me caí en el camino; me raspé mucho la pierna
-verdad
-Es verdad que ya van a trabajar en el molino
-jurar  prometer
-va a verdad
-afirmar  comprometer
-verdadero
-la verdad
-creer
-convencer  dar fe
-quitar pelar  deshojar
-va a quitar
-despellejar
-se le hizo una matadura en el lomo del animal
-creyente
-estar duro
-Desde hace dos semanas no ha llovido, por eso está muy dura para barbechar
-acaba de estar duro
-limpiar
-El espejo tiene mucho polvo ¡Límpialo bien!
-endurecer
-Ya se endurecieron las calabazas
-Aquí, el patio no está duro. Vamos a endurecerlo con un palo ancho.
-endurecerse
-hacer duro
-endurecerse
-duro
-limpiarse  volverse blanco
-Lavándolo con jabón, se limpiará bien.
-¿Se limpió bien al lavarlo?
-claro  limpio
-chueco  torcido
-que ha sido torcido
-fierro
-Ese hombre sabe hacer lumbre con un fierro y yesca
-neblina  polvo
-haber neblina  haber polvo  haber humo
-Hoy, temprano, había mucha neblina; creo que no va a llover.
-va a haber neblina  haber polvo  haber humo
-que hay neblina
-niebla  polvo
-en la niebla
-aprender  estudiar
-Hace tiempo aprendí a leer
-el que aprende  discípulo
-apartarse solo
-enseñar  instruir
-Mi padre me enseñó.
-amansar
-apartar solo
-solo
-Se fue solo; nadie iba con él
-maestro  el que enseña
-único
-hermana menor
-mi hermana menor
-mi hermana menor
-anzuelo
-Fui por abajo, en el arroyo, llevando un anzuelo
-él  ella  él mismo
-yo mismo
-tú mismo
-tres
-uno
-cien
-un puñado de maíz
-en una sola parte
-Sembré en una sola parte
-Ya no está aquí; se fue a otra parte.
-en otra parte  en alguna parte
-una yunta
-tuerto
-charco
-milpa
-atascadero
-una parte alguna parte
-Voy a alguna parte
-en una sola parte
-Vamos a trabajar en una sola parte
-sólo uno
-¿Cuántos hombres vinieron? Llegó sólo uno
-alguien
-torcerse
-Ya se torció la tabla
-encender lumbre con pedernal
-pedernal
-torcer, exprimir
-Vamos a hacer un mecate.
-Vamos a hacer hilo
-va a torcer, exprimir
-torcer, dar vueltas
-rasparse
-salir pus
-hacer salir pus
-Ya matando esa vaca, inmediatamente vamos a despellejarla
-habitar  morar  vivir
-¿Dónde vives?
-Vivo allí, en Basigochi.
-acaba de habitar  morar  vivir
-va a habitar  morar  vivir
-varios habitar  morar  vivir
-estar pesado
-Está muy pesado. No puedo levantarlo.
-acaba de estar pesado
-va a estar pesado
-morador  que vive
-Ese hombre vive aquí en Samachique.
-Pasado mañana se juntarán los que viven aquí
-varios morador  que vive
-pasar la noche  pernoctar
-Allí, en el campo, pasó la noche
-va a pasar la noche  pernoctar
-casa
-mi casa
-mi casa
-estár acostados
-Se acostaron en la tierra.
-Ya muy de noche se acostaron a dormir.
-uno estár acostados
-va a estár acostados
-se acostarán
-¡Acuéstense!
-echarse están acostándose
-casa  habitación
-Iba hacia la casa
-andar
-se revuelve
-echarse
-hacer cajetes
-cajete  plato  cazuela
-en el cajete
-temprano
-en la madrugada
-temprano
-hoy temprano
-madrugada
-ocultarse  ponerse el sol
-Ya se puso el sol
-cascada  salto de agua
-preñada  encinta
-oveja  borrego
-lana de borrego
-tener lana  pelo
-Tiene mucha lana ese borrego; vamos a trasquilarlo.
-que tener lana  pelo
-postrarse
-buey
-varios buey
-pasar a pie al otro lado del agua  vadear
-Cuando estaba muy crecida el agua, yo siempre pasaba al otro lado vadeando
-arrancar  desherbar
-Creció mucho la hierba, ya vamos a arrancarla.
-va a arrancar  desherbar
-¡Arráncalos!
-hermano menor
-Mi hermano menor se fue, pero mi hermana menor todavía está aquí.
-mi hermano menor
-hermano menor
-Él es el hermano menor
-anzuelo
-la otra banda
-a la otra banda
-desplumar
-a la otra banda
-a la otra banda
-producir lana
-caer el pelo
-lana
-una bola de lana
-hace hilo de lana
-carda la lana
-salto de agua
-correr el agua
-Cuando creció mucho el arroyo, corrió mucha agua
-amarrado
-Amarrado con mecate, lo llevó
-Vamos a llevarlo amarrado.
-llenarse  hartarse
-Me llené, porque comí muchas tortillas.
-varios llenarse  hartarse
-llenarse
-eructar
-estar lleno
-Ya estoy bien lleno
-soltarse
-desatarse
-soltar, desamarrar, desatar
-va a soltar, desamarrar, desatar
-hundir  sumergir
-Lo hundió en el agua
-hundirse  zambullir
-Se hundió completamente
-Comenzaron a hundirse
-poseedor
-Es mi caballo.
-¿Quién es el dueño?
-bestia ajena
-hace poco  nuevamente  hace rato
-Hace poco volvió
-hace poquito  hace ratito
-renueva
-recién hecho
-apenas salió
-contener
-Contiene dos litros
-lleno
-llenar
-Ya lo llené
-nuevo  fresco
-Lo hizo de nuevo
-estar lleno
-Está lleno.
-enfermarse con mucha calentura
-en todas partes
-esperar
-Allá, en el camino, te voy a esperar
-¡Espérense!
-camino
-mi camino
-acostarse
-Es muy noche; ya se acostó
-Está acostado adentro de la casa.
-varios acostarse
-va a acostarse
-en el camino
-Se cayó un pino seco en el camino
-acostarse  caerse al suelo
-echarse
-derribarse
-estar esperando
-Adentro estaban sentados, esperando
-tambalearse
-cobrar  quitar algo  multar
-Me cobró diez pesos
-agacharse
-inclinarse
-ladear  agachar  inclinar
-tener  poseer
-Yo tengo sóla una vaca.
-mi vaca
-mis vacas
-hacer camino
-Poco más allá van a hacer un camino grande
-amarrar
-Vamos a amarrar manojos de rastrojo
-va a amarrar
-manojo
-yunta
-llevar preso
-que llevar preso
-burro
-estar el camino
-¿Dónde está el camino?
-¿Donde está el camino hacia Samachique?
-acaba de estar el camino
-si le amarran
-si le amarran
-Hace mucho había un camino allí
-despertarse
-Muy temprano desperté
-Mañana temprano te voy a despertar.
-acaba de despertarse
-va a despertarse
-tener ojos
-ojo
-ciego
-despertar
-hundirse
-nadar debajo del agua
-salir
-acaba de salir
-enfermar
-llevar
-Se fue llevando un cuchillo.
-traer
-Llegó trayendo un palo.
-salir
-hacer sombra
-Tú estás muy enfermo; te voy a hacer sombra.
-sombra
-ser
-Yo era un poco chico
-Ya que sea viejo, morirá.
-en otra ocasión  tal vez
-siendo chico
-estar bajo a la sombra
-Voy a estar allí, a la sombra
-enrollar
-¡Enrolla el papel!
-un rollo largo  una pieza entera de manta
-rodarse
-rodar, envolver
-enrollar en una bola
-Ya enrollé el mecate
-pantorrilla
-mi pantorrilla
-músculo
-en la pantorilla
-ser esféricos
-uno ser esféricos
-esféricos
-tecolote blanco búho chico
-¿cuándo?
-¿Cuándo viniste?
-¿cuándo?
-cadera
-escupir
-El tambor se secó; sería bueno escupirlo.
-vamos a escupir
-le escupe
-reírse
-cadera
-Me duele mucho una cadera
-mi cadera
-en mi cadera
-arrugarse
-Hace tiempo compré este sombrero; ya se arrugó completamente.
-arrugarse
-arrugar
-arrugar
-que arrugar
-poner huevos
-Ahora no hay huevos; las gallinas no ponen.
-va a poner huevos
-huevos de gallina
-caballo
-herradura
-dueño del caballo
-el hocico del caballo
-la cola del caballo
-yegua
-vientre del caballo
-tener liendres
-Tiene muchas liendres en la cabeza
-va a tener liendres
-menospreciar  despreciar
-Ese hombre no me ama; solamente me desprecia
-monte  terreno  tierra  campo  mundo
-¿No tienes tierra donde puedas sembrar?
-tierra de cultivo
-herencia de terrenos
-tener tierra
-en el monte
-este lugar
-mi tierra
-aclarar
-Ya se desaparecieron las nubes
-Está aclarando
-claro  limpio  sereno
-piña de pino
-piña de la clase de pino que llaman
-piña grande de la clase de pino que llaman
-cobija
-café
-heces del café
-cáscara delgada  vaina
-cáscara de calabaza
-cáscara de manzana
-vaina de frijol
-cáscara de naranja
-cáscara de pino
-derribarse
-va a derribarse
-derribar
-ampollarse
-Trabajé mucho tumbando pinos; ya se ampollaron mis manos
-ser bueno
-Sería bueno que no fuera
-caerse
-Se cayó
-encarrujarse  torcerse
-Ya se encarrujó la pelota; voy a echarle aire.
-Se encarrujó el papel por el sol.
-está encarrujándose
-encarrujado  aplastado
-extraordinario
-tumbar
-va a tumbar
-apretar  estrangular
-hincharse la cara
-se le hinchó la mejilla
-taparse la garganta
-tambor
-Se oyen muchos tambores
-maíz para hacer palomitas
-hacer palomitas
-flotar
-en muchas partes  en dondequiera
-Los niños de muchas partes ya saben leer
-guacamaya  perico
-En la primavera hay muchas guacamayas
-alegrarse  complacerse
-complacer  contentar  regocijar
-estar contento  estar feliz
-acaba de estar contento  estar feliz
-va a estar contento  estar feliz
-con mucho gusto
-me dio gusto
-arriba por el arroyo
-Vivo arriba, por el arroyo
-Es para arriba, en el arroyo.
-para arriba en el arroyo
-campana
-rodarse
-estar cilíndrico
-hacer cilíndrico
-hacer cilíndrico
-va a hacer cilíndrico
-se hizo cilíndrico
-cilíndrico
-hacer rodar
-rueda un trozo
-capitán
-mi capitán
-mi capitán
-quebrarse
-inflarse
-quebrar
-desgajar
-inflar
-ser esférico
-No está muy esférica la bola de madera.
-ser esférico
-esférico
-hacer esférico
-hacerse una bola
-chilicote
-inflarse  hincharse
-inflado  hinchado
-completamente
-La quebró en pedazos completamente
-desbaratar
-desmoronar
-por nada
-arma  rifle
-completamente
-¡Quiébralo completamente!
-de todas clases
-Tengo de todas clases
-mejorar
-Debajo del manzano hay sombra
-parecerse
-Va a parecerse a los mestizos
-va a parecerse
-amar  tener cariño
-Ese niño ama mucho a su mamá
-amándole
-amado
-amable
-quebrarse
-El mango del hacha ya se quebró.
-está quebrándose
-casa
-mi casa
-amo de la casa
-en la casa  entre las casas
-en la casa
-es todo  está completo
-tener casa
-tener casa
-que tener casa
-va a tener casa
-arreglar
-alzar
-listo  arreglado
-quebrar
-quebrado
-¡Quiébralo!
-hacer o construir una casa
-tipo de calabacilla
-llevar en la espalda
-llevar cuidar
-de otro modo
-Habla chistoso, habla malas cosas
-Habla chistoso para que los otros se rían
-carrete
-de todas clases
-cosas de todas clases
-chancear  charlar
-capulín
-zacate  hierba del campo  pasto
-donde hay zacate
-en el zacate
-haber zacate
-ninguna parte
-No iré a ninguna parte
-quebrarse  hacerse pedazos
-pierna  muslo
-mi pierna
-en la pierna
-pantalón  calzones
-que lleva pantalones
-en el regazo
-cojo  rengo  sin pierna
-quebrar
-que quebrar
-ubre
-dar castigo
-bajarse
-limpiar
-bajar del monte
-va a bajar del monte
-arco
-alzar
-guardar
-va a arco
-alzado
-sentarse en cuclillas
-levantar
-levantar la caja levantar
-donde se llega después de atravesar varios arroyos
-por el faldeo
-terminar  levantar
-¿Ya acabaste de levantar la casa?
-cosechar
-Este año se levantará bien el maíz
-atravesar  poner atravesado
-ser
-Así es
-picar
-Esa comida estaba muy picante.
-picar
-va a picar
-picante
-enchilar
-Me enchilé, porque comí chile
-enchilar a otra persona
-comer pinole seco
-Aquí en el camino voy a comer un poco de pinole seco porque no hay agua
-hacer pinole
-Esa mujer va a hacer un poco de pinole
-pinole
-ahogarse
-Me ahogaba con un hueso
-perro
-Hay muchos perros aquí
-rabo del perro
-pesuñas del perro
-el perro gruñe
-hermana mayor
-mi hermana mayor
-que es la hermana mayor
-dormir
-Sería bueno dormir
-que dormir
-dormir
-marrano
-tener sueño  querer dormir
-ceja
-mis cejas
-adormecer  hacer dormir
-dar de comer
-Si no se les da de comer, se van a desmayar
-Le dio de comer tortillas con frijoles
-comer
-acaba de comer
-va a comer
-que comer
-habiendo comido
-en el tiempo de comer
-a comer
-alimento  comida
-alimento  comida
-frente arrugada
-mi frente
-en mi frente
-cuajo
-escarpadura cumbre
-comilón
-comer mucho
-marrano
-la flor de encino
-El encino está florido
-matar  asesinar
-quería matarlos
-mandó matarlos
-asesinados  matados
-abotonar
-estar cortando
-miel de colmena  enjambre
-bola
-Ya comenzaron a correr con la bola
-rozar la tierra
-estar bajo
-hacer arroyo
-se hace un arroyo
-cóncavo  alabeado
-La batea está hecha cóncava
-arroyo
-hacer como arroyo  hacer cóncavo
-El agua ya hizo un arroyo aquí.
-hacer como arroyo  hacer cóncavo
-hecho cóncavo
-pardo
-ser pardo
-cárcel  casa de la comunidad
-cuesta abajo
-por cuesta abajo
-olote
-Aquí hay muchos olotes
-tostar
-Va a tostar tortillas
-sal
-Voy a comprar sal
-tener sal
-donar  regalar
-va a donar  regalar
-el que dona
-tener ganas de comer
-no desgranado
-arco iris
-Algunos tarahumaras tienen miedo cuando alguien apunta con la mano al arco iris.
-dar de comer
-hacer esquiate
-Esa mujer va a hacer esquiate
-esquiate pinole
-Comen todo lo que les dan
-obsequiar
-peña
-frente
-Me pegué en la frente
-Me pegaron en la frente
-un cerro despeñadero
-ser amargo
-amargo
-¿Qué otra cosa es amarga como esta?
-cuervo
-Los cuervos roban mucho el maíz sembrado
-parecer amargo
-¿Le parece amargo?
-chile
-chile piquín
-chile colorado grande y seco
-otro lado del cerro
-por el otro lado
-atrás del cerro  al otro lado
-regalar
-¡Déme unas tortillas!
-obsequiar, regalar
-miel de abejas
-al otro lado
-zopilote pinto  rayado
-saltamontes
-collar  soguilla con crucifijo
-codiciar  desear mucho
-¿Qué desea?
-El perro desea las tortillas
-envidioso  codicioso
-un palo podrido
-madera fofa seca
-pudrirse
-gorgojo termita
-poner banca
-banquillo
-Siéntate en una banca.
-ra comer
-Comenzarán a comer
-ahogarse
-estar ahogándose
-dar comida  llevar a pasto
-Voy a dar rastrojo al caballo
-Le voy a dar tortillas al niño
-matar
-va a matar
-sombrero
-el que come
-ponerse el paño de lienzo en la cabeza
-paño para la cabeza  la corona
-poner el paño
-otra vez
-Ya me voy
-Ya vino a Samachique otra vez
-leña  madera
-llevar leña
-traer leña
-comer
-Vamos a comer esquite.
-El niño mordió un chile
-hijos
-uno hijos
-chiquitos
-uno chiquitos
-agusanarse
-Hace tiempo murió ese perro; ya está completamente agusanado.
-gusano de la carne
-los puestos menores
-tener hijos
-¿Cuántos hijos tienes?
-que tiene hijos
-mis hijos
-grillo  oruga
-Los grillos chirrían mucho
-perritos
-uno perritos
-tostar
-¡Tuesta la tortilla!
-quemar
-El sol quemó completamente las matas de maíz.
-va a perritos
-tostado
-al otro lado  detrás
-Él vive al otro lado
-de nuevo
-Ellos te invitarán de nuevo
-El perro se enojó de nuevo
-la punta
-En la punta del pino está una aguililla
-el tiempo de calor
-Ya es el tiempo de calor
-llegar el tiempo de calor
-en el tiempo de calor
-escardar
-manzanilla
-espinilla
-Se hizo una cortada muy grande en la espinilla
-en mi espinilla
-Salvador
-ayudar  salvar
-Él vino a ayudarme
-Los niños vinieron a ayudarme
-¡hola!
-Habló saludándole
-tipo de quelite que se come
-tirar
-torcer
-dar vueltas
-voltear
-va a tirar
-espeso
-El esquiate está muy espeso
-derramar  tirar
-vaciar
-va a espeso
-que espeso
-curar
-Curaron la siembra
-Vamos a curar las chivas, ahumeándolas.
-limpiar con humo
-estorbar  molestar
-Me estorba
-Ese hombre me estorbó mucho
-comer
-¿Comerá algunas galletas?
-va a comer
-comiéndolo así
-¿dónde?, ¿a dónde?
-¿A dónde vas?
-tío
-mi tío
-casa de la comunidad
-marido  esposo
-tu marido
-sus maridos
-enviudar
-Enviudó la mujer
-viuda
-viuda
-tener marido  estar casada
-que tener marido  estar casada
-pelo  cabello
-mi cabello
-tener cabello
-que tener cabello
-cerrar los ojos
-Cerrando los ojos vamos a orar a Dios
-que cerrar los ojos
-cerrando los ojos
-¡Cierren los ojos!
-luciérnaga
-pestañear
-dar vueltas  revolver
-malacate
-hilo de lana  pedazos de hilo
-tío
-mi tío
-hace poco
-cruz
-en la cruz
-palmillo con que hacen canastas
-espesarse
-Se hizo espeso
-va a espesarse
-niños  muchachos  chamacos
-niños  muchachos  chamacos
-estar dando vueltas
-saludar
-aguililla  gavilán blanco
-capulín
-fruta del capulín
-tocar la flauta
-que tocar la flauta
-ahogarse  colgarse
-Ya se colgó
-ahorcar  agarrotar  estrangular
-poner mango al hacha
-Voy a poner un mango nuevo al hacha
-flauta
-palo
-mango del hacha
-tostar
-Voy a tostar elotes.
-que tostar
-banca
-tener un cetro de autoridad  tener cargo
-el que tiene un cetro de autoridad  jefe
-hacer justicia
-gritar  relinchar o bramar cantar
-va a gritar  relinchar o bramar
-cuando cantan o gritan
-nalga
-cuello  garganta
-en el cuello
-mi cuello
-en mi cuello
-nuca
-poner vigas solera  viga  trozo
-cepa de un árbol
-menor
-chicos  infantes
-uno chicos  infantes
-feo
-tener granos o llagas
-Tiene muchos granos feos
-antes  hace poco  el otro día
-de antes
-antes
-al principio
-astillarse
-La taza de peltre se astilló al caer
-barba  bigote
-mi barba
-mestizo
-castellano
-tipo de araña
-arrancarse las barbas
-chanate
-lomo angosto y corto
-que tiene ángulo
-muy angosto
-Arriba en la orilla de la mesa hay un bordo angostito
-tipo de culebra de cascabel chico
-tocarse
-secarse
-envenenar
-Un hombre mató un perro envenenándolo.
-va a envenenar
-apretarse  atorarse
-apretar
-raspar
-La cáscara del pino es muy áspera
-que raspar
-venado
-lengua
-mi lengua
-lamer
-va a lamer
-lo sorprendió
-cascabel
-cascabel de víbora
-tener cascabel
-Esa víbora no tiene cascabel
-enfermarse
-Se enfermará más; le saldrán más granos.
-sus granos
-granujoso  lleno de llagas
-sonar mal
-resonar
-tocar a la puerta
-sonaja cascabel del pascolero
-sonaja del pascolero
-coger  agarrar tomar
-elegir
-querer agarrar
-los ancianos
-a un lado
-Andaba a un lado, sin seguir en el camino
-estar feo
-Está feo el terreno, no hay buen camino.
-en lugar feo
-ramitas
-tener ramitas
-tener ramitas
-va a tener ramitas
-ramitas del encino
-quijada
-barba
-feo  mal
-pecar  hacer mal
-malhechor  pecador
-maldad  pecado
-pecado
-pegarse  permanecer fijo
-Se pega abajo
-atajar  atrancar
-¡Atájalo con una piedra abajo!
-acaba de atajar  atrancar
-vieja
-me
-chiva
-cuero de chiva
-cebo de chiva
-estiércol de chiva
-mal
-¡No lo maltrates!
-malo
-manso
-ardilla mediana
-chueco
-palo chueco
-tener comezón
-tener comezón
-va a tener comezón
-que tener comezón
-ratón
-ardillita de la tierra
-cuñado  cuñada
-¿quién?
-robar
-acaba de robar
-fue robado
-robado
-robando
-ladrón
-robar
-El hombre robó el dinero de paso
-pegar
-apuñalar
-robar
-herir
-romperse
-cortarse
-Se cortó en la pierna
-robar
-estar rompiéndose
-roto  quebrado
-robar mucho
-bolsa de cuero  saco de manta  talega
-romper
-cortar
-rasgar
-va a bolsa de cuero  saco de manta  talega
-bolsa de cuero  saco de manta  talega
-ubre
-cócono guajolote
-pegarse  golpearse
-cortarse
-va a cócono
-mamar  tomar pecho
-mamador
-Ese nene es muy mamador
-acornear, picar
-Un toro me picó con sus cuernos
-amamantar  dar el pecho
-dar leche
-desparramarse
-Viven desparramados
-desparramar
-están dispersándose
-desparramados por otro
-picar
-Le picó con un palo
-dar asco menospreciar
-ardilla amarilla
-estar doblándose el filo
-calabacita
-estar doblando
-va a estar doblando
-seno
-teta
-echar chispas
-despeinado
-esconder
-secretamente
-anda escondido
-manta  ropa
-pieza de manta
-rebozo
-peine comercial
-ardilla gris
-plano
-palpitar
-salpicar, brincar
-estar amargo
-El café está amargo, no tiene dulce.
-va a estar amargo
-camote
-Pegándolo con ese camote se fabrica el violín
-amanecer
-Tal vez va a amanecer en un rato.
-va a amanecer
-estar tierno
-que estar tierno
-aplastar
-Aplasté la pulga con mi dedo
-aplastar
-cuchichear  murmurar
-Se oye que cuchichean
-importar
-¿Qué importa?
-no importa
-pasar
-Ya hace dos días
-Mañana va a hacer cuatro días
-Después de dos días regresaré.
-Hace dos días que murió.
-permanecer
-varios cuchichear  murmurar
-pasar la noche  posar
-Pasé bien la noche
-Aquí voy a pasar la noche
-estar sudando
-queja
-Estaban acostados en el suelo gritando sus quejas
-Dirá sus quejas en alta voz
-de ninguna manera
-De ninguna manera pudieron
-humedecerse  tener sudor
-humedecerse  tener sudor
-va a humedecerse  tener sudor
-que humedecerse  tener sudor
-no hay de que
-no hay de que
-hacer echar chispas
-va a hacer echar chispas
-estar echando chispas
-estar echando chispas
-va a estar echando chispas
-echará chispas
-llevar
-Ya maté una víbora de cascabel; la llevaré en la punta de un palito para tirarla lejos
-Tiró el aro con un palito
-salpicar  aletear  brincar
-Cuano se agarra un pez con el anzuelo, entonces aletea mucho.
-estar salpicando
-estar salpicando
-círculos
-Los niños forman círculos.
-uno estar salpicando
-cuñado
-borrego con cuatro cuernos
-tipo de ave pecho amarillo
-todavía
-No llueve todavía
-Todavía llueve mucho
-hacer trenzas
-que hacer trenzas
-hacer trenzas
-quemarse
-Por el sol se quemó su cara
-ennegrecer
-negro
-estar agrio
-estar agrio
-va a estar agrio
-que estar agrio
-hincarse  ponerse de rodillas
-¡Ponte de rodillas!
-en las rodillas
-se arrodilla
-se arrodillan
-en la rodilla
-madrastra
-comenzar una carrera
-Un poco tarde comenzarán la carrera
-entumirse
-Ya se le entumió el pie
-apagar  extinguir
-Yo siempre apago la lumbre cuando salgo de la casa
-apagarse  extinguirse
-Ya se apagó la lumbre
-apagarse  extinguirse
-va a apagarse  extinguirse
-moco
-Ese niño tiene mucho moco.
-mocoso
-tener moco
-nariz
-limpiarse la nariz
-estar ronco
-tener catarro
-hoyo de la nariz
-rojo obscuro  morado
-pegar abofetear, golpear
-Doblando el puño, le pegó.
-va a pegar
-tocando el hombro
-obscurecer
-Ya es tarde, pronto obscurecerá.
-ennegrecerse
-Ese niñito está jugando en la chimenea; se va a tiznar completamente
-acaba de pegar
-va a pegar
-hacer negro
-sucio, obscuro
-a obscuras  en la obscuridad
-hocico
-el pico del pájaro
-máscara
-moverse el hocico
-amarrar el hocico
-taparse la boca y nariz
-Algunas mujeres se tapan la boca porque tienen vergüenza
-ocote
-solamente
-siquiera
-es tocayo
-lo mismo, nada más
-Los dos dijeron lo mismo
-cruzar las piernas
-¡Siéntate!
-doblarse
-El mecate se dobló .
-tener calambre
-ser ocotoso
-veces
-Corrieron dos veces
-varios veces
-al principio  en el principio
-culpable
-tiene la culpa
-lo provocó
-principio
-hacer cabecillas   organizar carreras
-tener trementina
-va a culpable
-mata extendida  sirve como quelite
-estar pegajoso
-que estar pegajoso
-mugre  suciedad
-ensuciarse
-comenzar  empezar  emprender
-Ya empezaremos a trabajar
-encogerse
-encoger
-hacerse encoger  doblarse
-¿qué?
-¿qué quiere decir?
-¿qué pasa?
-¿qué te parece?
-¿cuánto?, ¿qué cantidad?
-¿a qué hora?
-¿qué tan lejos está?
-¿qué clase?, ¿cuál?, ¿qué color?
-de alguna manera
-Vamos a hacerlo de alguna manera
-cualquier color o clase  lo que sea
-De todos modos compraré una camisa de cualquier color que haya
-comer con tortilla
-Va a comer frijoles con tortilla en lugar de cuchara
-comida
-estar parado
-varios estar parado
-gatea
-pararse
-va a pararse
-¿qué?
-¿Qué le voy a hacer?
-tipo de quelite con hojas anchas
-comoquiera
-en dondequiera
-cualquier
-travieso
-panteón
-sepulcro  tumba
-pájaro saltapared
-hacer comoquiera  no hacerlo bien
-espíritu  espanto  fantasma
-Anda un espanto.
-cadáver
-Anda llevando un cadáver
-sepultar  enterrar
-que sepultar  enterrar
-chupar  picotear
-va a chupar  picotear
-venado
-venadito
-tener labios
-en mis labios
-chupar
-comer comida aguada
-va a tener labios
-labio
-ardilla
-higuera
-en la higuera
-higos
-chupar  absorber
-La tierra absorbe el agua
-va a chupar  absorber
-lo chupa
-chupar  sorber
-despuntar
-quebrarse la punta
-Ya se quebró la punta del palo de sembrar
-sacar punta
-agudo, puntiagudo
-Este cuchillo es muy puntiagudo
-¿por qué?
-¿Por qué?
-¿Por qué?
-coatí  cholubo
-perrito
-Hay muchos perritos
-perrito
-¿cuándo?  ¿qué día?
-¿qué día?
-cerro picudo  pico  cima
-¿cómo?  ¿de qué modo?  ¿de qué manera?
-¿qué te parece?
-pollito
-pico del cerro  entre los cerros  en la punta del cerro
-tener reúma  sentir el cuerpo dolorido
-tamaño  tan grande
-¿Qué tan grande es?
-Es de este tamaño
-Es tan chiquito como esa pequeña semilla
-ponerse paño
-en todo tiempo
-todos los días
-cotense
-paño para la cabeza  un cotense
-pájaro
-pico de pájaro
-el nido del pájaro
-¿por qué?
-afilar
-va a afilar
-que afilar
-azulejo
-saltapared
-¿cuál?  ¿qué color?
-cualquiera
-así dice, eso dice
-entonces, más allá
-desde entonces
-ése  ésa  aqué  eso
-esos  esas
-ese  esa
-por algo  por causa de  por lo tanto
-aquel  aquella
-esa cantidad
-Es todo que voy a decir
-así  de esa manera
-tan grande
-ese tanto
-esa clase  tal
-allí por atrás
-Allí, por atrás, viene
-para allá
-Por allá va
-¡Quítate! ¡Hazte a un lado!
-allí  allá  ahí  hacia allá  por allá
-allá viene
-a Samachique
-así hace  eso hace  de ese modo hace
-estuvimos acostados
-Estuvimos acostados pensando
-bueno
-Está muy bueno el frijol.
-bien
-El que estaba enfermo ya está bien
-ponerse de acuerdo
-Todos se pusieron de acuerdo en que se construyese una casa
-muy bien  muy bueno  fino, perfecto
-alabar
-muy bueno
-hacer muy bueno
-bolitas en el encino que se forman en mayo
-mejorarse  convertirse
-estoy seguro
-mejorar
-componer  mejorar
-amar  querer
-que amar  querer
-flecha
-Ese niño anda llevando flechas
-madurarse
-Todavía no se han madurado las manzanas
-que madurarse
-sabina
-vaca  res
-cuero de vaca
-estiércol de vaca
-toro
-muchísimo
-rana verde chiquita
-cuñado
-mi cuñado
-mi cuñado
-rajarse mellarse
-tuétano  médula
-tuétano de determinado hueso
-tuétano  médula
-rajar mellar
-rajar
-va a rajar
-mellar
-mellar
-estar chueco o encorvado
-que mellar
-animalito parecido al alacrán
-atiesarse de frío, enfriarse
-Se murió atiesado.
-va a atiesarse de frío, enfriarse
-enderezarse
-justo
-se va en una línea recta
-parándose derechito
-derecho
-costilla
-mi costilla
-en las costillas
-enderezar
-¡Enderézalo!
-va a enderezar
-derecho
-garza
-esófago
-mi esófago
-zancudo
-chirrionera
-salir
-salir
-va a salir
-los echó fuera del corral
-va a salir
-allá  más
-por allá
-abandonar
-Ese hombre abandonó a su mujer.
-va a abandonar
-escaparse
-varios escaparse
-arrojar
-más todavía  mucho más
-después  más adelante
-más allá después
-aparte  lejos
-apartar
-sacar
-va a sacar
-apartarse
-pasado mañana  anteayer
-Anteayer llegué
-desde anteayer
-hasta pasado mañana
-anteanoche
-secar
-un palo o árbol seco
-en un árbol seco
-secarse
-secar
-seco
-para acá, acá
-más acá en tiempo
-por acá, acá
-perico grande  verde
-endurecerse
-duro  que no se puede doblar
-quizás  tal vez
-Vendrá, tal vez
-huari cesta  canasta
-canasta grande
-ser muy ligero  veloz
-Ese corredor es muy ligero
-que ser muy ligero  veloz
-corre recio
-marchitarse  secarse por el sol
-Cuando no llueve por mucho tiempo, se marchitan las matas
-secar  marchitar
-va a secar  marchitar
-grande  mucho  muy
-Creció mucho el arroyo
-Llovió mucho.
-Está muy gordo
-varios grande  mucho  muy
-mar
-orilla del mar
-como una tabla ancha
-peñasco
-panzón
-enorme  gigante  inmenso
-agrandar
-jefe supremo
-jefe  un grande
-hacer un jefe
-ciudad
-cocinar
-que cocinar
-tierra de cultivo
-tía
-mi tía
-arar  barbechar
-que arar  barbechar
-azadón
-alamillo
-cola
-colear
-cola de la vaca
-suegra
-mi suegra
-que es suegra
-chuchupate
-menear la cola  colear
-Ese perro menea mucho la cola
-pato
-estar fuerte
-fuerte
-derrumbarse
-estirarse
-elástico
-huari grande  canasta grande
-estirar
-hacer atole
-va a hacer atole
-atole  pinole cocido
-hermana menor
-Esa niña es mi hermana menor
-mi hermana menor
-sanguijuela
-muy  mucho
-las viejas
-uno las viejas
-otate  aguijada
-tener padres
-mis padres
-nuestros padres
-dinero  un real
-¿Tienes dinero?
-dos reales
-tener dinero
-cambio
-¿Hay cambio?
-solamente  nada más
-Nada más anda
-criar
-sierra alta
-con fuerza
-¡Trabaja con fuerza!
-¡fuerte!  ¡ánimo!
-nadie
-cosechar  pizcar el maíz 'Huíi 'yena.  Andan pizcando maíz.
-Voy a pizcar maíz.
-coger
-va a ¡fuerte!  ¡ánimo!
-la pizca  el tiempo de la pizca
-que pertenece a la pizca
-cojer  agarrar  arrebatar
-¡Cójanlo!
-¡Cójanlo!
-perderse
-Un niño chico se perdió en la madrugada
-que perderse
-mucho
-muchísimos
-siendo muchos
-palo picudo
-Los tarahumaras siembran con el palo picudo
-perdonar
-Mi padre me perdonó
-¡perdónale!
-¡perdónenle!
-de nada  por nada
-perdón
-Pide perdón
-en muchas partes
-Ese hombre anduvo trabajando en muchas partes.
-surtido
-cantar
-olvidarse
-abejorro  un árbol de las barrancas donde se congregan los abejorros
-hongo
-corteza gruesa
-de la corteza de pino
-estar turbio
-turbio
-enturbiar
-chiflar
-Ese niño chifla muy bonito
-va a chiflar
-aguja
-Esa mujer cose con la aguja
-enhebra la aguja
-castrar
-manzanilla
-piojoso
-cuero  piel
-piojo
-liendres
-suelo
-Vino a pie
-Vamos a pie
-caerse
-Se cayó en el suelo.
-va a caerse
-a pie
-varios a pie
-va a pie
-caer
-Por aquí cayó la bola.
-pegar
-Cuando comenzaba a pegar el sol en la mañana, me levanté.
-varios a pie
-estuche de cuero
-rasparse
-una cuarta
-ardilla chiquita
-mundo
-en el mundo
-lavar
-Una mujer está lavando allí, en el arroyo.
-Se encogió la ropa al lavarla
-quemar chamuscar
-Ya se quemaron los frijoles.
-quemarse
-barro
-estar haciéndose barroso
-barroso
-cacto redondo
-perdido
-pizca  tiempo de la pizca
-Más allá, durante la pizca, habrá mucho maíz
-lazar  amarrar
-parado amarrado
-manteca  sebo
-Ese marrano está muy gordo, y tiene mucha manteca
-que tiene mucha manteca
-varios que tiene mucha manteca
-engordar
-Vamos a engordar un marrano
-sacar
-Voy a sacar las papas de las cenizas.
-va a sacar
-estar colgado
-Está colgado allí adentro
-está colgado
-colgar
-Voy a colgar el fuste allí adentro
-acusar  condenar
-La gente me acusaba
-El comisario de la policía me acusó.
-va a acusar  condenar
-cuando lo acusan
-dinero
-tabaco del campo
-chapalear
-azotar  pegar lo chicotea
-Llegó para azotarnos a nosotros.
-Voy a desvainar el frijol
-azotado
-querían azotarle
-toca la campana
-tener demasiada hambre o sed
-deber
-que debe
-ser llorón
-extraviarse
-multiplicar
-arete
-tener aretes
-Esa mujer tiene aretes muy bonitos
-parar
-Puso parada el hacha, en el rincón.
-elegir
-Me eligieron como capitán
-varios tener aretes
-acaba de tener aretes
-estar parado
-vieja  anciana
-varios vieja  anciana
-parar
-Voy a parar el motor.
-parar
-envejecerse
-Esa mujer se ha envejecido mucho
-envejecerse
-ancho
-Está ancho el río
-Voy a sembrar ancho
-estar largo
-Está largo el palo.
-extenso
-Estaba lloviendo por mucho tiempo.
-alargar
-muy extenso
-¿Dónde está parada la escoba?
-va a estar parado
-parado  nacido
-Es el hijo primogénito
-pararse
-Se paró en la puerta
-pararse
-va a pararse
-varios pararse
-párate
-empezar a llover
-Empezó a llover
-después
-retrasa su llegada
-mucho después
-Muy noche llegó
-Ya era muy noche.
-muy noche
-andar
-Anda cuidando las chivas.
-andar
-va a andar
-pararse  levantarse
-varios pararse  levantarse
-acaba de pararse  levantarse
-¡levántese!
-parándose
-tirar
-desparramar
-zopilote
-Ya voló el zopilote
-coger  agarrar
-arrebatar
-muchas veces  frecuentemente
-Llovió muchas veces
-poner la zapeta
-Voy a vestirme, me pondré la zapeta
-la pieza triangular de la zapeta  un cotense
-paño  trapo
-hacer lodo  batir lodo
-lodo  zoquete
-ciénaga
-enlodarse
-tipo de animalito carnívoro con cola larga
-dar leche  ordeñar
-Esa vaca da mucha leche, voy a ordeñarla.
-donde sale un chorro
-ordeñar
-hacer estiércol
-va a ordeñar
-tener diarrea
-fertilizar la tierra con estiércol
-fertilizar la tierra con estiércol
-mecate
-tierra  barro
-Se hacen las ollas de tierra
-Está buena la tierra; crecerá grande el maíz
-hay tierra
-va a hay tierra
-madre
-tipo de pino
-cada uno  unos a otros
-Cada uno escogió una cosa.
-uno por otro
-chile
-bueyes
-uno bueyes
-hacer aire  soplar el viento
-Hizo mucho aire
-Ya dejó de soplar.
-va a hacer aire  soplar el viento
-abanicar
-mentir
-Ese hombre miente mucho; no dice la verdad.
-que mentir
-negar
-mentir
-quemar
-quemarse
-El monte estaba quemándose mucho
-quemarse
-sembrar
-Sembró mucho
-Ya fué sembrado
-¡siémbrenlo ustedes!
-sembrador
-hay matas de maíz
-hay matas de maíz
-va a hay matas de maíz
-picar  punzar  inyectar
-Le picará con sus cuernos
-matas de maíz
-entre las matas de maíz
-fue sembrado
-ya sembrando
-de siembra
-tierra de siembra
-esconderse
-El niño se escondió adentro de la casa
-sembrado
-todo el cuerpo
-Me duele todo el cuerpo
-son autoridades tienen cargo
-autoridades
-uno autoridades
-tener agujero
-Tiene un agujero grande
-abertura  agujero
-Está en el agujero de la piedra
-agujerar  perforar
-atajar
-Voy a atajar las vacas
-muchachas
-uno muchachas
-tierra
-fuerte
-reforzar
-Esa medicina me reforzó
-tirar
-Luchando lo tiró con fuerza al suelo
-tener fuerza
-fuerte
-Ese hombre está muy fuerte.
-largos
-respirar
-Ya respiró otra vez
-enredar
-El caballo ya enredó la soga
-El caballo está parado enredado.
-¿Cómo caiste? Me enredé.
-lo amarra por las patas
-resollar
-manzanilla
-en la manzanilla
-respiración
-Dios me dió la vida
-el espíritu de él
-dar espíritu  dar vida
-bolsita de gusanos del madroño
-enredarse
-éramos  eran
-Eran tamboreros
-Eran curanderos.
-Éramos muy traviesos
-Son mis hijos
-hígado
-enfermarse bazo
-enfermo del bazo
-caerse
-tropezar
-El niñito se va a tropezar
-voraz
-canasta petaca
-ir
-Allí va.
-venir
-Allí viene abajo.
-caminar
-El que camina para abajo está cansado.
-dar leche
-seguidor
-Ese chiquito es muy seguidor
-entender y hablar español
-volar
-echar a volar
-volarse
-Se va a volar por el viento
-va a volarse
-tipo de árbol chico con hojas amargosas
-admirándolo
-tener fiebre o paludismo
-llano
-Hay un llano largo
-Un llano ya está barbechado.
-hay un llano
-ventilar
-acontecer  suceder
-¿Qué te pasó?
-va a acontecer  suceder
-picar
-Una pulga me picó.
-morder
-desapareciéndose
-saber
-Supe que ya había muerto
-nopal
-nopalera
-abrir
-va a abrir
-llave
-abrirse
-abierto
-Fue abierto por alguien
-estar bueno  servir
-no sirve
-explicar bien
-Explicando bien le dijo esto
-cerco
-junto al cerco
-ciertamente
-descansar
-tiempo de descansar
-hacer descansar
-distintos  diferentes  extraños
-uno distintos  diferentes  extraños
-orinar
-algunos días
-Algunos días no trabajó
-mojar con orina
-orinado
-jugar
-Jugaban con la pelota
-madre  mamá
-mi mamá
-que tiene mamá
-No tiene mamá
-estar abierto
-Está abierta la puerta
-andar
-varios andar
-hasta que
-pararse
-uno pararse
-¡párense!  ¡levántense!
-caballo
-vivo
-parar
-Los paró en el rincón.
-nombrar como autoridades
-¿A cuántos nombraron como autoridades?
-uno vivo
-parados
-estar parados
-estar parados
-uno estar parados
-por aquí  por este lado
-estar contento
-¡oiga!
-algunos  unos
-levantarse
-¡Levántense!
-pararse
-¡Estén quietos!
-uno algunos  unos
-este  esta  esto
-dice esto
-aquí
-Aquí estoy a gusto
-desde aquí
-acá
-Acá está.
-Acá viene
-así es
-así
-esta clase
-¡tómalo con la mano!  ¡ten!
-peyote
-fierro
-fuerte
-fuerte
-poder
-vigoroso  firme
-hacer fuerte  fortalecer
-hecho fuerte
-subir
-Subimos al peñasco
-uno subir
-tener hijos
-Tiene muchos hijos
-que tiene hijos
-ahora
-desde ahora
-hoy día
-con
-Trozé el palo con una hacha.
-por
-por mí
-por eso
-porque
-apresurarse
-apresurar
-tener prisa por irse
-seguir las huellas
-Anduve siguiendo las huellas
-hierro
-seguir huelleando
-andar muchos
-Andan muchos coyotes aquí
-Hay muchas pulgas
-hacer hoyo
-hecho hoyo
-feroces  bravos
-uno feroces  bravos
-camaleón  lagarto cornudo
-hoyo
-en el hoyo
-apuntar  señalar
-va a apuntar  señalar
-¡apúntalo!
-desde  de
-Salió desde allí
-Desde hace un mes vino
-escarbar
-ser  estar
-ser  estar
-va a ser  estar
-atrás
-por atrás
-parado por atrás
-hacia atrás
-oler
-Huele muy feo
-oler
-tener mal olor
-jugar
-¡Juega, tira el palo!
-al fin  finalmente  último
-atrasarse
-anterior
-entarimar
-hacer
-tener esposas
-uno tener esposas
-mesa
-banca
-cama de tablas
-piso de tablas
-esposas
-uno esposas
-sus esposas
-oler
-Huele muy bonito
-que huele
-correr
-Ya van a correr
-uno correr
-correr
-huir
-uno huir
-echar a correr
-enviar  mandar
-¡Mándalo para acá!
-enviar  mandar
-mandado
-sí  seguro
-sangre
-mi sangre
-hacer enramada
-hueja redonda jícara
-vena
-nervio
-hacer huejas
-ardilla amarillenta
-sangre cocida  tripas cocidas
-sentirse adolorido por un golpe
-teñir de anaranjado
-anaranjado
-oxidarse
-oxidado
-enramada
-sangriento
-sangrar  desangrar
-botella de vidrio
-batir  mezclar
-va a batir  mezclar
-batir  mezclar
-hueja alargada especial para sacar agua
-tener hambre
-va a tener hambre
-revolver  menear
-hambre
-abanicar
-dar vueltas al aire
-tremolar
-abanico
-tener rabia  estar loco
-va a tener rabia  estar loco
-enfermar de rabia
-que tiene rabia
-coyuntura
-en la coyuntura
-pegar la rabia a otro
-gastar
-gastarse
-va a gastarse
-usado  gastado
-correr
-Corre recio
-varios correr
-va corriendo
-corriendo
 ya
-Ya vino
-caña de maíz
-ciempiés
-comer caña
-¡vamos!
-arrancarse brincando
-De repente un venado se arrancó brincando
-paloma
-víbora chica con rayas blancas
-cuarta
-agarrar
-diez
-trece
-once
-quince
-catorce
-doce
-dedo
-mi dedo
-garrapata
-saber  conocer
-hay luz
-verse bien
-va a garrapata
-que garrapata
-claramente  que sabe bien
-hubieran conocido
-podía ver
-fue conocido
-sabe leer
-lo extrae  lo saca
-afuera
-Sacó las vacas
-los echa afuera
-sacar
-afuera
-por afuera
-afuera
-claramente
-Lo dijo claramente
-Se ve bien
-ver bien
-claro
-salir
-brotar agua
-descubrir  mostrar
-alacrán
-que puede ver
-ciego
-sabido
-Fue sabido quién era
-tiene fama
-como deben saber
-¡que sepan!  ¡que conozcan!
-agarrar
-ir corriendo
-voltear  revolver
-león  puma
-majahuá tener miedo
-espantarse
-temer  tener miedo
-cobarde  miedoso  temeroso
-temer
-Sería bueno temer a Dios
-asustar  espantar
-espantoso
-atónito
-meter la mano
-asustar
-nervioso
-estuche
-poner un recipiente
-contener un líquido
-Esa olla contiene agua
-va a contener un líquido
-que contiene un líquido
-cuando
-desde que
-dónde
-para  que  el cual  quien
-cualquier clase o color
-tamaño de un caballo
-cuánto
-conque  porque
-como  según
-Resultó un borracho, igual que su padre
-tal como está
-según dice Juan
-a fin de que
-mientras
-hasta que
-Voy a trabajar hasta que gane cincuenta pesos.
-entre tanto  mientras
-semejante
-es semejante
-cualquiera
-Escojan cualquiera que quieran
-hija
-mi hija
-paleta
-en la paleta
-mi paleta
-gemelo
-sobaco
-tener hija el padre
-Tengo una sola hija
-que tenía hijas
-adj  cinco
-en cinco partes
-cinco decalitros
-padre
-mi papá
-cervato
-quinto
-cincuenta
-huir
-varios huir
-abanico
-fugarse
-huir
-amasar
-Voy a amasar
-metate
-mano de metate
-palma
-pinabete
-hombro
-mis hombros
-en el hombro
-llevar cargar
-canas
-tener canas
-creer que sí  pensar  opinar
-Creo que ya vino
-tener celos
-maguey
-Hay muchos magueyes
-traer
-¡Traiga el martillo que está adentro!
-tanto  mucho
-¿Qué tanto llovió?
-No llovió mucho
-ganar sueldo
-si gana
-mezcal
-cordero  borreguito
-estar sentado
-corretear los animales
-arrear  llevar
-aquel  aquella
-¿Cómo te llamas?
-¿Cuántos hijos tienes tú?
-contigo
-lejos
-muy lejos
-alejarse  retirarse
-Se fue a una parte muy lejos
-alejar
-hacer muescas  hacer hueco
-hecho con muescas
-luna  mes
-tener o hacer mes
-Tiene dos meses.
-hacer luna
-labrar con el hacha
-labrado
-astilla
-alacrán
-pegar
-martillar  pegar rápidamente  clavar
-clavar
-marro  mazo
-clavado
-cresta de gallo
-abollarse
-Se abolló el bote al caer
-va a abollarse
-aplastar
-aplastarse
-gato
-asar
-asado  tatemado
-barbacoa
-más allá  poco después
-más allá
-más allá  poco después
-querer matarlo
-acaba de querer matarlo
-va a querer matarlo
-fue matado
-desmayarse
-poner una trampa
-va a poner una trampa
-zarzamora
-trampa de piedras
-una trampa de piedras
-la piedra que cae de la trampa
-ganar
-Me ganó.
-Nos ganaron.
-va a ganar
-aplastarse
-aplastado
-aplastar
-trozar lo corta
-falsearse
-machucarse
-hacer ruido
-doblarse
-descoyuntarse
-sentarse
-asesinar  matar
-va a asesinar  matar
-madrastra
-mi madrastra
-subir
-varios subir
-va subiendo
-sobre  encima
-encima de
-cuero curtido  vaqueta
-ponerse la corona
-la corona
-quelite
-helecho
-tener cerebro
-su cerebro
-bolas que crecen en los encinos
-poner adentro  encerrar
-puesto adentro
-poner
-meterse
-poner  apoyar
-Voy a poner la cabeza en esta esquina
-entrar
-uno entrar
-¡Entren Uds!
-desaparecerse
-Se fueron corriendo y desaparecieron
-hacerse pedazos
-quebrar
-La olla se quebró en pedazos.
-yerno
-mi yerno
-cabeza
-en la cabeza
-cabeza de vaca
-pájaro gris
-menear
-Cuando queremos amarrar ese toro, menea mucho la cabeza
-descabezar
-Ya que esté muerto, vamos a quitarle la cabeza
-nuera
-varios nuera
-mi nuera
-tu nuera
-tener nuera
-sahumar
-Los tarahumaras siempre sahuman cuando bailan.
-acaba de sahumar
-incienso
-donde se quema incienso
-humo
-subir el humo
-Hace mucho humo
-hollín
-ponerse negro ahumarse
-sofocarse por el humo
-ahumar
-hay humo  hacer humo
-va a hay humo  hacer humo
-hacer humo
-moros
-desmenuzar
-desmenuzado así
-poner almohada
-Voy a poner una almohada.
-amarrar yugo
-Ya amarré los bueyes al yugo
-almohada  yugo
-chocarse
-Chocaron de frente
-canas
-Ya está viejo; tiene canas
-tener canas
-encanecer
-pudrirse
-podrido
-ir subiendo
-Va subiendo para arriba, al pico del cerro
-elevar
-morirse  fallecer
-varios morirse  fallecer
-va a morirse  fallecer
-muerto  difunto
-nene  criatura
-Ya nació una criatura
-sentar
-Se sentaron adentro de la casa
-uno sentar
-cuñado menor
-mi cuñado menor
-hacer sentarse  desear sentarse
-Nos mandó sentarnos.
-Nosotros deseábamos sentarnos allí
-estar sentados
-Estaban sentados tejiendo canastas
-levantarse
-Se levantaron
-poner
-Cada uno puso dinero allí donde se deposita dinero.
-amontonar
-lugar donde ponen algo
-cuando están reunidos
-Yo los ví cuando estaban reunidos dentro de la casa
-estar
-Aquí estamos sentados esperando
-uno estar
-estar
-va a estar
-estaremos
-mujeres
-uno mujeres
-dar ataques epilépticos
-epiléptico
-Esa niña es epiléptica; siempre le dan ataques
-aumentarse  rendir mucho
-Aumentó mucho el número de las chivas
-aumentado
-aumentar
-añadido
-tú  usted
-¿Y tú?
-tú
-su
-de usted
-sus
-tirar flechas o balazos
-subir
-sembrar frijol
-Voy a sembrar frijol
-frijol
-Voy a pizcar frijol
-desvaina frijol
-mujer
-varios mujer
-hembra
-gallina
-espiga
-en la espiga
-la espiga de maíz
-espigar
-Ya se espigó.
-va a espigar
-cerca
-hacer un liacho preparar una carga  llevar una carga
-Voy a traer leña
-muy cerca
-prójimo  vecino
-acercarse  arrimarse
-va a acercarse  arrimarse
-poner cerca
-arrimar  acercar
-liacho lío
-chivato  cría de chivas
-llevar una carga
-Estamos llevando carga en un burro
-tipo de pez negro  barbón
-aplastarse
-aplastarse
-el gusano agusanarse
-Ya se agusanó el elote
-aplastar
-levantar
-llevar
-pudrirse
-que pudrirse
-éste  ésta
-hacer lumbre
-quemar
-¡Quémalo en la lumbre!
-enojarse  reñir
-uno enojarse  reñir
-hacer enojar  alborotar
-uno hacer enojar  alborotar
-alcanzar
-Allí en el camino me alcanzará
-quemado
-quemado
-Mandó las tortillas.
-Mandó saludos
-seguir
-uno seguir
-tiempo cuando le seguían
-poco más allá
-¡Párate allá, un poco más retirado!
-de lejos  de un lado
-De muy lejos vino
-oreja  oído
-Pedro le cortó la oreja a Malco
-mecapal
-Llevó un saco de maíz en la espalda amarrado con un mecapal
-oreja de alguien
-borlas de las cobijas
-Ya se gastaron las borlas de la cobija
-ponerse de acuerdo
-Ellos dos están poniéndose de acuerdo
-mariposa
-Muchas mariposas andan allí, entre las flores
-hacer mucho ruido
-Los niños hacen mucho ruido jugando.
-¡Cállate!
-homicida
-pelear
-acaba de pelear
-va a pelear
-enchuecar
-que enchuecar
-maullar gemir  chillar
-El perro gime mucho.
-gime
-está gimiendo
-borrar  tapar la huella
-borrar
-va a borrar
-está borrándose
-cambiar
-Cambiaré un marrano por dos chivas.
-cambiado
-transformar
-amarrar  anudar
-Estos dos mecates no son muy buenos porque están cortos; vamos a amarrarlos para hacer uno largo
-alcanzar
-No me alcanzó el maíz
-pegarse  contagiarse
-Se le pegó trementina en la camisa
-está pegado
-en donde están pegados
-poner juntos
-¡Ponga juntas las calabazas sobre la mesa!
-atizar los tizones
-va a atizar los tizones
-conectar
-repartir  distribuir
-Le mandó distribuirlos
-va a repartir  distribuir
-prender la lumbre  atizar
-Prendió una lumbre grande.
-quemar pelo
-¿Quién le quemó unos pelos?
-prendido
-mirando
-Solamente estaban parados allí, mirando
-llegar
-que llegar
-varios llegar
-viniendo
-raíz
-Ya le salieron raíces
-Tiene raíces grandes.
-raíces de pino
-cantar  entonar himnos
-enraizar
-Ya está enraizado
-dar a luz  parir
-acaba de dar a luz  parir
-nació un niño
-tener raíz
-que tiene raíces
-entre los dos
-Entonces, entre los dos lo agarramos
-Vamos a trabajar los dos juntos.
-¡Vayan los dos juntos!
-avisar  predicar
-el que habla en público  predicador
-tener ganas de predicar
-avisado  predicado
-acercarse
-Se acercó a mí
-Se acercó a la casa.
-Yo me acerqué allí
-hablar en público  predicar
-Le mandó a predicar
-Fue a predicar.
-que hablar en público  predicar
-formar fila
-cuatro
-Lo trajeron entre cuatro
-en cuatro partes
-entre cuatro
-cuarto, cuarta
-cuarenta
-aquí
-lumbre
-en la lumbre
-estar luchando
-uno estar luchando
-luchador  abusador
-seguir
-Quería seguirle
-varios seguir
-¡síguelo!
-ser hermanos
-Son hermanos
-hermanos  primos hermanos
-metamorfosear  transformarse
-La víbora se transforma en ardilla de la tierra.
-caerse
-tumbar
-¡Túmbalos!
-que tumbar
-va a tumbar
-caerse
-Un pino ya se cayó
-oír
-Me duele mucho el oído, no oigo bien entender bien
-acaba de caerse
-va a caerse
-si quiere oírlo
-tumbar
-Ese pino ya está seco; lo tumbaremos.
-va a tumbar
-cosa  animal
-Hay muchas cosas
-cosas notables
-sonar mucho
-tapar
-La tuza ya lo tapó.
-borrar
-acaba de sonar mucho
-va a sonar mucho
-tapado
-estar tirando
-juntar  reunir
-uno juntar  reunir
-tener camisa  ponerse la camisa
-Me voy a poner la camisa.
-Ese niño tiene solamente una camisa
-mi camisa
-ponerle una camisa a otro
-muchas camisas
-quitar la camisa
-pegarse  quedarse pegados
-pegar  juntar  unir
-varios pegar  juntar  unir
-juntarse
-Ya se juntó mucha gente
-nos juntaremos
-estaban juntos
-estaban juntándose
-lugar donde se juntan  tiempo en que se juntan
-juntos  unidos
-los que se juntan
-Voy a hablar a los que se juntan primero
-tipo de avispa amarilla
-tábano
-remendar  volver a coser
-juntarse
-Esa chiva andaba aparte, pero ya se juntó con las otras.
-juntarse
-Ese hombre ya se juntó con una mujer
-también  con  juntos
-Comeremos frijoles con tortillas
-en la chimenea  en la lumbre
-escardar  deshierbar con azadón
-Ya escardó las matas de maíz
-Voy a escardar frijol
-hacer nixtamal
-Después de hacer nixtamal, voy a hacer tortillas.
-acaba de hacer nixtamal
-va a hacer nixtamal
-nixtamal
-polvo  ceniza
-acaba de nixtamal
-va a nixtamal
-deshierbar
-Voy a deshierbar con la mano.
-El palo ya se quebró.
-El mango del hacha se quebró.
-deshierbado
-tuna
-En la barranca hay muchas tunas
-El nopal ya tiene tunas
-clueca
-Esa gallina ya está clueca
-quebrar
-Voy a quebrar las ramitas en pedacitos
-cubrirse la cara
-pañuelo  lienzo
-Voy a comprar lienzo
-Voy a ponerme el paño en la cabeza.
-Tiene el paño puesto alrededor de la cabeza
-enclocarse
-La gallina ya se encluecó empollar
-No están empollados los huevos
-el huevo se empolla
-puerto
-tener oídos
-¡Los que tienen oídos, oigan!
-que tener oídos
-sordo
-que tiene orejas
-querer  desear
-va a querer  desear
-si quiere
-amarrar juntos
-despreciar
-odiar
-Siempre viven odiándo el uno al otro
-permitir
-¿Quién le permitió entrar aquí?
-¿No me permite ir?
-va a permitir
-llorar
-varios llorar
-oír llanto
-caracol
-llorón
-naranja
-recibir  aceptar
-va a recibir  aceptar
-que recibir  aceptar
-recibiéndolo
-saludar
-¡Salúdale!
-Tocándole el hombro, le saludó.
-acaba de saludar
-va a saludar
-quebrarse
-oír que se quiebra
-oír que se quiebra
-lobo
-lugar cerca
-quebrar
-lugar cerca
-con  también
-Traeré maíz, y frijol también.
-mezclado con
-Trajo leña seca, mezclada con leña verde
-araña
-telaraña
-hacerse enemigos
-tener flojera
-va a tener flojera
-perezoso
-medio
-medianoche
-mitad
-miércoles
-guardar  esconder
-que guardar  esconder
-fue guardado  fue escondido
-mezclarse  revolver
-revuelto
-mezclar
-va a mezclar
-que mezclar
-estar mezclándose
-¡Mézclalo!
-pensar
-¡Piense!
-va a pensar
-perforar  taladrar
-tonto
-salir por el otro lado
-pensador  inteligente
-difícil  trabajoso
-Está muy difícil
-Es muy trabajoso, tal vez.
-Era muy trabajoso
-costoso  que vale
-costoso  que vale
-encontrar
-va a encontrar
-listón
-pagar
-¡Que Dios se lo pague!
-que pagar
-¡gracias!
-dar las gracias
-agradecer
-pagar
-¿Cómo le pagan?
-que pagar
-atajar
-paga  valor
-valer  costar
-¿Cuánto vale?
-tener lástima o compasión  compadecer
-tener lástima o compasión  compadecer
-mucho antes
-Vivieron mucho antes
-antepasado
-Vamos a dar comida a los espíritus de los antepasados.
-varios antepasado
-almas de los antepasados
-enfermarse  estar enfermo
-Se enfermó y murió
-Mi papá está muy mal
-varios enfermarse  estar enfermo
-enfermarse
-enfermo
-Los que están enfermos
-varios enfermo
-enfermedad
-varios enfermedad
-nuestras enfermedades
-poner enfermo
-ver
-Fue a verlo
-Fueron a verlo.
-¡Vayan a verlo!
-va a ver
-¡Véanlo!
-a verlo
-a verlo
-mirar  observar
-muy  sumamente
-cuando estaban viéndolo
-igual
-Se parecen mucho
-es igual
-usar
-acordarse  recordar
-No recuerdo
-Yo no recuerdo.
-va a acordarse  recordar
-hacer recordar
-los confundieron
-me equivoqué
-necesitar  hacer falta
-A los tarahumaras les hace mucha falta el maíz.
-falta de algo
-estar mirando
-mirar
-¡mira!  ¡fíjate!
-voz
-muy hablador
-hablar malas cosas
-ser hablador
-muchísimo
-mostrar
-ni uno
-ladrar
-acaba de ladrar
-va a ladrar
-oír ladridos  aúllan
-estar orgulloso  vanagloriarse
-asesino  homicida
-hacer estorbo
-que anda estorbando
-viéndolo  mirando
-Estaban parados, mirando
-ayudar  salvar
-ayudante
-hacer
-que hacer
-haciéndolo
-hacerse
-tener  poseer poseedor  rico
-¿Quién es el dueño?
-mío
-tuyo
-de él
-del perro
-El mango de hacha se hace del fresno
-estar haciéndose rico
-Ese hombre está haciéndose muy rico, porque su ganado está aumentando mucho
-relampaguear
-En la madrugada relampagueó mucho
-comprador de maíz
-casarse
-que casarse
-hacer
-El hombre me hizo una casa
-hacer
-hacer
-seremos  estaremos
-sería  serían
-era
-siendo
-dar  entregar
-Dios da el día bueno
-¿Quién se lo entregó?
-Ese hombre lo entregó
-yo
-mi  mía  mío
-hacer caso
-Ese hombre no me hizo caso
-No quería obedecerme.
-contestar  responder
-Cuando le hablé, no me contestó.
-va a mi  mía  mío
-¡Pon atención!
-dar  entregar  obsequiar
-Yo le di dinero
-¿Quién se lo dio?
-que dar  entregar  obsequiar
-estar luchando
-varios estar luchando
-hacer caso  responder
-¡Haga caso!
-obedecer
-El niño no obedece; pero yo le voy a hacer obedecer
-invitar
-invitar
-tener celos
-celoso
-yo a ti
-Yo te amo
-contradecir
-ver
-Verá para arriba
-¡Abre los ojos y ve!
-¡Vean!
-cobrar
-Ese hombre cobró mucho
-cobrador
-picar
-Las pulgas pican mucho
-picador
-aullar
-uno aullar
-parecer bien
-Le pareció muy bien.
-respetar
-como
-Tomó una mujer como esposa
+te
+ti
 ser
-¡Así sea!
-Ese hombre quiere hacer grande
-sean
-¡Sean buenos!
-animar  dar fe
-jactancioso  vanidoso
-hay
-Hay mucho maíz
-acaba de hay
-va a hay
-cuidar  pastorear
-pastor
-empujar
-aplastar
-La gente aplastó a un hombre porque estaban parados muy juntos
-patear
-Ese caballo patea mucho.
-Ese caballo me pateó
-adelantarse
-Esos corredores ya se adelantaron mucho.
-acaba de adelantarse
-va a adelantarse
-hacer sonidos
-oír una voz
-soltar
-acaba de soltar
-vencer  ganar
-Ese hombre ya ganó.
-varios vencer  ganar
-soltarse  escaparse
-hijo
-mi hijo
-confiar
-admirar
-Yo admiro las flores
-moverse
-va a moverse
-moverse
-Empezaron a moverse
-moverse  temblar
-Tembló la tierra.
-va a moverse  temblar
-que se puede mover
-travieso
-malhechor
-mover
-Hicimos dos días en ir allá abajo al río
-comenzar a decir
-seguir haciendo algo
-Siempre seguiremos haciéndolo
-Siguió haciendo mal.
-Seguiremos haciendo bien
-acaba de seguir haciendo algo
-va a seguir haciendo algo
-tentar  tocar
-¿Quién le había tocado?
-tentándolo
-trabajar
-Me mandó a trabajar
-va a trabajar
-¡Trabaja!
-¡Trabajen ustedes!
-queriendo trabajar
-obrero  trabajador
-poner a trabajar  ocupar
-que poner a trabajar  ocupar
-donde hay trabajo
-emplear
-difícil
-Es muy difícil hacer un violín
-trabajo
-¿Hay trabajo aquí?
-a trabajar
-Fueron a otra parte para trabajar
-casi
-Casi acabamos
-Casi se llenó.
-Casi.
-Casi siempre
-tener un hijo
-que tiene un hijo
-gorgojo de la tierra
-orgulloso
-tener orgullo
-inundar
-Cuando creció el arroyo se inundó completamente esa casa
-cubrir
-El agua lo cubre completamente
-mover
-moverse
-moverse
-traer
-acaba de traer
-va a traer
-marchante
-rodear
-acaba de rodear
-estar nublado
-que estar nublado
-nublarse
-acaba de nublarse
-va a nublarse
-dar vuelta
-Ya dí una vuelta alrededor del cerco
-ir alrededor  rodear
-nube
-nublarse
-vuelta
-Vamos a correr diez vueltas
-alrededor
-volver  venir
-Mañana volveré
-Cuando venga yo te lo daré
-andar dando vueltas
-que hace vueltas
-Semana Santa
-ocultarse
-desaparecerse
-descomponer  echar a perder
-lo que destruye o descompone
-descomponerse
-que se descompone
-lugar en que se descompuso
-quiere descomponerse
-descomponiéndose
-si se descompone
-que sigue a otro constantemente porque lo quiere
-mandar  ordenar
-acaba de mandar  ordenar
-el que manda a otros
-los mandamientos de Dios
-ley  mandamiento
-mandar
-Me mandó
-el que manda mandado
-guardar  retener
-Vamos a guardar los huevos dentro de la casa.
-alzar
-tener comida
-va a el que manda
-lonche  merienda s nututa  hacer merienda
-doler
-tiene dolor
-pino
-corazón del pino
-entre los pinos
-donde hay pinos
-dormir
-uno dormir
-corcové
-en dos partes
-hojarasca de pino
-de
-dos
-de dos en dos
-entre dos
-ambos
-estar plano
-criar
-tener huesos
-Tiene huesos muy chuecos
-Esta carne tiene muchos huesos
-crecer
-Ese niño creció mucho.
-envejecer
-tiene hipo
-viejos  ancianos
-viejo un viejo
-hueso
-huesos de res
-abuelo paterno
-nieto
-mi abuelo paterno
-pegar
-le pega a uno
-chamuscar
-quemarse
-mugriento
-barro
-flecha
-Anda llevando flechas
-curar
-acaba de curar
-va a curar
-medicina  remedio
-grande
-Los niños ya crecieron grandes
-medicina  remedio
-Gritaron recio
-Habló en alta voz
-los grandes  los jefes
-uno los grandes  los jefes
-los más grandes
-invitar
-que invitar
-lazar  enlazar
-zurdo
-levantar
-levantarse
-acaba de levantarse
-varios levantarse
-levantar
-resucitar
-comenzar
-izquierdo
-respetar  obedecer
-dar comida
-macho
-gallo
-oso
-también
-Me dieron tortillas con frijoles también
-en todas partes
-hacer fiesta
-va a hacer fiesta
-día de fiesta
-fiesta
-domingo
-vencer
-Ese hombre me venció
-ser venenoso
-Ese hongo es muy venenoso
-estar difícil
-Estaba muy difícil
-trabajoso
-poder
-poderoso
-poder
-acaba de poder
-pudiendo
-estar triste  entristecerse
-va a estar triste  entristecerse
-entristecer
-triste
-doctor  médico
-tener padre
-que tiene padre
-padre
-el padre de él
-padre
-estar enojado
-Está demasiado enojado
-tener costumbre de hacerlo
-Así teníamos la costumbre de hacerlo.
-uno tener costumbre de hacerlo
-Dios Padre
-tener costumbre de hacerlo
-Entonces yo tenía la costumbre de hacerlo así.
-varios tener costumbre de hacerlo
-vomitar  basquear
-arrancar  sacar
-Voy a sacar el poste
-arrancar
-hueco
-Ese madroño estaba hueco
-tía
-mi tía
-rata de zacate
-hacer  obrar
-Me obligó a hacer el mal
-Le mandó hacerlo.
-Anduvimos pensando en como lo podríamos hacer
-haciéndolo
-tiene ganas de hacerlo
-desgranar maíz
-Estoy desgranando maíz
-maíz desgranado
-tener filo
-Tiene buen filo
-El cuchillo tiene filo
-afilado
-afilar
-va a afilar
-querer
-Quiso comer
-Quiso irse
-huella
-Aquí hay huellas de coyote
-ladear
-español
-tambalearse
-español  mestizo
-castellano
-táscate
-hacer así
-acaba de hacer así
-va a hacer así
-que enseña a hacer mal
-curar
-gemir
-El perro anda gimiendo.
-oír gimiendo
-ladear
-Se ladeó la carga
-Se ladeó el poste
-quebrar
-plato regional
-escribir
-Aprendí a escribir
-va a escribir
-escrito
-segundo
-Ya era la segunda vez
-empalmado
-veinte
-ocho
-octavo
-ochenta
-escribir
-No me ha escrito todavía.
-pintarse  marcar
-Los fariseos ya se pintaron de blanco con una piedra blanca.
-que ochenta
-la escritura de Dios
-en el libro de Dios
-papel  carta
-leer
-levantar una acta
-tipo de quelite de agua
-muela
-canasta grande
-rama grande
-echar ramas grandes
-tener ramas grandes
-enramada
-derecho
-curandero  médico
-regañar
-dar consejos
-llamar la atención
-vomitar  basquear
-Tuve ganas de vomitar
-poco a poco
-Poco a poco les darán maíz
-¡Sálganse de dos en dos!
-pájaro carpintero
-tener ganas de vomitar
-traer
-Muchas cosas fueron traídas
-Trajeron muchas cosas.
-Estaban trayendo muchas cosas
-tirar  echar
-Tiró su palo en el juego
-arriba
-lavar
-acarrear
-Muchos hombres acarrean maíz
-uno acarrear
-colar
-adentro
-El perro se escondió adentro de la casa
-debajo
-meter
-encarcelar
-dentro  por adentro
-elote  mazorca
-elote tostado
-remendar
-remendando  si lo remienda
-gotear
-lavar
-¡Lava ésta!
-bautizar
-Yo fui bautizado de niño.
-que gotear
-él que bautiza
-el día anterior
-El día anterior me dijo
-gente
-Se juntó mucha gente
-mi gente
-remojar
-que tiene grumos el atole
-querer traer
-arriba
-por arriba
-lavarse las manos
-lavándose las manos
-por allí más arriba
-echar  tirar
-¡Échalo a la lumbre!
-Le tiró una piedra
-remojar
-zorrillo
-echado
-zanja aguaje  ojo de agua
-zorrillo pinto
-poco
-pocos
-muy poco
-poquito
-extender
-va a extender
-extendido
-hacerse pedazos
-retirar
-por favor
-chaparro
-un rato
-demora
-demoran
-tendidos
-poquito
-poco a poco
-tibio
-fumar
-va a fumar
-cigarro
-Déme un cigarro; ya voy a fumar
-aprender
-que puede aprender
-poner   extender
-petate
-por favor
-zambullirse
-Voy a sacar peces zambulléndome en el agua
-formarse un remolino
-remolino
-hasta
-Hasta mañana
-barrer
-Ya está barrido aquí
-que barrer
-escoba
-zorrillo gato de algalia
-fumador
-remoler
-acaba de remoler
-va a remoler
-¡remuélala!
-peón
-varios peón
-mi peón
-quitar el aparejo
-vivir  morar  habitar
-va a vivir  morar  habitar
-uno vivir  morar  habitar
-moradores  los que viven
-uno moradores  los que viven
-¿qué?
-¿qué es?
-¿qué te mordió?
-en la laja
-brincar
-pescar con anzuelo
-va a pescar con anzuelo
-cubrir  tapar
-¡Tápalo!
-que cubrir  tapar
-destapar
-llenarse
-uno llenarse
-los llena
-se llenan varios
-estar desabrido
-que estar desabrido
-ponerse una faja
-faja
-faisán
-El faisán corre muy ligeramente
-soplar
-soplando
-tener  poseer
-La gente de aquí tiene muchas vacas.
-uno tener  poseer
-posesor
-Esos caballos son míos
-irse a ceñir
-cinturón  faja
-Fue una zorra. Era zorra
-Siendo viejo murió.
-¿No está?
-hija grande
-Esa mujer tiene dos hijas grandes
-retumbar
-Retumba muy fuerte
-masticar
-Masticó bien
-tuyo
-mío  mía
-sus
-quizá  quizás  tal vez
-nuestro  nuestra
-su  sus
-no
-siete
-solamente siete días
-séptimo
-setenta
-aborrecer
-Ese hombre me aborrece mucho
-va a aborrecer
-que aborrecer
-hacer cosquillas
-traer leña
-Anda trayendo leña
-Le voy a hacer que traiga leña.
-acaba de traer leña
-va a traer leña
-cobija
-su cobija
-nueve
-noveno
-noventa
-tener cobija
-se llevó un cobija
-se llevará una cobija
-tapándose con la cobija
-sábana
-morder
-El perro le mordió muchas veces
-acá  por acá
-Tráigalo para acá
-después de lo acontecido
-nevar
-Nos nevó mucho en el camino
-va a nevar
-que tiene nieve encima
-nieve
-escuchar
-¿cúanto?
-calmarse pararse
-Se paró la lluvia
-acaba de calmarse
-hija
-¿De qué mujer es hija esa muchacha?
-Tengo una sola hija
-crujir los dientes
-quieto  silencio
-¡Cállate!
-poco a poco
-cocer quelites
-juntar quelites
-Voy a juntar quelites
-acallar
-reprender
-prohibir
-va a quieto  silencio
-cordón alto  cordillera  cerro
-en la mesa alta
-tener calambre
-entumido
-semilla
-semilla de calabaza
-quitar las semillas
-lirio colorado
-llevar envolver
-palma alta de las barrancas
-aplastarse
-aplastar
-va a aplastar
-estar pando
-que estar pando
-asentarse
-conocer
-acaba de conocer
-va a conocer
-ligamento
-en los ligamentos
-mis ligamentos
-ligamentos de la mano
-día
-Hace buen día
-hacer el día
-en el día
-pecho
-¡Vuélvete para acá!
-Volvió con el pecho para allá
-Volverá otra vez con el pecho a otro lado.
-mi pecho
-que tiene pecho
-en el pecho  en el buche
-gavilán negro
-mediodía
-que tiene apetito
-hablar  platicar
-va a hablar  platicar
-que hablar  platicar
-durante el tiempo de hablar
-habiendo hablado así
-hablando con él
-orar
-hablador
-idioma
-palabra
-gustar
-¿Te gustó?
-¿Te gustará?
-alumbrar  arder  quemar
-acaba de alumbrar  arder  quemar
-va a alumbrar  arder  quemar
-ardiente
-peñasco
-Estaba parado sobre el peñasco
-Aquí hay peñascos.
-hay peñascos
-encender ocote iluminar
-Encendí un ocote para ver, y lo busqué.
-¡Alúmbrame para acá!
-¡prende el ocote!
-alumbrando iluminando  encendiendo
-tener espinas
-prender  arder
-va a prender  arder
-está ardiendo
-vela
-derramarse
-extender  esparcir
-va a extender  esparcir
-diente
-Le duele mucho el diente
-mis dientes
-tener dientes
-quedar entre los dientes
-en el diente
-muela
-ponerse negro por un golpe
-hacer bromas
-parir
-va a hacer bromas
-que hacer bromas
-mi hijo
-estéril
-sonar
-Suena el maíz al tostarse
-tirar tronar la pólvora  disparar
-suena un tiro o un trueno
-tener hijo
-que tiene hijo
-que tiene hijos
-talón  calcañar
-Le duele su talón
-mi talón
-ortiga
-agacharse
-rajarse  partirse
-se está partiendo
-rajar  partir
-va a rajar  partir
-que rajar  partir
-ayer
-rendija
-laja
-en la laja
-rebanar
-Voy a rebanar la carne para hacer cecina.
-cecina
-arreglar un patio para bailar
-un patio hecho
-hay laja
-en la laja
-que tiene laja
-rastrillo para limpiar el patio
-patio
-darse semilla o fruta  producir
-que darse semilla o fruta  producir
-empujar
-desparramarse  extenderse
-desparramar  extender
-va a desparramar  extender
-comprar
-¡Cómprenlo Uds.!
-va a comprar
-comprador
-pie
-correr con la bola
-rayar caer un rayo
-tarahumara  gente
-interpretar  traducir al tarahumara
-idioma tarahumara
-traducir al tarahumara
-vender
-Te vendí un caballo
-vender
-¡Véndame!
-acaba de vender
-va a vender
-machucarse
-blando
-machucar
-va a machucar
-estar machucando
-desobediente  que no hace caso
-Ese niño no hace caso; sigue haciendo lo mismo
-oxidarse
-que oxidarse
-ligamentos de rodilla
-en los ligamentos de la rodilla
-deslumbrar
-calentarse
-fibra de maguey
-fibra para hacer sogas
-hacer calor
-acaba de hacer calor
-va a hacer calor
-que hacer calor
-tirar con rifle
-relumbrar  resplandecer  brillar mucho
-cuando hace calor cuando reluce
-calentar
-brillante
-tirar con rifle
-agujerear
-tener calentura
-tío  tía
-primo  prima
-hacer sol  brillar el sol
-va a hacer sol  brillar el sol
-el sol
-asolearse
-poner acostado
-varios poner acostado
-tierra blanca
-Los fariseos ya se pintaron con tierra blanca
-tumbar
-que tumbar
-comadreja
-pedernal  piedra blanca
-tener troja troj
-troja troje
-en la troja troje
-hacerse un hoyito redondo
-frijol grande  colorado
-hacer un hoyito redondo en la laja blanca
-emborracharse
-peñasco  picacho
-grillo
-rana verde  grande
-rana verde  grande
-borracho
-varios borracho
-que emborracha
-rana grande, obscura
-tío
-mi tío
-estar pando  pandearse
-acaba de estar pando  pandearse
-va a estar pando  pandearse
-que estar pando  pandearse
-hecho pando
-jugar
-varios jugar
-malgastar
-jugar
-va a jugar
-echado a perder
-ver  hallar
-va a ver  hallar
-nombre
-hacerse liso
-que hacerse liso
-alisar  aplanar  cepillar
-va a alisar  aplanar  cepillar
-estar alisando
-nombrar
-llamarse  tener nombre
-tener vergüenza
-va a tener vergüenza
-que tener vergüenza
-avergonzarse
-sinvergüenza
-cuesta arriba
-Voy para arriba en la cuesta
-Voy subiendo la cuesta
-mostrarse
-en el cielo  en la gloria
-cuesta arriba
-mostrar
-acaba de mostrar
-va a mostrar
-para arriba en la falda
-nopal castilla
-viéndolo
-gemir  lanzar quejas
-que se queja
-limpiar
-Voy a limpiar los frijoles
-echarse a perder
-desperdiciar
-va a limpiar
-que limpiar
-gemir
-para arriba
-jugador
-arroyo
-desgastarse
-granizo
-Cae mucho granizo
-mentar
-poner apellido
-que granizo
-estar llamándole
-jugar cuatro  jugar teja
-hermano
-varios hermano
-mi hermano
-tener hermano
-grajea cellisca
-caer grajea
-vivir allí
-¿Vive alguien allí?
-lugar donde vive gente
-¡que vivan!
-¡Que vivan tranquilos Uds.!
-aguantar
-que aguantar
-hombre
-hogar del hombre
-hígado del hombre
-intestino del hombre
-joven
-varios joven
-hacer tortillas
-curandero
-crucifijo
-pisotear  trillar
-sapo  rana
-pedregal
-soñar
-estar soñando
-nivelar
-estar parejo
-boca arriba
-abrir
-va a abrir
-parejo
-voltear
-al revés
-voltearse
-revolcarse
-caerse
-inclinado
-emparejar  hacer parejo
-entarimar
-lugar del patio donde está arreglado parejo
-boca
-mi boca
-en la boca
-un tipo de serpiente
-tronar el cielo
-El cielo truena
-estar tronando el cielo
-retronar
-iglesia  templo
-en la iglesia
-la iglesia de ellos
-Dios
-nuestro Dios
-arriba
-muy alto  muy arriba
-de arriba  por arriba
-está muy alto
-asustarse  brincar de susto
-escarpado
-sobre encima
-arriba en el cordón
-rascar
-para arriba
-loma
-quedar
-Se quedó sólo una
-varios quedar
-saltapared
-en la laja
-cuchillo
-espalda
-en la espalda
-mi espalda
-despedir
-tuza
-trozarse  cortarse
-montón
-basura  abono
-en la basura
-pulga
-trozar  cortar
-va a trozar  cortar
-al tiempo de cortarlo
-atravesar
-hacha
-mango de hacha
-pisar
-bajar
-acornear
-El venado acorneó al perro
-bajar
-ir cuesta abajo
-varios acornear
-abajo
-de abajo
-allí cuesta abajo
-hacer cimiento para una casa
-suelo
-ahondar
-echar a cuestas
-abajo  más abajo
-por abajo
-Se va allí, por abajo
-sur
-México queda al sur
-de abajo
-más abajo
-por el lado de abajo
-lucero
-papas
-eructar
-Terminando de comer, eructa.
-zumbar
-Se oye zumbar el camión de carga
-licencia  permiso
-Con permiso
-conceder  autorizar  permitir
-tiene poder
-cansarse
-va a cansarse
-que cansarse
-cansar
-miserable  tacaño
-cueva
-una cueva
-en la cueva
-están cayendo
-pobre
-varios pobre
-sufrir
-quejarse
-sufrir
-atormentar
-piedra
-musgo
-montón
-patear
-Me pateó
-Me pateará, tal vez
-el que ve
-Los que vivieron hace mucho nunca vieron mestizos
-bostezar
-ver
-acaba de ver
-va a ver
-hermanos
-uno hermanos
-mis hermanos
-siendo hermanos
-helarse
-mirar  admirar
-Allí en la ciudad anduve admirando cosas de todas clases
-tecolote grande
-hay hierba
-donde hay hierbas
-Allí, donde hay hierbas, perdí una cosa
-crecer muchas hierbas
-jugar
-uno jugar
-tronar
-estar hondo
-acaba de estar hondo
-va a estar hondo
-donde está hondo
-hondo
-noche
-hoy temprano  en la madrugada
-de noche
-anoche
-hay tinieblas
-obscuridad  en las tinieblas
-cóncavo
-hecho hueco
-hojas grandes de encino
-obscurecerse
-rata montés
-lagartija negra
-pez  pescado
-escama de pez
-entretejer  hacer mecates
-tipo de quelite
-codorniz
-derramar
-que derramar
-surcar
-Voy a surcar con el arado
-poner acostados
-uno poner acostados
-tumbar  poner acostados
-correr con aros
-atizar
-cultivar
-aro
-conejo
-volver por atrás  dar vueltas
-arrepentirse
-apartarse
-uno apartarse
-cambio
-apartar
-separar
-aguantarse
-durar mucho
-largartija pinta
-encino
-hay encinos
-raíz de encino
-apartarse
-varios apartarse
-el que los aparta
-separado  apartado
-apartar  despedazar
-Voy a apartar las chivas de los borregos.
-va a apartar  despedazar
-uno apartar  despedazar
-entre los encinos
-Un venado desapareció entre los encinos
-bellota
-flexible
-volver por atrás  dar vueltas
-doblar
-enrollar
-¡Enrolla el mecate!
-va a volver por atrás  dar vueltas
-estar doblándose
-enrollado
-coyuntura
-tobillo
-hueso de la muñeca
-invierno
-lloviznar
-Era cuando estaba lloviznando
-comenzar el invierno
-Ya comenzó el invierno otra vez
-tener pies o patas
-hervir
-hacer espuma
-tener espuma
-quitar la espuma
-ponerse los pies
-hervirse
-va a hervirse
-hervir mucho
-pie  pata
-mi pie
-quitar las patas
-lavarse
-manear
-estómago  vientre
-Le duele el estómago
-mi estómago
-en mi estómago
-cinchar
-Ya cinché ese caballo
-cincha
-tener estómago
-Tiene grande el estómago
-panzón  encinta
-Está embarazada
-jorobado
-panza
-rata
-bramar  mugir  rugir
-Brama mucho el toro
-Ruge mucho el león.
-sonar
-gruñir
-roncar
-enfriar
-enfriar
-tráquea
-mi tráquea
-bramar
-zumbar
-cuajarse  congelarse
-congelar
-lucero
-medio blanco  gris pardo
-blanco
-varios blanco
-blanquear
-blanquearse
-hecho blanco
-blanquear
-pálido
-emblanquecer
-nido
-tordo
-despintarse
-toser
-va a toser
-pato
-nido
-nido de pájaro
-tipo de maíz blando
-Voy a tostar maíz blando
-salamandra
-sauz
-avisar
-descubrir
-va a descubrir
-estar obscureciéndose
-grillo
-preguntar
-preguntándole  interrogándole
-gato montés
-liebre
-caerse
-uno caerse
-están cayendo
-caminarse dormido
-estar grueso
-grueso
-frío  fresco
-hace frío
-acaba de hace frío
-va a hace frío
-tengo frío
-sonaja
-sonaja del corredor
-tomatillo
-intérprete
-moler
-Voy a moler sal
-molleja  buche
-avisar  aconsejar  informar
-¡Vayan a avisarle!
-¡Vaya a avisarle!
-Me avisaron algo acerca de ellos.
-va a avisar  aconsejar  informar
-avisándole
-le manda decir
-oler  olfatear
-seguir olfateando
-hacer brasas
-conseguir
-Te voy a conseguir una vaca
-zacate
-tipo de rana verde  sapo
-secar
-tipo de pino
-hoja
-hojas de encino
-tener hojas
-que tiene muchas hojas
-quemar
-curar  sanar
-¡Sánele!
-¡Cúrenle!
-que curar  sanar
-sonaja
-brotar
-retoñar
-caerse
-quemarse  hacerse brasas
-estar volviendo en brasas  quemarse la comida
-aliviarse
-va a aliviarse
-brasas  carbón
-temblar
-temblar
-lombriz de tierra
-remojar  mojar
-estar mojado
-va a estar mojado
-húmedo  mojado
-en algún lugar mojado
-humedecerse
-mojarse
-remojar
-sedimento del tesgüino
-carne
-carne de chiva
-cecina
-engordarse
-engordar
-enflaquecerse
-estar gordo  tener cuerpo
-acaba de estar gordo  tener cuerpo
-va a estar gordo  tener cuerpo
-gordo
-desnudarse
-desnudo
-hacer palomitas de maíz
-tostar
-apurarse
-acaba de apurarse
-va a apurarse
-apurarse mucho
-que se apura mucho
-hacer esquite
-va a que
-comal
-saliva
-salivar  babear
-amarillo  anaranjado
-resbalarse
-arena
-arenal
-arenoso
-ensuciar con arena
-quitar la arena
-víbora de cascabel
-enemigo
-Es mi enemigo
-varios enemigo
-estar en contra oponer
-sonaja de pascolero
-de repente
-de repente
-temblarse
-alcanzar  llegar
-lograr
-llegar a ser
-cuando llega el tiempo
-lugar donde lo alcanza
-completar  cumplir
-Tan pronto como complete esa cantidad de dinero, le pagaré
-bastante
-completo
-tengo suficiente
-florecer
-llegan
-acaba de llegan
-uno llegan
-los que llegan
-hacer
-Ese hombre hace malas cosas
-los que hacen
-dilatarse
-Se dilató mucho
-No se dilatará
-suegro
-Es el suegro
-mi suegro
-chiltipiquín
-renacuajo
-trasquilar
-Ya trasquilé al borrego
-Está trasquilándolo.
-acaba de trasquilar
-va a trasquilar
-brazo
-mis manos  mis brazos
-en mi mano
-en la mano
-a mano
-Lo hizo a mano
-aplaudir
-bracear
-estar mocho de una mano
-mover
-va a mover
-tipo de calabaza
-en un rincón
-apoyar en el rincón
-hacer ruido
-salir legaña
-tener legaña
-legañoso
-olla  jarro
-hacer ollas
-su olla
-hormiga
-tripas  intestino
-tripas de vaca
-tener tripas
-florecer
-va a florecer
-flor
-calmarse
-Se calmó
-pestaña
-mis pestañas
-en otra parte
-de otra manera  en cambio
-estar empachado
-se hincha
-vejiga  ampolla
-vejiga de vaca
-plegar
-plegado
-irse
-¡Váyanse!
-Estaban yéndose otra vez.
-No querían irse.
-va a irse
-uno irse
-pasan
-acaba de pasan
-va a pasan
-uno pasan
-cuando pasaban
-los que pasan
-bonito  hermoso
-tocar
-pasar
-irse
-De Samachique habían salido
-Andaba yendo a Samachique.
-varios irse
-iba
-caminar
-varios caminar
-va a caminar
-querían irse
-pasar
-Iba pasando.
-sobrar
-varios querían irse
-pasando habiendo pasado
-sobrante  demás
-colibrí  chupamirto
-gritar
-Iban gritándose fuerte
-Se oye a uno gritando
-varios gritar
-vez
-Ayer trabajó un día entero
-otra vez
-nunca  jamás
-en otra ocasión  algún día  tal vez
-una vez
-un día
-una sola vez
-raramente acontecerá
-todo  toda la gente
-siempre
-todos los días
-culebras  víboras
-a veces  de vez en cuando
-Éramos muy jugadores a veces
-distinto  diferente  extraño
-varios distinto  diferente  extraño
-bestia ajena
-cosa ajena
-indígena
-al contrario
-abeja
-rascar  lijar  raspar  cepillar
-va a rascar  lijar  raspar  cepillar
-curandero  hechicero
-carpintero
-hechizar
-ejote
-salir ejotes
-tipo de hierba de la milpa
-espejo
-enfriarse
-va a enfriarse
-enfriar
-pelar  mondar
-sarampión
-enaguas
-sus enaguas
-ponerse las enaguas
-quitarse las enaguas
-tipo de encino
-tipo de encino
-tarántula
-tener brazo
-Solamente tiene un brazo
-que tiene brazos
-que tiene brazos
-cortar
-en el tiempo de cortar cortar
-se cortó
-gavilán
-lanza
+me
 ir
-Iban despacito
-ahogarse
-ahogar
-tijera
-tijera
-gobernador
-gobernador de ellos
-tipo de hongo venenoso
-arrugarse
-arrugado  aflojado
-cazar  pescar
-Fuimos a cazar venados
-cazador
-arrugar  plegar
-aflojar
-cazador
-Allí abajito iban llegando cuando cayó mucha lluvia
-siguieron haciéndolo
-Ellos solamente seguirán haciendo mal.
-¡vénganse!
-resbalarse
-estar resbalando
-hacer resbalar
-tinta
-colorado
-lugar en donde está colorada la tierra
-ponerse colorado
-rojear  enrojecer
-pintar de rojo
-feo  que no sirve
-malvado
-le maldice
-criticar  insultar
-maltratar
-malhechor
-esquina  codo
-mi codo
-codo
-en la esquina o rincón
-hacer la esquina
-estar redondo
-redondo
-hacer redondo
-redondo
-suegro
-suegro
-Ayer, a estas horas, ya mero llegábamos
-ser verde  ser azul
-pintar de verde o de azul
-verde  azul
-cierta clase de palma
-atascarse
-estar blando
-hacerse blando
-legaña
-tener legañas
-pájaro carpintero
-calentarse
-¡Caliéntate a la lumbre!
-casi
-espinas
-uno espinas
-sonar al resoplar o al respirar
-Suena el viento
-golondrina
-espinarse
-va a espinarse
-espinar
-honda
-cornear
-lavarse la cabeza
-va a lavarse la cabeza
-rastrojo
-los pulmones
-soldado
-sacar tiras de palma o de cuero
-va a sacar tiras de palma o de cuero
-espanto
-murciélago
-guano de murciélago
-estrella
-despeinado
-que está despeinado
-yesca del corazón del encino
-yescoso
-tía
-mi tía
-mi tía
-pudrirse
-que pudrirse
-madera fofa mojada
-ratoncito
-chaparro
-espina
-varios espina
+hijo
+poco
+ir
+no
+buscar
+hoy
+ala
+traer
+picar
+comer
+feo
+con
+por
+ver
+hacer
+yo
+de
+traer
+hacer
 coser
-Me cosió una camisa
-coser para uno
-cocido
-raspar  rascarse
-va a raspar  rascarse
-en el ombligo
-pellizcar  rasguñar
-hormiga
-llenar de hormigas
-hechizar
-hechicero  brujo
-tesgüino
-estar mugriento  estar roñoso
-mugriento  roñoso  sucio
-acabar
-El coyote acabó con una chiva
-va a acabar
-todo
-Todo lo que quieras, te daré
-todo cuanto
-destruir  acabar
-que destruir  acabar
-acabar
-El coyote me va a acabar los borregos
-acaba de acabar
-va a acabar
-orilla  borde
-la orilla del agua
-acercarse a la orilla
-bonito
-estar bonito
-fragante
-habla con palabras bonitas y suaves
-olor agradable
-bonito
-tiene buen olor
-acabarse
-va a estar bonito
-uno estar bonito
-que acaban muchas cosas
-hubiéramos acabado
-el día cuando todo se acaba
-habrán acabado
-perecieron
-cadáveres
-orilla
-dobladillo  orilla
-sobar
-va a sobar
-chupamirto
-terminar  acabar  cumplir
-Ya terminé de trabajar
-va a terminar  acabar  cumplir
-en todas partes
-maíz
-maíz azul
-mazorca
-mazorca
-ombligo
-mi ombligo
-pájaro carpintero
-aflojarse
-rebajar la cuenta
-va a pájaro carpintero
-lo aflojará
-¡aflójalo!
-corazón
-en el corazón
-mi corazón
-en mi corazón
-tener corazón
-va a tener corazón
-que tiene corazón
-no querer convidar
-no querer dejarle ir
-soltar
-uña  pezuña
-las pezuñas del caballo
-manear
-soltar
 pedir
-Pedí una tortilla
-Ya pidió permiso
-Habiendo pedido permiso, lo traje.
-estar pidiendo
+tocar
+abajo
+de
+leña
+palma
+que
+sacar
+tejer
+tomar
+arco
+sí
+uno
+ojo
+llevar
+sal
+mal
+oler
+sangre
+traer
+mezcal
+subir
+oír
+usar
+hay
+pino
+dos
+oso
+curar
+sus
+pie
+avisar
+llegan
+vez
+tijera
+suegro
+cara
+ése
+faja
+llaga
+madera
+mí
+para
+taza
+tela
+vaso
+vivo
+asar
+aleta
+decir
+decir
+tarde
+dando
+cura
+salir
+casa
+ubre
+arco
+cruz
+palo
+bien
+flecha
+coger
+llano
+nopal
+cerco
+subir
+ahora
+hoyo
+oler
+huir
+diez
+hija
+huir
+huir
+maguey
+asar
+humo
+tú
+tuna
+era
+ver
+confiar
+nube
+doler
+curar
+padre
+colar
+tuyo
+no
+laja
+boca
+Dios
+rata
+nido
+irse
+irse
+cazador
+tía
 pedir
-chiquito
-más chiquito
 tocar
-chico  infante  pequeño
-varios chico  infante  pequeño
-infante
-se encoge
-músico  tocador
-ponerse la zapeta
-vestido  que lleva zapeta
-luchar
-¡Lúchele!
-calentar
-¡Caliente agua!
-lugar estrecho
-zapeta taparrabo
-tabla
-menor
-hacer menor
-hacer más chico
-tocar
-Ese hombre me tocó una pieza.
-estar tocando
-me  a mí
-Me hubiera pedido dinero a mí
-Me vio
-nosotros
-nuestro
-mudo
-le pide
-fiar
-prestar
-Préstame el hacha
-Lo dio prestado
 rogar
-pedir a Dios
-acarrear  traer
-va a acarrear  traer
-contar
-contados
-no
-No hay
-ni uno  ninguno
-no tuvo  no tuvieron no había
-ignorante
-semana
-una semana
-semilla
-semilla de trigo
-apuesta
-no
-No hay. No está
-no vale mucho
-falta
-por el arroyo abajito
-Se va para abajo
 no
 padre
-tejer  extender
-Esa faja está muy bien tejida
-que tejer  extender
-afinar el violín
-cuerda de violín
-cuerda del violín
-borrachos
-uno borrachos
-poco tiempo
-poco tiempo
 telar
 corto
-poco tiempo
-al rato  ahorita
-hasta luego
-medir por comparación
-la medida  el plazo
-mi plazo  mi tiempo
-aplastarse
-Ya se aplastó una tuza en la trampa
-quedar  sobrar
-¡Quédense aquí!
-Nadie se quedó
-uno aplastarse
-uno aplastarse
-restante
-cuidar  vigilar
-Le mandó guardarlo
-Cuida muy bien
-guardar  proteger  vigilar
-Dios me cuida
-Ese perro guarda bien las chivas
-encomendar
-espantajo  espantapájaros
-peinar
-Te voy a peinar
-peine
-cercar  hacer
-Ya se cayó la trinchera.
-Vamos a hacerla de nuevo.
-cercado de piedra  hecho de piedra
-cerco de piedra
-descender
-muchacha
-varios muchacha
-burlar  repetir
-burlar  repetir
-usar bastón
-apoyarse en un bastón
-andar con bastón
-caminar con bastón
-bastón  bordón
-Ese hombre necesita un bastón
-bastón  bordón
-llevar  tomar
-¡Tráigalo para acá
-Fueron mandados a llevarlo
-va a llevar  tomar
-que llevar  tomar
-quería tomarlo
-fue traído
-enterrar
-Lo pidió para sepultarlo
-estando enterrado
-atascarse
-maíz
-pajarito
-muchacho  niño  chamaco
-varios muchacho  niño  chamaco
-poner parado
-palo parado
-comida
-horcón  piedra parada  poste
-cacarear
-La gallina cacarea
-gallina  pollo
-pluma de gallina
-blanquillo
-cresta del gallo
-hueso de gallina
-molleja de pollo
-blancos
-uno blancos
-abajo
-por el río abajo
-traer agua  sacar agua con una hueja
-Ya trajo agua
-Voy a traer agua.
-sacando agua
-asar en las cenizas
-va a asar en las cenizas
-asado
-desde abajo
-nosotros
-trigo
-paja de trigo
-segar el trigo
-tropezar
-baile indígena
-tipo de mata que lleva una frutita
-bañarse
-acaba de bañarse
-va a bañarse
-que bañarse
-bañar
-espinazo
-su espinazo  la espina dorsal
-llover
-va a llover
-lágrima
-salir lágrimas
-sus lágrimas
-lluvia
-tienen maridos
-uno tienen maridos
-poner parado
-que poner parado
-parar
-Lo voy a parar
-Mandó pararlo.
-acaba de parar
-untar  ungir  frotar
-vacunar
-cargar
-untándole
-ungido  cargado
-con que lo unte
-estrecho  angostito
-muy estrecho  muy angostito
-estar parado
-Estaban parados trabajando con sus manos.
-uno estar parado
-chupar  besar
-picar  picotear
-La víbora me picó
-poner parado
-dejar los animales
-traducir
-Está traducido al tarahumara.
-va a traducir
-pararse de cuatro patas
-tipo de nopal que florece
-volver loco
-andan parados de cuatro patas
-Las vacas andaban pastando en el zacate
-correr
-va a correr
-tirar
-llevar
-acaba de correr
-que correr
-cintura
-mi cintura
-en la cintura
-en mi cintura
-el último llano para abajo
-perder
-Ya perdimos.
-acaba de perder
-va a perder
-tirar flecha o balazo
-desmayarse
-bisabuelo  bisnieto
-canasta
-tener esposa
-varios tener esposa
-esposa
-varios esposa
-mi esposa
-enviudar
-va a enviudar
-viudo
-varios viudo
-salimos
-fresno
-barranca
-en la barranca
-madroño
-azuzar
-azuzar
-Agarrando una piedra le apedreó
 seis
-sexto
-sesenta
-arriba por el arroyo
-arriba por el arroyo
-arriba por el arroyo  más lejos
-abuela materna
-nieta de la abuela
-mi abuela materna
-zurdo
-Es zurdo
-Escribe con la mano izquierda
-dar  convidar
-dar  convidar
-dándole
-vendrá de repente
-inmediatamente  pronto
-quitar
-que quitar
-por allá  alrededor
-por allá
-allá arriba
-abierto
-abertura
-la puerta de la casa
-traer
-Te traje esta cosa
-engañar  decir mentiras
-diciéndole mentiras
-engañado
-mentido  engañado
-estar vertiginoso
-Me causó vértigo
-va a estar vertiginoso
-causar vértigo
-ustedes
-vuestro  de ustedes
-andar
-uno andar
-andar
-¿Dónde andabas?
-¿Qué hora? ¿Cuándo?
-¿Hasta cuándo?
-¿quién?
-puerta cercar  cerrar  encerrar
-que ¿quién?
-invitar
-conducir
-va a conducir
-cerrado
-Está cerrada la puerta
-donde está cerrado
 clase
-¿Qué color? ¿Cuál? ¿Qué clase?
-semejanza
-sin nada
-cualquier
-enojarse
-va a enojarse
-que enojarse
-varios enojarse
-está enojado
-teñir
-Voy a teñir lana
-regañar
-Fue regañado por las autoridades
-fue regañado
-enojar
-enojar
-inclinar la cabeza
-inclinando la cabeza
-con
-Yo voy contigo
 guiar
-llevar de compañero
-llevar a otro al caer
-Esa piedra que rodó se llevó otra piedra grande también
-a pesar de
-abajo
-lo de abajo
-más abajo
-por el arroyo abajo
-abejorro
-abertura
-abierto
-abofetear
-abono
-absorber
-abuela
-abuela
-abuelo
-abuelo
-acá
-para acá
-por acá
-acabar
-acabará
-acarrear
-acarrear
-acaso
-acaso
-aceptar
-acercar
-aconsejar
-dar consejo
-acontecer
-acordarse
-acordarse
-acornear
-acostarse
-estar acostado
-ponlo acostado
-acostumbrar
-acusar
-le acusará
-adelantar
-adelante
-más adelante
-por adelante
-va adelante
-por adentro
-adiós
-admirar
-adónde
-adormecer
-afilar
-afinar
-afirmar
-aflojado
-afuera
-agachar
-agarrar
-agarrado
-lo quería agarrar
-agarrotar
-agotar
-agotar
-agradar
-agrio
-está agrio
-tira agua
-aguaje
-aguantar
-agudo
-aguijada
-aguililla
-agujerear
-agujero
-tiene agujero
-agusanarse
-ahí
-ahorcar
-ahumar
-hace aire
-persona ajena
-alabeado
-alcanzar
-no le alcanza
-alegrar
-está alegre
-aletear
-algo
-por algo
-algunos
-alimento
-alisar
-lo está alisando
-aliviar
-aliviado del pie
-almohada
-ir alrededor
 alto
-muy alto
-estar muy alto
-alumbrar
-alzar
-allá
-allá
-más allá
-por allá
-allí
-allí
-amable
-amamantar
-al amanecer
-amar
-amargo
-amargo
-amargo
-amarillo
-amarrado
-amarrar
-amarrar
-amarrar
-amarrar
-amarrar
-amarrar
-mis amigos
-amo
-amontonar
-ampolla
-ampollar
-anaranjado
-anciana
-anciano
-ancho
-andar
-andar
-andar
-andar
-andar
-andar
-andar
-andar
-angosto
-muy angosto
-siente angustia
-anhelar
-animal
-animar
-ánimo
-anochecer
-ante
-anteayer, antier
-antepasado
-antepasado
-antes
-antes de
-mucho antes
-de antigüedad
-año antepasado
-año pasado
-apenas tiene un año
-hace años
-hace muchos años
-hace un año
-apagar
-aparece delante de
-apartar
-apartado
-aparte
-apedrear
-le ponen apellido
-apersogar
-apestar
-aplanar
-aplastar
-lo aplastó
-se aplastó
-apoyar
-aprender
-aprenderá
-apretar
-aprisa
-anda aprisa
-apuntar
-apunta bien jugando cuatro
-apúntalo
-apurar
-apurar
-aquél, aquélla
-aquel, aquella
-aquí
-por aquí
-araña
-arar
-arar
-arco
-tiene arco
-arder
-ardilla
-ardilla
-ardilla
-ardilla
-tiene arete
-arma
-arrancar
-arráncalos
-arrastrar
-arrear
-arrebatar
-arreglar
-arreglado
-arriba
-arriba
-muy arriba
-arriba por el arroyo
-para arriba
-por arriba
-por allí más arriba en la falda
-arrimar
-arrodillar
-arribita por el arroyo
-donde el arroyo ha hecho un hueco en la laja
-hacer como arroyo
-hay arroyo
-arrugado
-arrugar
-asar
-da asco
-asentar
-asesino
-asesinar
-así
-así
-asolear
-astillar
-asustar
-atajar
-atardecer
-atascar
-atiesar
-atizar
-atizar
-atole
-hace atole
-atorar
-atrancar
-atrás
-atrás
-hacía atrás
-atrasar
-atravesar
-aullar
-aún
-autoridad
-es autoridad
-le dan autoridad
-autorizar
-avanzar
-avergonzar
-avisar
-avisado
-fue avisado
-avispa
-ay
-ayudar
-azotar
-azul
-es azul
-babear
-bajar
 bajo
-banca
-banda
-a la otra banda
-está barato
-barba
-barbechar
-barro
-estar barroso
-basquear
-bastón
-anda con bastón
-usa bastón
-basura
 batir
-batir
-el que bautiza
-bazo
-beber
-hacerle beber
-bello
-besar
-muy bien
-no lo hace bien
-nota bien
-bigote
-bisabuelo
-bisnieto
-blanco
-medio blanco
-blanquear
-hacer bola
-se hace una bola
-bolita
-bolsa
-bonito
-está bonito
-lo hace bonito
-que huele bonito
-borde
-bordón
-borla
-borracho
-borrar
-borrar
-borrego
-borrego
-borreguito
-bostezar
-botella
-bramar
-brasa
-se hacen brasas
-bravo
-está bravo
-tiene brazo
-brillar
-brillar
-brincar
-hace bromas con las cuñadas
-brotar
-brotar
-brujo
-buche
-en el buche
-bueno para tomar
-está bueno
-lo hace muy bueno
-muy bueno
-sería bueno
-buey
-búho
-burlar
-buscar
-buscar
-caballo
-cabecilla
-hacer cabecillas
-cabello
-cabelludo
-que no cabe
-cabeza de vaca
-poner la cabeza
-cabrito
-cacto
-cada uno
-cadáver
-cadera
 caer
 caer
-caer
-caer
-caer
-caer
-caer
-caer
-caer
-caer
-caer
-caer
-lleva a otro al caer
-cajete
-hace cajetes
-calabacilla
-calabacitas
-calabaza
-tiene calambre
-calcañar
-caldo
-hace caldo
-tiene calentura
-calmar
-calmar
-cuando hace calor
-hace calor
-tiene calor
-calzón
-cama
-hacer una cama o una banca
-camaleón
-en cambio
-caminar
-caminar
-caminar
-caminar dormido
-hay camino
-había camino
-camisa
-poner una camisa a otro
-ponerse camisa
-campo
-cana
-tiene canas
-canasta
-canasta
-canasta
-cansado
-cansar
-cantar
-cuando cantan
-qué cantidad
-come caña
-capulín
-cara
-carbón
-cárcel
-cardar
-carecer
-carga
-cargado
-cargar
-tiene cargo
-tiene cariño
-caro
-carona
-carpintero
-carpintero
-carpintero
-carpintero
-carta
-casa
-en la casa
-entre las casas
-hace una casa
-tiene casa
-casar
-está casada
-cascabel
-cascabel del pascolero
-que tiene cascabel
-víbora de cascabel chico
-víbora de cascabel grande
-cascada
-cáscara
-cáscara
-cáscara
-casi
-ya casi
-le hace caso
-que no hace caso
-va a hacer caso
-castellano
-castigar
-tiene catarro
-cazar
-cazuela
-tiene celos
-cellisca
-ceniza
-ceñir
-cepa
-cepillar
-lo pone cerca
-cercar
-cercar
-cerco
-tiene cerebro
-cerrar
-lo que cierra
-cerro
-cerro
-cerro
-en el cerro donde es pura laja
-entre los cerros
-cesta
-tiene un cetro de autoridad
-en el cielo
-ciento
-cierto
-no es cierto
-está cilíndrico
-hace cilíndrico
-cima
-hace cimiento para casa
-cinco
-cinturón
-claramente
-claro
-de todas clases
-esa clase
-qué clase
-tengo de todas clases
-clavar
-coatí
-cobarde
-cobija
-cobija
-se llevó una cobija
-tiene cobija
-cobrar
-cocer
-cocer
-cócono
-codiciar
-codicioso
-codo
-coger
-cogiendo
-cojo
-cola de caballo
-cola de vaca
-colear
-está colgado
-colibrí
-colina
 color
-qué color
-se pone colorado
-collar
-comenzar
-comenzaron a decir
-comer
-el que come
-le da de comer
-tiene ganas de comer
-que le da de comer a otro
-comerciante
-tiene comezón
-comida
-tiene comida
-le da comida
-le da comida regalada
-cómo
-como
-hace comoquiera
-hace mal comoquiera
-compadecer
-comparecer
-tiene compasión
-complacer
-complejo
-completamente
-completar
-están completas
-componer
-comprador
-comprender
-comprometer
 con
-con
-con
-es cóncavo
-hace cóncavo
-conceder
-condenar
-le conducirá
-confesar
-confundir
-conocer
-fué conocido
-que conozcan
-conocido
-conque
-dar consejo
-consentir
-consigo
-consolar
-construir
-contado
-contagiar
-contener
-contentar
-está contento
-contestar
-está en contra
-contradecir
-convencer
-no me conviene
-convertir
-no quiere convidarle
-tiene corazón
-cordillera
-arriba en la cordillera
-corona
-corona
-se pone la corona
-correcamino
-correr
-correr
-correr
-correr
-va corriendo 'mahuá corretear
-corteza
-cosa
-cosa ajena
-cosechar
-lo cose para uno
-que cose
-hace cosquillas a otro
-costar
-cuesta mucho
-costoso
-tenía costumbre de hacerlo
-cotense
-crecer
-cree que sí
-cresta de gallo
-criar
-criatura
-criticar
-cruel
-crujir
-cruzar
-cuajar
-cuajo
-cuál
-cualquier color o clase
-cualquiera
-cuándo
-cuánto
-cuántas veces
-cuanto
-cuarta
-cuatro
-cubrir
-cuchichear
-cuello
-cuerda
-tiene cuernos
-cuero
-cuero
-en todo el cuerpo
-tiene cuerpo
-cuesta
-cuesta
-en cuesta abajo
-en cuesta arriba
-tiene cuidado
-cuidar
-cuidar
-cuidar
-culebra
-cumbre
-cumplir
-cuñado
-cuñado
-curandero
-curandero
-curar
-curar
-chamaco
-chamuscar
-chancear
-chaparro
-chapulín
-charlar
-chico
-lo hace más chico
-chicotear
-chiflar
-chile
-chillar
-en la chimenea
-chirriar
-lo hace echar chispas
-está echando chispas
-chistoso
-chivato
-chocar
-cholubo
-salir un chorro
-chueco
-chulo
-chupamirto
-chupar
-dar
-dar a luz
-mecate
-de
-de
-decir
-así dice
-fue dicho
-le había dicho que le iba a dar
-qué quiere decir
-delante
-delgado
-demás
-demorar
-dentro
-derecho
-derramar
-derretir
-derrumbar
-desabrido
-desamarrar
-desangrar
-desaparecer
-desaparecer
-desaparecer
-desapareciéndose
-se despareció
-desatar
-se desató
-descabezar
-descender
-descomponer
-lugar en que se descompone
-quiere descomponer
-descoyuntar
-descubrir
-desde
-desear
-desean sentarse
-desenredar
-desgastar
-desgranar
-desgranar
-desherbar
-desherbar
-deshojar
-desmayar
-desmenuzado
-desnudar
-desobedecer
-desobediente
-desparramar
-despedazar
-despeinado
-despintar
-despreciar
-después
-poco después
-destruir
-detener
-detrás
-algún día
-algunos días
-al siguiente día
-el otro día
-hace buen día
-hace el día
-hace un día
-qué día
-todos los días
-tiene diarrea
-tiene dientes
-diferente
-difícil
-está difícil
-difunto
-dilatar
-diluir
-dinero
-tiene dinero
-discípulo
-disculpar
-discutir
-disparar
-dispensar
-dispersar
-distinguir
-distinto
-distribuir
-divisar
-doctor, médico
-siente el cuerpo dolorido
-dominar
-donar
-dónde
-dondequiera
-dormir
-le hace dormir
-quiere dormir
-entre dos
-durar
-duro
-está duro
-lo hace duro
-echar
-echa a correr
-echó fuera del corral
-salen ejotes
-él, ella
-elegir
-elote
-emborrachar
-emborrachó
-embotar
-empachado
-emparejar
-empezar
-empezar
-empollar
-empollar
-emprender
-enagua
-se ponen enaguas
-se quita enaguas
-encarrujado
-encarrujar
-encender
-encerrar
-encerrar
-encima
-uno encima del otro
-poner uno encima del otro
-encino
-encino
-bellotas que crecen en los encinos
-encinta
-enclocar
-encoger
-está encorvado
-enchilar
-enemigo
-se hacen enemigos
-enfermar
-enfermar
-enfermarse
-enfermedad venérea
-enflaquecer
-enfrente
-enfrente de
-engendrar
-enhebrar
-enjambre
-enlazar
-enlodar
-enloquecer
-ennegrecer
-enorme
-enramada
-hace enramada
-enrojecer
-enrollar
-enrollar
-enseñar
-que enseña
-ensordecer
-ensuciar
-entarimar
-entarimado
-entender
-entender
-entero
-está entero
-enterrar
-entonar
-entonces
-entrar
-entren Uds
-entregar
-entretanto
-entretejer
-entumecer
-enturbiar
-envejecer
-enviar
-tiene envidia
-envidioso
-envolver
-envolver
-equivocar
-me equivoqué
-eructar
-escama
-escapar
-escardar
-escarpadura
-escoger
-esconder
-escupir
-ése
-ese
-esférico
-es esférico
-hace esférico
-éso, ésos
-espantajo, espantapájaros m
-espantar
-espanto
-español
-esparcir
-está esperando
-espérense
-espesar
-espiga
-espina
-espina dorsal
-tiene espinas la oruga
-espinar
-espinazo
-espíritu
-da espíritu
-espíritus de los antepasados
-esposa
-tiene esposa
-esposo
-tiene esposo
-quita la espuma
-tiene espuma
-espumar
-esquiate
-hace esquiate
-esquina
-en la esquina
-le hace la esquina
-esquite
-esta
-ésta
-estar
-estar
-están
-estará
-estaremos sentado
-este
-éste
-estiércol
-esto
-estómago
-tiene estómago
-estorbar
-hace estorbo
-estrangular
-estrangular
-estrecho
-muy estrecho
-estuche
-estudiar
-examinar
-excremento
-explicar
-exprimir
-extender
-extinguir
-extraer
-extraño
-extraviar
-fácil
-faja
-falsear el tobillo
-hace falta
-fallecer
-fantasma
-dar fe
-feo
-está feo el lugar
-feroz
-fertilizar
-fibra
-fiebre
-hacen fiesta
-tiene filo
-al fin
-finalmente
-fino
-firme
-flaco
-toca la flauta
-flecha
-tirar flecha o balazo
-tiene flojera
-flor
-flor
-florecer
-formar
-fortalecer
-fragante
-frente
-frente arrugada
-frecuentemente
-fresco
-fresco
-frijol
-frío
-frotar
-fuera de sí
-fuerte
-fuerte
-fuerte
-está fuerte
-fuerte
-lo hace fuerte
-tiene fuerza
-futuro
-ganar
-garganta
-gastado
-gastar
-gastar
-gatear
-gato
-gato de algalia
-gavilán
-gavilán
-gemir
-gemir
-gente
-toda la gente
-germinar
-gigante
-en la gloria
-golpear
-gordo
-está gordo
-gorgojo
-gorgojo
-gorgojo
-gozar
-gracias
-dar gracias
-grajea
-cae grajea
-grande
-más grande
-tan grande
-grano
-tiene granos
-salir granos
-granujoso
-gratis
-gris
-gritar
-gritar
-cuando gritan
-está grueso
-gruñir
-gruñir
-guacamayo
-guajolote
-guano
-guardar
-guiar
-gusano
-gusano
-tiene gusto
-habitación
-habitar
-habla
-es muy hablador
-hablar
-hablar
-hablar
-hablar
-hablar
-hacer
-hacer
-así hace
-hace muchísimo
-haciéndose rico
-lo hace así
-no le hace
-que hace mal comoquiera
-tiene mucho que hacer
-hacia allá
-hallar
-tiene hambre
-tiene demasiada hambre o sed
-hartar
-hasta que
-no hay de qué
-hechicero
-hechicero
-hechizar
-helar
-herencia
-herir
-hermana mayor
-tiene hermana menor
-hermano
-hermanos y primos hermanos
-tiene hermanos
-son hermanos
-tiene hermano mayor
-hermano menor
-hermoso
-herrar
-hervir
-hierve mucho
-hierba
-hierba
-crecen muchas hierbas
-entre las hierbas
-hígado
-tiene hígado
-higo
-que tenía hijas el hombre
-tiene hija el padre
-hijo
-tiene hijo
-que tiene hijos
-tiene un hijo el hombre
-hilo
-hacer hilo de lana
-hincar
-hinchado
-hinchado
-hinchar
-hinchar
-hinchar
-hinchar
-hinchar
-hocico
-hoja
-hoja
-tiene hojas
-se caen las hojas
-hojarasca
-hola
-se pone negro de hollín
-hombro
-llevar en hombros
-está hondo
-hongo
-a qué hora
-horcón
-hormiga
-se llena de hormigas
-hoy
-escarbar hoyo
-hacer un hoyito redondo
-se pone huaraches
-se quita huaraches
-tiene huaraches
-huari grande
-hacer hueco
-hueja
-hueja
-huellas
-hueso
-hueso
-tiene huesos
-huevo
-huir
-humear
-humedecer
-húmedo
-está húmedo
-estaba haciendo humo
-hay humo
-hundir
-iglesia
-igual
-son iguales
-iluminar
-importar
-es incapaz
-inclinar
-incrédulo
-indígena
-infante
-infectar
-inflado
-informar
-inmediatamente
-inmenso
-inocente
-instruir
-insultar
-interpretar
-interrogar
-intestino
-comienza el invierno
-invitar
-inyectar
-ir
-no quiere dejarle ir
-quiere ir
-vamos
-vaya
 yendo
-izquierdo
-jactancioso
-jamás
-jarro
-jefe
-hacen jefe
-joven
-jugar
-juega con alguna cosa
-juega tirando los palos
-jugaban
-juegan cuatro, juegan teja
-jugo
-juntar
-los que se van juntando
-lugar donde se juntan
-juntamos
-junto
-están juntos
-jurar
-hace justicia
-tiene labios
-labrar
-a un lado del camino
-al otro lado
-de un lado
-el otro lado del cerro
-lado derecho
-por este lado
-se echa de un lado al otro
-lagartija
-lagartija
-lagarto
-salen lágrimas
-en la laja
-hay laja
-que tiene laja
-lama
-hilo de lana
-tiene lana
-lanudo
-largo
-tiene lástima
 lavar
-lavar
-lavar
-lavar
-lazar
-dar leche
-lejos
-de lejos
-más lejos
-qué tan lejos está interr
-leña
-trae leña
-león
-levantar
-levantar la caja
-levántese
-levantó
-ley
-liacho
-hacer liacho
-licencia
-liendre
-tiene liendres
-lienzo
-ligamento
-ligamento
-lugar de los ligamentos
-ligero
-es muy ligero
-lijar
-limpiar
-limpiar
-limpio
-lindo
-lío
-hace un lío
-lirio
-se hace liso
-listo
-lobo
-loco
-está loco
-se vuelve loco
-lodo
-hace lodo
-lombriz
-lomo
-lonche
-hace lonche
-lucero
-luchar
-desde luego
-lugar
-lugar donde hay hierba “basigó”
-lugar donde le alcanza
-encender lumbre
-en la lumbre
-hace lumbre
-prende lumbre
-luna
-hay luna
-llaga
-lleno de llagas
-está llamándole por nombre en su presencia
-llano
-hay llano
-llegar
-llegar
-donde llega
-llegamos
-llegándose
-llegaron
-llegó de repente
-llenar
-llevar
-llevar
-llevar
-llevar
-llevar
-llevar
-llevar
-llevar
-llevar
-lleva por el agua
-lleva de compañero en un viaje
-es llorón
-llega el tiempo de lluvias
-tiempo de lluvias
-macizo
-machucar
-madera
-madrastra
-madre
-madrina
-hoy temprano en la madrugada
-madurar
-maduro
-maestro
-flor de maguey
-maíz
-maíz
-maíz
-maíz nacido para hacer tesgüino
-mal
-mal de salud
-tiene mal olor
-maldad
-maldecir
-malhechor
-malvado
 mamá
-la mamá de él
-mamar
-le da de mamar
-manantial
-mandamiento
-mandar
-mandar
-el que manda a otro
-manda un recado
-mandó
-mandó llevar alguna cosa
-manear
-manejar
-manejar
-de esa manera
-de esta manera
-de la misma manera
-de ninguna manera
-de otra manera
-de qué manera
-mango
 mano
-mano derecha
-mano izquierda
-manso
-manta
-manteca
-manzanilla
-por la mañana
-pasado mañana
-no se maravilla
-marcar
-marchitar
-marear
-marear
-marido
-tiene marido
-marrano
-marro
-martillar
-más
-más allá
-más allá en tiempo
-más todavía
 mata
 mata
-mata
-mata
-mata
-mata
-mata
-mata
-matado
-matar
-matar
-quiere matarlo
-maullar
-mazo
-mazorca
-me
-hace mecate
-medicina
-médico
-medida
-medida de una cuarta
-medir
-médula
-en la mejilla
-tiene mejillas
-mejorar
-mellar
-tiene buena memoria
-menear
-menear
-lo hace menor
-menospreciar
-mentir
 mes
-tiene mes
-en la meseta alta
-metamorfosear
-meter
-meter
-meter
-mezclar
-mezclar
-mézclalo
-mí
-a mí
-mi
-miedoso
-tiene miedo
-miel de abeja
-miel de abeja
-mientras
-en la milpa
-mío, mía
-mirar
-está mirando
-mira
-mirando
-miserable
-mismo
-tiene moco
-mocho
-de ese modo
-de otro modo
-de qué modo
-de todos modos
-moho
-mojado
-mojar
-molestar
-molleja
-al momento
-mondar
-moneda
-monte
-morado
-morador
-morar
-morder
-que te mordió
-morir
-muere de frío 'aché moro
-mosca
-mosquito
-mostrar
-mosquito
-muchacha
-muchacho
-muchísimo
-mucho
-mucho más
-mucho más rato
-mudo
-muela
-muerto
-le hace muescas
-mugir
-mugre
-mugriento
-está mugriento
-mujer
-multar
-mundo
-murciélago
-murmurar
-músico
-muslo
-mutuamente
 muy
-nacer
-de nada, por nada
-nada más
-nadar
-nadie
-nariz
-en la nariz
-neblina
-hay neblina
-necesitar
-lo hace negro
-nene
-nido
-hace nido
-niebla
 nieta
-mi nieto
-ninguno
-ninguna parte
-niño
-hace nixtamal
-no
-no se maravilla
-anoche adv
-medianoche f
-lugar nombrado así
-nombrar
-nombrar
-tiene nombre
-nopal
-nopal
-está nublado
-nublar
-hace nudo
-nuera
-tiene nuera
-nuestro
-nuevamente
-nuevo
-nunca
-o
-obedecer
-obediente
 obrar
-obrero
-obscurecer
-a obscurecer
-obscuridad
-en la obscuridad
-obscuro
-obsequiar
-obsequio
-observar
-no obstante
-en otra ocasión
-ocotoso
-ocultar
-ocultar
-ocupar
-oído
-tiene oídos
-oír
-oír
-oír
-oír
-oiga
-tiene ojos
-ojo de agua
-hace olas el agua
-oler
-huele mal
-huele mucho
-olfatear
-lo sigue olfateando
-olor
-olor
-que tiene olotes
-olvidar
-olla
-hace ollas
-opinar
-oponer
-ordenar
-oreja
-que tiene orejas largas o chicas
-tiene orgullo
-está orgulloso
-orilla
-orilla
-orilla
-orilla
-se acerca a la orilla
-moja con orina
-oruga
-otate
-otro
-otro
-otra vez
-unos a otros
-oveja
-oxidar
-pacer
-padecer
-padre
-tiene padre
-padrino
-paga
-pagar
-paja
-pájaro
-pájaro
-pájaro
-pájaro
-pájaro
-pájaro
-pájaro
-pájaro
-pico de pájaro
-palma
-palma
-palmillo
 palo
-palo
-palo usado por las mujeres en las carreras
-palo o árbol seco
-palo podrido
-hace palomitas
-hacer palomitas de maíz
-tiene paludismo
-panal
-pandear
-está pando
-pantalón
-panzón
-paño
-paño
-pañuelo
-papa
-papel
-para
-parado
-parado
-andar parado
-estar parado
-estar parado
-poner parado
-poner parado
-poner parado
-paralítico
-parar
-el hecho de pararse
-parándose
-párate
-párense
-pardo
-es pardo
-parecer
-parecer
-no me parece
-qué te parece interr
-hacer parejo
-parir
-en la parte superior
-en muchas partes
-en otra parte
-en todas partes
-en todas partes donde hay gente
-en una parte desconocida, en alguna parte
-en una sola parte
-ninguna parte
-partir
-pasar
-pasa a pie al otro lado del agua
-pasa la noche posar
-pasa un día o noche tiempo
-pasando
-qué pasa interr
-sabe lo que pasó
-pasto
-pastorear
 pata
-arreglar patio para bailar
-patio donde arreglaron parejo
-pato
-pavo
-pecado
-pecador
-pecar
-en el pecho
-dar el pecho
-pedazos que sobran al hacer una cobija
-se hace pedazos
-pedernal
-pedir
-pide a Dios
-pedir perdón
-está pegajoso
-pegar
-pegar rápidamente
-pegarse con ceniza
-peinado
-despeinado
-peine
-pelar
 pelo
-tiene pelo
-que tiene el pelo despeinado
-pellizcar
-pensador
-pensar
-no piensa bien
-en la peña
-peñasco
-hay peñasco
-perder
-se echa a perder
-pierde en el juego
-pide perdón
-perdónale
-perecer
-perfecto
-perforar
-perforar
-perforar
-perico
-perico
-permanecer
-permanece en la noche
-permanece fijo
-permiso
-permitir
-pernoctar
 pero
-persogar
-está pesado
-pesar
-pescado
-pescar
-pesca con anzuelo
-petaca
-pez, pescado
-tipo de pez negro, barbón
-pezuña
-picacho
-picar
-le pica
-está picando
-pica como chile
-pico
-pico
-pico del cerro
-picotear
-pie
-a pie
-poner los pies
-tiene pies o patas
-hecho de piedra
-piedra blanca
-trampa de piedras
-piedra que cae de la trampa
-piedra parada
-piel
-pierna
-sin pierna
-hay muchos pinos
-pinole
-come pinole seco
-hace pinole
-pintar
-pintar
-pintar
-pinto
-piña
-piso
-segundo piso
-pisotear
-pizca
-pizcar
-pizcar
-está plano
-platicar
-plato
-pluma
-pobre
-poco
-hace poco
-poco a poco
-poquito
-poder
-tiene poder
-podrido
-podrido
-polvo
-hay polvo
 pollo
-poner
-pollo
-pollo
-pollo
-pollo
-por allá
-por favor
-por qué interr
-posar
-poseedor
-poseer
-poseer
-posesor
 poste
-postrar
-potable
-pozo
-pozo hecho
-preceder
-predicado
-predicador
-predicar
-tiene ganas de predicar
-preguntándole
-prender
-preñado
-preparar
-preparar
-lo hicieron preso
-lo lleva como preso
-quisieron hacerlo preso
-primeramente
-primo, prima
-al principio, en el principio
-producir
-produce lana
-prohibir
-prójimo
-prometer
-pronto
-propio
-proteger
-provocar
-próximo
-pudrir
-pudrir
-pudrir
-pudrir
-puerta
-puerta
-puerta abierta
-puerta de la casa
-puesto menor
-pulmón
-puma
-punta
-que tiene punta
-en la punta del cerro
-punzar
-puñado
-sale pus
-hace salir pus
-qué
-qué es
-para qué
-que
-quebrado
-quebrar
-quedar
-quedar en la noche
-lanza quejas
-quejar
-quelite
-quelite
-quelite
-quemar
-querer
-quería
-quiso
-quién
 quien
-quieto
-quitar
-quitar
-quitar
-quitar
-quitar
-quitar
-quitar
-quitar
-quitar
-quitar
-quizá
-rabia
-pegar rabia a otro
-rabo
-que tiene raíz
-tiene raíz
-raíz con la que se hace pegamento
-rajar
-rama
-rama
-echa ramas grandes
-ramitas de encino
-tiene ramas grandes
 rana
-rana
-rana
-rana
-rascar
-rasguñar
-raspar
-se raspó
-rastrillo
-rata
-al rato
-hace rato
-un rato
-ratón
-rayar
-rayar
-real
-rebajar
-rebosar
-recibir
-recio
-reclamar
-recoger
-reconciliar
-recordar
-hizo recordar
-recto
-recuperar
-rechazar
-rechinar
-redondo
-está redondo
-hace redondo
-regalar
-'ya
-regañar
-regar
-regocijar
-regresar
-reír
-relatar
-relinchar
-cuando reluce
-relumbrar
-remedio
-remendar
-remojar
-se formó un remolino
-rendir
-rengo
-renovar
-renunciar
-reñir
-repartir
-de repente
-repetir
-res
-resbalar
-resbalar
-se está resbalando
-está muy resbaloso
-resfriar
-resina
-resolver
-respetar
-resplandecer
-el Sol resplandece
-responder
-va a responder
-resucitar
-retener
-retornar
-retrasar
-retronar
-tiene reúma
-reunir
-revolcar
-revolver
-rico
-está haciéndose rico
-rifle
-tira con rifle
-rincón
-por río abajo
-dar risa
-robar
-roban mucho
-rodar
-rodear
-rodilla
-le ruega
-rojear
-rojo
-lo pinta de rojo
-roncar
-está ronco
-roñoso
-está roñoso
-ropa
-roto
-rozar
-rugir
-hacer ruido
-saber
-le hace saber
-que sabe bien
-sabe leer
-que sepan
-sabio
 sacar
-sacar
-sacar
-sacar tiras
-saco
-sacudir
-tiene sal
-está salado
-salir
-salir
-salir
-le salió salpullido
-salimos del trabajo
-salivar
-salpicar
-saltapared
-salto de agua
-salvar
-Samachique
-sanar
-sano de los pies, brazos
-sangrar
-sangre
-sapo
-sebo
-sebo de chiva
-secar
-tiene sed
-sediento
-segar el trigo
-en seguida
-seguir
-seguir
-seguir
-siguen haciendo algo
-según
-seguro
-sembrar
-siémbrenlo ustedes
-semilla
-semilla de trigo
-sencillo
-sentar
-sentar
-sentar
-sentar
-está sentado haciendo algo
-hacer sentarse, desean sentarse
-siéntate
-sentir
-sentir
-señalar
-separado
-sepulcro
-sepultar
-ser
-era
-éramos
-eran
-lo que sea
-que sea
-será
-siendo
-sería
-sereno
-caer sereno
-serio
-serpiente
-serpiente
-serpiente
-servir
-no sirve
-sí
-sí también
-sierra
-silencio
-sin embargo
 sino
+sonar
+tapar
+tía
+tío
+toma
+unos
+uña
+buscar
+nadar
+arado
+montar
+otro
+moler
+buey
+yunta
+ser
+café
+peña
+chile
+otra vez
+curar
+comer
+¿qué?
+bueno
+cola
+criar
+venir
+volar
+picar
+abrir
+orinar
+parar
+oler
+jugar
+hacer
+mesa
+correr
+padre
+lejos
+ganar
+moros
+subir
+mirar
+voz
+como
+ser
+admirar
+traer
+alzar
+hueso
+pegar
+poder
+tía
+huella
+lavar
+extender
+fumar
+peón
+faisán
+hija
+día
+parir
+ayer
+tío
+jugar
+abrir
+tuza
+cueva
+aro
+moler
+secar
+hoja
+carne
+arena
+lograr
+brazo
+tocar
+lanza
+tijera
+tinta
+casi
 sobar
-sobrar
-sobre
-sofocar
-sofocar
-soguilla
-sol
-el Sol resplandece
-hace sol
-solamente
-solera
-solo
-uno solo
-soltar
-soltero
-está a la sombra
-hace sombra
-sonaja
-sonaja
-sonaja
-sonaja que llevan los corredores
+maíz
+chiquito
+luchar
+mudo
+enterrar
+trigo
+llover
+tirar
+esposa
+fresno
+azuzar
+zurdo
+quitar
+traer
+andar
+andar
+enojarse
+teñir
+enojar
+abuela
+afinar
+andar
+arrear
+banda
+beber
+besar
+caer
+caer
+cama
+carona
+cazar
+ceñir
+cerro
+cesta
+cinco
+cocer
+comer
+cosa
+cuero
+de
+desde
+ese
+esta
+este
+esto
+flor
+gato
+gemir
+helar
+hueja
+hueja
+lijar
+lío
+lirio
+luna
+llegar
+llevar
+madurar
+marcar
+más
+mugir
+muslo
+oído
+oreja
+palma
+pintar
+pollo
+pudrir
+quiso
+quitar
+quitar
+ropa
+rugir
+sebo
+seguro
+sentar
+servir
 sonar
 sonar
-sonar
-sonar
-sonar
-hace sonidos con la voz
-sonreír
 soplar
-soplar
-soplar
-soplando
-sorber
-sordo
-sorprender
-su, sus
-su, sus
-subir de tierra baja
-suceder
-suciedad
-sucio
-sucio
-está sucio
-está sudando
-tener mucho sudor
-suegro
-suelo
-tiene sueño
-sufrir
-sumamente
-sumergir
-tabaco
-tacaño
-tal
-tal vez adv
-taladrar
-talega
-talón
-tamaño
-tambalear
-también
-tampoco
-entre tanto
-por lo tanto
 tapar
-tapar
-tapar
-tapar
-tapar
-tarahumara
-tarántula
-tardar
-es tarde
-esta tarde
-tardecer
-táscate
-tatemado
-taza
-te
-tecolote
-tecolote
-tejer
-tela
-telaraña
-temblar
-temblar
-temer
-temeroso
-templo
-tender
-tendidos para dormir
-tener
 tener
 tenga
-tentar
-lo tiñe de anaranjado
-terminar
-termita
-terreno
-tesgüino
-que toma tesgüino
-tomar tesgüino
-tener tesgüino en su casa
-testificar
-ti
-tía
-hace muchísimo tiempo
-hace mucho tiempo
-poco tiempo
-tiempo de calor antes de las lluvias
-está tierno
-tierra
-tierra
-lugar en donde la tierra está colorada
-mi tierra
-tiene tierra
-tijera
-en las tinieblas
-tío
-tirar
-tirando las bolas
-tocador
 tocar
 tocar
-tocar
-tocar
-tocar
-tocar
-todavía
-es todo
-todos
 tomar
-tomar
-tomar
-hacer tomar
-tomar pecho
-ir al tesgüinada a tomar
-toma
-torcer
-torcido
-toro
-tortilla
+ungir
+untar
+viga
+yesca
+poner
+salar
+cuerno
+bailar
+hígado
+decir
+alma
+¡ay!
+río
+otate
+agua
+quiote
+pardo
+masa
+llamar
+pudrir
+solo
+casa
+andar
+burro
+salir
+picar
+perro
+olote
 tostar
-trabajador
-poner a trabajar
-está trabajando agachado
-donde hay trabajo
-trabajoso
-traer
-traer
-traer
-traer en las manos
-quiere traerlo
-poner una trampa
-trampa de piedras
-transparente
-trapo
-tráquea
-trasquilará
-travieso
-tiene trementina
-hace trenzas
-hace trenzas para otra
-tres tantos
-tiempo de cortar trigo
-trillar
+matar
+tirar
+tío
+tostar
+chiva
+robar
+queja
+todavía
+moco
+nariz
+ocote
+labio
+sacar
+mucho
+sacar
+parar
+tirar
+mecate
+madre
+quemar
+atajar
+tierra
+tirar
+hígado
+caerse
+morder
+saber
+pararse
+caballo
+vivo
+¡oiga!
+pararse
+acá
+así
+fierro
+atrás
+banca
+vena
+amasar
+metate
+pegar
+yerno
+cabeza
+elevar
+frijol
+mujer
+espiga
+cerca
+quemar
+raíz
+lumbre
+tapar
+llorar
+medio
+pensar
+pagar
+ladrar
+hacer
+cobrar
+picar
+sean
+patear
+mover
+rodear
+vuelta
+mandar
+flecha
+macho
+vencer
+afilar
+querer
+ladear
+gemir
+segundo
+lavar
+arriba
+petate
+hasta
+¿qué?
+soplar
+nevar
+pecho
+vela
+diente
+ortiga
+mentar
+hombre
+soñar
+arriba
+rascar
+quedar
+pisar
+abajo
+sur
+zumbar
+piedra
+patear
+hervir
+pato
+nido
+sauz
+descubrir
+sonaja
+quemar
+temblar
+dilatarse
+suegro
+mover
+pasan
+pasar
+iba
+pasar
+gritar
+todo
+fiar
+contar
+lluvia
+parar
+cargar
+correr
+llevar
+cintura
+perder
+sexto
+invitar
+algo
+andar
+andar
+antes
+apurar
+arar
+arco
+ay
+batir
+borde
+borla
+borrar
+buche
+buscar
+caer
+caer
+campo
+cana
+cansar
+carga
+carta
+cercar
+cercar
+cerrar
+cocer
+cuello
+cuidar
+cuidar
+diluir
+elote
+embotar
+enviar
+esposo
+fino
+frotar
+gozar
+gritar
+habla
+herrar
+hoja
+horcón
+huellas
+humear
+vaya
+lama
+llano
+llevar
+llevar
+llevar
+mamar
+mandar
+manta
+marear
+marido
+mata
+mata
+mata
+mata
+mata
+matar
+mazo
+meter
+mezclar
+moho
+monte
+multar
+nacer
+observar
+oiga
+olla
+opinar
+papel
+pavo
+pesar
+pescar
+petaca
+piel
+pierna
+pizcar
+plato
+poseer
+pozo
+pudrir
+pudrir
+puerta
+punzar
+quitar
+rabia
+rajar
+rama
+'ya
+rodar
+roncar
+rozar
+saber
+salir
+sangrar
+sentir
+será
+sonar
+sumamente
+tal
+tapar
+tener
+tijera
+tocar
 tripa
-tiene tripas
-está triste
-troje
-en la troje
-tiene troje
-tronar
-tronar
-está tronando el cielo
-truena la pólvora
-trozar
 trozar
 trozo
 tú
-tuétano
-tumba
-tumbar
-tumbar
-está turbia
-tuyo
-ubre
-último
-un, uno
-ni uno
-ungido
-ungir
-unido
-unir
-unos
-untar
-uña
-usado
-usted
-de ustedes
-útil
-vaca
-vaciar
-vadear
 vaina
-valer
-vale mucho
-valiente
-valor
-vanagloriarse
-vanidoso
-hace vapor
+y
+yerba
+zafar
+lo buscaba
+huarache
+dulce
+herrar
+rostro
+¿acaso?
+iguales
+tragar
+rezar
+igualar
+dejar
+almud
+sacudir
+también
+carrizo
+mejilla
+jalar
+entrar
+pozole
+mapache
+creer
+fierro
+tres
+lana
+camino
+amarrar
+manojo
+caerse
+inflar
+bajarse
+alzar
+pinole
+dormir
+dormir
+comer
+cuajo
+¡hola!
+malacate
+flauta
+lamer
+robar
+pegar
+robar
+herir
+seno
+teta
+pasar
+hocico
+perrito
+afilar
+madurarse
+sabina
+cuñado
+garza
+salir
+secar
+cocinar
+suegra
+pato
+aguja
+piojo
+suelo
+caer
+lavar
+deber
+arete
+elegir
+parar
+ancho
+andar
+mentir
+sembrar
+voraz
+caminar
+jugar
+aquí
+así es
+fuerte
+uno subir
+hierro
+hacer hoyo
+escarbar
+esposas
+gastar
+cuarta
+agarrar
+salir
+quinto
+palma
+canas
+poner
+menear
+nuera
+sahumar
+canas
+estar
+espigar
+llevar
+quemado
+seguir
+pelear
+borrar
+llegar
+cuatro
+seguir
+caerse
+caerse
+borrar
+mostrar
+hacer
+siendo
+yo a ti
+moverse
+mover
+crecer
+barro
+invitar
+también
+táscate
+ladear
+escribir
+escribir
+arriba
+gotear
+remojar
+muy poco
+barrer
+cobija
+semilla
+conocer
+comprar
+tumbar
+jugar
+nombre
+granizo
+montón
+hacha
+bajar
+eructar
+cansar
+sufrir
+helarse
+noche
+atizar
+conejo
+encino
+doblar
+toser
+liebre
+caerse
+comal
+enemigo
+caminar
+sobrar
+abeja
+ejote
+espejo
+suegro
+pudrirse
+cocido
+acabar
+acabar
+tabla
+le pide
+semana
+semilla
+apuesta
+falta
+no
+peinar
+asado
+vacunar
+canasta
+barranca
+dándole
+ustedes
+conducir
+cerrado
+regañar
+acarrear
+acaso
+aceptar
+agarrado
+ahí
+algunos
+amargo
+amargo
+amargo
+amarrar
+andar
+animal
+aparte
+arar
+arma
+arrancar
+atorar
+avispa
+basura
+bazo
+brasa
+brotar
+buscar
+cabello
+caer
+cajete
+calmar
+calmar
+canasta
+canasta
+cargar
+cima
+coatí
+cogiendo
+corona
+correr
+cuero
+cuesta
+cuesta
+cuidar
+chile
+chillar
+chocar
+dar
+durar
+duro
+empezar
+español
+espesar
+esquina
+ésta
+éste
+gorgojo
+gruñir
+hallar
+hoja
+hola
+hoy
+jarro
+jugo
+labrar
+lavar
+liacho
+lienzo
+lodo
+lombriz
+lomo
+llegaron
+llevar
+llevar
+maíz
+mandó
+marrano
+marro
+maullar
+me
+menear
+morder
+mosca
+mosquito
+neblina
+nene
+nombrar
+nopal
+olor
+oponer
+ordenar
+oruga
+oveja
+paga
+papa
+parecer
+partir
+pasto
+peine
+perder
+perico
+pezuña
+pico
+pollo
+puma
+punta
+quería
+quieto
+quitar
+quitar
+rana
+rayar
+real
+recibir
+recio
+relatar
+rendir
+resina
+retener
+rico
+rodear
+le ruega
+rojear
+seguir
+sembrar
+sentar
+eran
+sol
+solera
+sonar
+su, sus
+suceder
+tabaco
+tentar
+testificar
+tocar
+tocar
+troje
+trozar
 vaqueta
-vaso
-vecino
-vejiga
 veloz
-venado
-vender
+verter
+vientre
+vigilar
+volver
+yugo
+hace rato
+tener sal
+salado
+bilis
+águila
+táscate
+nieto
+descornar
+sacudir
+sentarse
+rociar
+tercero
+nutria
+año
+apedrear
+apedrear
+pasear
+derretir
+invitar
+gustar
+capar
+amansar
+soltarse
+esperar
+sombra
+enrollar
+rodarse
+escupir
+reírse
+caballo
+aclarar
+tumbar
+tambor
+inflarse
+quebrar
+alzar
+quebrar
+picante
+enchilar
+marrano
+bola
+arroyo
+obsequiar
+cuervo
+ahogarse
+hijos
+tostar
+quemar
+torcer
+banca
+nalga
+chanate
+raspar
+resonar
+feo  mal
+vieja
+ratón
+ubre
+picar
+camote
+quemarse
+negro
+encoger
+chupar
+higuera
+mellar
+mellar
+zancudo
+muy  mucho
+caerse
+pegar
+chile
+bueyes
+mentir
+quemarse
+largos
+respirar
+enredar
+tropezar
+dar leche
+volarse
+ventilar
+llave
+peyote
+uno correr
+correr
+uno huir
+nervio
+¡vamos!
+paloma
+hay luz
+sacar
+estuche
+cuando
+paleta
+sobaco
+doblarse
+entrar
+pudrirse
+sentar
+poner
+estar
+uno estar
+mujeres
+hembra
+levantar
+pudrirse
+mirando
+tumbar
+tumbar
+juntarse
+quebrar
+puerto
+naranja
+saludar
+atajar
+va a ver
+igual
+hacer
+respetar
+empujar
+trabajar
+moverse
+moverse
+dormir
+grande
+arrancar
+español
+quebrar
+muela
+derecho
+regañar
+adentro
+bautizar
+remojar
+echado
+pocos
+tendidos
+poquito
+escoba
+remoler
+brincar
+llenarse
+posesor
+retumbar
+siete
+morder
+nieve
+acallar
+arroyo
+joven
+nivelar
+espalda
+pulga
+bajar
+papas
+cansarse
+pobre
+uno jugar
+hondo
+surcar
+apartar
+bellota
+invierno
+hervirse
+panza
+conseguir
+zacate
+mojarse
+apurarse
+arenal
+hormiga
+plegar
+uno irse
+una vez
+ahogar
+codo
+honda
+cornear
+rastrojo
+hormiga
+bonito
+ombligo
+corazón
+soltar
+manear
+menor
+maíz
+comida
+lágrima
+enviudar
+viudo
+azuzar
+¿quién?
+semejanza
+hace aire
+alegrar
+alumbrar
+allí
+allí
+amarrar
+angosto
+animar
+ante
+aprender
+aprisa
+apuntar
+apurar
+por aquí
+ardilla
+así
+atrás
+azul
+es azul
+bastón
+bigote
+bisnieto
+bordón
+borrego
+botella
+brillar
+brillar
+burlar
+caer
+caer
+caldo
+camisa
+cazuela
+ceniza
+cepa
+cerro
+cinturón
+clavar
+codiciar
+collar
+comenzar
+con
+conocer
+contener
+correcamino
+cruzar
+cuatro
+cumbre
+curar
+cholubo
+dentro
+desangrar
+donar
+dónde
+empollar
+enagua
+encender
+encerrar
+encino
+enlazar
+enrollar
+entender
+envolver
+escoger
+espumar
+esquite
+estará
+estorbar
+estudiar
+fibra
+fiebre
+frío
+fuerte
+garganta
+gavilán
+gorgojo
+hablar
+hacer
+hierba
+hierba
+hilo
+hincar
+hinchar
+hinchar
+huevo
+hundir
+iluminar
+informar
+inyectar
+vamos
+juntar
+lavar
+león
+lonche
+manteca
+médico
+medida
+médula
+mojar
+molestar
+molleja
+mondar
+murmurar
+músico
+niebla
+nombrar
+ocupar
+olor
+orilla
+palmillo
+perico
+persogar
+pescado
+piso
+pollo
+posar
+preparar
+pudrir
+puerta
+quelite
+quitar
+quitar
+quitar
+quitar
+rama
+rayar
+rebajar
+rebosar
+reñir
+reunir
+rifle
+dar risa
+rojo
+salir
+sofocar
+hace sombra
+sonaja
+sonreír
+sucio
+tamaño
+tardar
+templo
+terreno
+tocador
+tortilla
+unir
+útil
+vadear
+valer
+valor
+vejiga
 venenoso
-venir
-vénganse
 ventana
-ventana
-ver
+zacate
+zapeta
+zopilote
+zorra
+va a buscar
+quitar
+nieta
+correa
+asado
+solos
+amigo
+aguantar
+aletear
+enemigos
+montando
+quedarse
+tener arco
+mañana
+calabaza
+herrar
+coyote
+taza  vaso
+lavarse
+limpiar
+duro
+anzuelo
+torcerse
+pedernal
+salir pus
+echarse
+temprano
+anzuelo
+desatarse
+poseedor
+contener
+lleno
+llenar
+agacharse
+ciego
+enfermar
+hacer sombra
+cadera
+arrugar
+quebrarse
+desgajar
+mejorar
+parecerse
+amable
+quebrar
+carrete
+capulín
+limpiar
+guardar
+cosechar
+ahogarse
+abotonar
+pardo
+regalar
+pudrirse
+chiquitos
+voltear
+espeso
+vaciar
+tío
+enviudar
+viuda
+espesarse
+saludar
+capulín
+nuca
+menor
+tocarse
+secarse
+apretar
+venado
+robando
+robar
+palpitar
+cuñado
+solamente
+comida
+pararse
+¿qué?
+venado
+perrito
+pollito
+azulejo
+mejorar
+salir
+¡Cójanlo!
+perderse
+cantar
+hongo
+barro
+dinero
+extenso
+pararse
+zopilote
+arrebatar
+muchachas
+fuerte
+descansar
+uno vivo
+levantarse
+porque
+andar muchos
+desde  de
+entarimar
+oxidarse
+abanicar
+tremolar
+abanico
+gastarse
+corriendo
+dedo
+afuera
+agarrar
+dónde
+gemelo
+cervato
+ganar sueldo
+astilla
+sentarse
+meterse
+quebrar
+hollín
+ahumar
+chocarse
+su
+aplastar
+alcanzar
+gime
+tábano
+clueca
+odiar
+quebrar
+mitad
+mezclar
 a verlo
+a verlo
+muchísimo
+ni uno
+invitar
+aullar
+pastor
+aplastar
+Casi.
+inundar
+nublarse
+ambos
+criar
+nieto
+padre
+hueco
+tener filo
+afilado
+hacer así
+tirar  echar
+acarrear
+gente
+poquito
+destapar
+faja
+hija grande
+masticar
+nueve
+sábana
+escuchar
+prohibir
+gustar
+rebanar
+vender
+blando
+machucar
+oxidarse
+mostrar
+limpiar
+hermano
+despedir
+va a ver
+apartarse
+separar
+enrollar
+pie  pata
+enfriar
+sonaja
+florecer
+florecer
+calmarse
+siempre
+enfriarse
+enaguas
+cortar
+ahogarse
+atascarse
+legaña
+espinas
+espina
+acabarse
+orilla
+me  a mí
+prestar
+muchacha
+atascarse
+cacarear
+tropezar
+bañar
+salimos
+abierto
+uno andar
+con
+abejorro
+absorber
+abuelo
+por acá
+acabará
+aconsejar
+adelante
+adónde
+agachar
+agrio
+agudo
+aguililla
+alisar
+allá
+amable
+amarrar
+ampolla
+anochecer
+apagar
+apersogar
+araña
+tiene arco
+da asco
+asentar
+atizar
+atrancar
+atrasar
+azotar
+bello
+bisabuelo
+borrego
+bostezar
+búho
+cabrito
+cacto
+caer
+caminar
+cantar
+come caña
+carbón
+cáscara
+cerro
+cócono
+conque
+corona
+correr
+correr
+que cose
+costar
+crecer
+cruel
+crujir
+culebra
+chivato
+chulo
+decir
+desherbar
+detener
+detrás
+él, ella
+empollar
+emprender
+enclocar
+enfrente
+enorme
+enseñar
+estómago
+estrecho
+tiene filo
+al fin
+fresco
+germinar
+hablar
+hablar
+hinchar
+hinchar
+hongo
+hueso
+iglesia
+importar
+instruir
+jugaban
+lagarto
+lindo
+hay luna
+hay llano
+llegamos
+llevar
+maduro
+mal
+mata
+mocho
+moneda
+muerto
+mugre
+nadie
+nunca
+obrero
+oír
+oler
+olvidar
+pájaro
+pandear
+paño
+pañuelo
+pastorear
+pegar
+perecer
+permiso
+pie
+podrido
+postrar
+preparar
+producir
+proteger
+pulmón
+rana
+al rato
+ratón
+relinchar
+repetir
+rincón
+rodilla
+salvar
+señalar
+silencio
+hace sol
+uno solo
+soplar
+sorber
+sucio
+tapar
+tapar
+es tarde
+temblar
+tirar
+es todo
+todos
+trapo
+trillar
+tuétano
+usado
+ventana
 ve bien
-viéndolo
-verdad
 verde
 es verde
-lo pinta de verde
-tiene vergüenza
-verter
-está vertiginoso
-le causa vértigo
-vestido
-vez
-a veces, de vez en cuando
-otra vez
-muchas veces
-tal vez
-víbora
-víbora
-víbora
 víbora
 víbora
 dar vida
-vieja
 viejo
-viento
-hacer viento frío del norte
-hace viento
-vientre
-viga
-poner vigas
-vigilar
-vigoroso
-violento
+sí
+cara, nariz
+quitarse
+aletear
+marchitarse
+siéntate
+levantarse
+pudrirse
+estornudar
+hay agua
+hincharse
+tener sed
+apedrear
+derretir
+tesgüino
+podrido
+verdad
+sólo uno
+amarrado
+llenarse
+echarse
+inclinarse
+tener ojos
+¿cuándo?
+arrugarse
+derribar
+ser bueno
+campana
+rodarse
+quebrarse
+levantar
+ceja
+estar bajo
+amargo
+leña  madera
+uno hijos
+uno chiquitos
+perritos
+de nuevo
+la punta
+hace poco
+antes
+mestizo
+enfermarse
+sonar mal
+estar feo
+malo
+¿quién?
+romper
+cortar
+rasgar
+cortarse
+esconder
+plano
+amanecer
+aplastar
+importar
+llevar
+obscurecer
+doblarse
+veces
+encogerse
+venadito
+ardilla
+ese  esa
+rajar
+apartar
+colear
+estirarse
+estirar
+¡Cójanlo!
+turbio
+chiflar
+mundo
+colgar
+parar
+alargar
+párate
+andar
+ordeñar
+negar
+fuerte
+abrirse
+orinado
+parados
+dice esto
+fuerte
+por eso
+apresurar
+uno esposas
+sí  seguro
+enramada
+hambre
+correr
+comer caña
+garrapata
+ver bien
+alacrán
+temer
+adj  cinco
+fugarse
+pinabete
+tanto  mucho
+si gana
+contigo
+luna  mes
+alacrán
+abollarse
+desmenuzar
+podrido
+uno sentar
+tú  usted
+aplastarse
+mecapal
+conectar
+varios llegar
+deshierbar
+sordo
+quebrarse
+encontrar
+enfermo
+invitar
+uno aullar
+moverse
+trabajo
+nublarse
+corcové
+entre dos
+envejecer
+zurdo
+comenzar
+fiesta
+domingo
+triste
+tener padre
+ocho
+remendar
+zorrillo
+cigarro
+aprender
+mío  mía
+su  sus
+¿cúanto?
+reprender
+aplastar
+ligamento
+peñasco
+tener hijo
+empujar
+machucarse
+deslumbrar
+agujerear
+tío  tía
+el sol
+grillo
+borracho
+nombrar
+mostrarse
+gemir
+aguantar
+sapo  rana
+parejo
+voltear
+caerse
+cuchillo
+de abajo
+de abajo
+derramar
+cultivar
+cambio
+apartarse
+lavarse
+cinchar
+blanco
+grillo
+preguntar
+grueso
+brotar
+caerse
+remojar
+tostar
+saliva
+bastante
+completo
+renacuajo
+trasquilar
+bracear
+flor
+va a irse
+uno pasan
+hechizar
+enfriar
+arrugarse
+cazador
+aflojar
+resbalarse
+espinar
+soldado
+estrella
+yescoso
+hechizar
+tesgüino
+mazorca
+aflojarse
+soltar
+calentar
+nosotros
+aplastarse
+peine
+llevar  tomar
+pajarito
+nosotros
+traducir
+abertura
+abuela
+abuelo
+acusar
+adelantar
+tira agua
+aguantar
+muy alto
+amar
+amarillo
+amarrar
+amarrar
+antes de
+aplanar
+arrastrar
+arrebatar
+hay arroyo
+arrugar
+atardecer
+atole
+babear
+muy bien
+hacer bola
+bolita
+brujo
+está bueno
+hace calor
+hay camino
+canasta
+cansado
+cerco
+cobarde
+completar
+contagiar
+convertir
+cordillera
+costoso
+cuajar
+cuál
+chiflar
+demás
+derretir
+desabrido
+se desató
+desgastar
+deshojar
+destruir
+difunto
+encarrujar
+encerrar
+hace enramada
+enrojecer
+entero
+entonar
+escardar
+espanto
+esparcir
+esquiate
+exprimir
+firme
+flecha
+formar
+frijol
+gigante
+grajea
+gusano
+inclinar
+infectar
+inmenso
+intestino
+jamás
+de un lado
+lagartija
+más lejos
+ley
+licencia
+hace lodo
+lugar
+llegar
+llegándose
+llevar
+macizo
+marear
+tiene mes
+a mí
+miedoso
+mismo
+o
+obscuro
+obsequio
+ocotoso
+ocultar
+ocultar
+oír
+oír
+tiene ojos
+pájaro
+pájaro
+pájaro
+pecar
+perfecto
+perforar
+perforar
+picacho
+pisotear
+platicar
+poco
+quelite
+reclamar
+relumbrar
+remedio
+repartir
+resfriar
+roto
+sangre
+según
+era
+éramos
+sereno
+sierra
+soguilla
+sonaja
+soplando
+su, sus
+sumergir
+taladrar
+talón
+tardecer
+tender
+tocar
+tumba
+último
+ungido
+volver
+zoquete
+boca abajo
+risueño
+pasador
+uno solos
+aparte
+decalitro
+de otro modo
+juntarse
+poner
+sonar fuerte
+hacer olas
+podar
+otro
+salir agua
+hay lama
+oler mal
+salir pus
+despellejar
+estar duro
+único
+cien
+alguien
+rasparse
+postrarse
+desplumar
+acostarse
+despertarse
+hundirse
+le escupe
+arrugarse
+derribarse
+capitán
+chilicote
+por nada
+amándole
+arreglar
+a comer
+tener sal
+arco iris
+dar de comer
+ser amargo
+sombrero
+escardar
 viuda
-viudo
+envenenar
+cascabel
+elegir
+ramitas
+quijada
+chueco
+apuñalar
+romperse
+cortarse
+mamador
+dar leche
+despeinado
+aplastar
+mocoso
+culpable
+cadáver
+pájaro
+muchísimo
+costilla
+azadón
+alamillo
+fuerte
+palo picudo
+perdonar
+olvidarse
+castrar
+uno bueyes
+abanicar
+esconderse
+enredarse
+nopalera
+ciertamente
+madre  mamá
+andar
+esta clase
+poder
+apresurarse
+ser  estar
+atrasarse
+que huele
+mandado
+hacer enramada
+oxidado
+sangriento
+ciempiés
+verse bien
+claro
+asustar
+mientras
+varios huir
+abanico
+tener celos
+aquel  aquella
+muy lejos
+hacer luna
+gato
+desmayarse
+varios subir
+helecho
+uno entrar
+incienso
+estaremos
+aumentar
+muy cerca
+aplastarse
+quemado
+uno seguir
+cambiar
+quemar pelo
+viniendo
+enraizar
+acercarse
+sonar mucho
+juntarse
+enclocarse
+permitir
+caracol
+araña
+revuelto
+listón
+mucho antes
+enfermarse
+muy  sumamente
+cobrador
+picador
+soltar
+¡Trabaja!
+difícil
+va a traer
+marchante
+dar vuelta
+alrededor
+uno dormir
+chamuscar
+quemarse
+levantar
+levantarse
+levantar
+poder
+pudiendo
+hacer  obrar
+tambalearse
+escrito
+veinte
+leer
+por arriba
+extendido
+por favor
+zambullirse
+remolino
+los llena
+soplando
+aborrecer
+noveno
+aplastarse
+asentarse
+ardiente
+derramarse
+sonar
+vender
+calentarse
+hacer calor
+malgastar
+va a abrir
+loma
+por abajo
+más abajo
+bostezar
+estar hondo
+codorniz
+flexible
+lloviznar
+pálido
+salamandra
+tomatillo
+aliviarse
+temblar
+resbalarse
+llegar a ser
+uno llegan
+a mano
+aplaudir
+se hincha
+plegado
+varios irse
+redondo
+espanto
+despeinado
+chaparro
+bonito
+No hay
+borrachos
+restante
+descender
+palo parado
+blancos
+sacando agua
+desde abajo
+tener esposa
+madroño
+Es zurdo
+dar  convidar
+enojar
+a pesar de
+abofetear
+acercar
+admirar
+agujerear
+agujero
+agusanarse
+ahorcar
+alabeado
+por algo
+almohada
+anciana
+ardilla
+ardilla
+arrimar
+así
+astillar
+usa bastón
+muy bueno
+calzón
+camaleón
+cárcel
+cargado
+caro
+carpintero
+cobija
+colibrí
+comida
+cómo
+con
+dar consejo
+construir
+contado
+contestar
+criatura
+cuanto
+chapulín
+dar a luz
+mecate
+así dice
+delante
+desamarrar
+descoyuntar
+desherbar
+está duro
+empachado
+enfermar
+enjambre
+envejecer
+esposa
+estiércol
+excremento
+extraer
+fantasma
+gastado
+gastar
+gavilán
+está gordo
+cae grajea
+tan grande
+grano
+gris
+guacamayo
+guajolote
+guiar
+así hace
+lo hace así
+hígado
+está hondo
+hacer hueco
+húmedo
+inflado
+izquierdo
+juntamos
+limpiar
+limpio
+está loco
+hace lumbre
+madre
+madrina
+malvado
+manantial
+martillar
+más allá
+medicina
+morar
+nariz
+hace nido
+oír
+padrino
+pájaro
+pasando
+pensador
+perforar
+pinole
+pintar
+pintar
+pizca
+hay polvo
+poseedor
+lanza quejas
+quitar
+rana
+un rato
+recoger
+recordar
+recto
+responder
+retornar
+roñoso
+saco
+está salado
+salivar
+sapo
+ser
+serpiente
+serpiente
+sonaja
+está sucio
+temeroso
+torcido
+usted
+vanidoso
+hace vapor
+venir
+víbora
 vivir
-el que vive
-que vivan
-vive allí
+zanja
+buscándolo
+ellos, ellas
+cojo
+ligeros
+ligeros
+perseguir
+rezumbar
+tascatal
+estar bravo
+desaparecer
+uno enemigos
+otros
+hinchado
+tomar, beber
+curandero
+potable
+lama, moho
+tener sed
+triguillo
+lo derrite
+sanguijuela
+adornar
+hacer duro
+estar pesado
+hacer camino
+músculo
+cadera
+arrugar
+completamente
+amado
+tener casa
+de otro modo
+va a picar
+dar de comer
+hacer arroyo
+banquillo
+ra comer
+uno perritos
+va a comer
+luciérnaga
+a un lado
+barba
+ladrón
+manta  ropa
+estar agrio
+entumirse
+tener moco
+ennegrecerse
+va a pegar
+varios veces
+principio
+comoquiera
+despuntar
+¿por qué?
+ese tanto
+para allá
+amar  querer
+derecho
+enderezar
+allá  más
+por allá
+secarse
+seco
+endurecerse
+ciudad
+chuchupate
+piojoso
+perdido
+envejecerse
+pararse
+después
+desparramar
+quemarse
+sembrador
+reforzar
+seguidor
+admirándolo
+hay un llano
+abierto
+no sirve
+varios andar
+por mí
+hecho hoyo
+anterior
+anaranjado
+varios correr
+Ya vino
+caña de maíz
+sabido
+espantarse
+nervioso
+cuánto
+semejante
+estar sentado
+alejar
+labrado
+aplastarse
+zarzamora
+aplastarse
+sobre  encima
+la corona
+quelite
+hacer humo
+encanecer
+ir subiendo
+levantarse
+amontonar
+va a estar
+uno mujeres
+¿Y tú?
+liacho lío
+hacer lumbre
+oreja  oído
+alcanzar
+prendido
+tener raíz
+tapado
+lugar cerca
+perezoso
+tonto
+pagar
+enfermedad
+hacer caso
+celoso
+contradecir
+¡Vean!
+parecer bien
+va a hay
+adelantarse
+emplear
+cubrir
+ocultarse
+tener comida
+tiene dolor
+estar plano
+izquierdo
+gallo
+ser venenoso
+poderoso
+estar enojado
+haciéndolo
+dar consejos
+uno acarrear
+echar  tirar
+va a extender
+chaparro
+va a fumar
+fumador
+¿qué es?
+en la laja
+cubrir  tapar
+uno llenarse
+irse a ceñir
+entumido
+mediodía
+palabra
+rendija
+cecina
+patio
+comprador
+calentar
+primo  prima
+ver  hallar
+desgastarse
+caer grajea
+curandero
+crucifijo
+pedregal
+boca arriba
+entarimar
+para arriba
+acornear
+sufrir
+el que ve
+hay hierba
+tronar
+aguantarse
+hay encinos
+tobillo
+manear
+cincha
+bramar
+zumbar
+blanquearse
+tordo
+tener hojas
+engordarse
+va a que
+temblarse
+tener brazo
+¡vénganse!
+colorado
+redondo
+calentarse
+golondrina
+ratoncito
+perecieron
+contados
+tejer  extender
+usar bastón
+poner parado
+poner parado
+untándole
+estar parado
+va a perder
+desmayarse
+dar  convidar
+sin nada
+va a enojarse
+está enojado
+abertura
+acordarse
+acostarse
+aflojado
+está agrio
+aguijada
+amamantar
+amo
+ampollar
+anciano
+andar
+andar
+anhelar
+ánimo
+aprenderá
+arder
+muy arriba
+arrugado
+hace atole
+barbechar
+bolsa
+bramar
+está bravo
+tiene brazo
+que no cabe
+caer
+calabaza
+caminar
+carecer
+casa
+tiene casa
+está casada
+casi
+cellisca
+cierto
+esa clase
+cobrar
+tiene comida
+compadecer
+complejo
+condenar
+cree que sí
+cuarta
+tiene cuerpo
+cuñado
+curandero
+chicotear
+fue dicho
+derrumbar
+desaparecer
+despedazar
+despreciar
+dilatar
+distribuir
+divisar
+emborrachar
+emparejar
+empezar
+enfermarse
+entumecer
+envolver
+tiene esposo
+estrangular
+extinguir
+extraviar
+fertilizar
+flaco
+fuerte
+gemir
+gorgojo
+salir granos
+granujoso
+gusano
+tiene gusto
+hartar
+hechicero
+higo
+hinchado
+tiene hojas
+escarbar hoyo
+hueso
+interrogar
+por este lado
+tiene lana
+lejos
+hacer liacho
+hace un lío
+listo
+loco
+hace lonche
+donde llega
+maestro
+maíz
+mal de salud
+menear
+tiene moco
+morado
+morir
+en la nariz
+necesitar
+hace nudo
+nuevamente
+nuevo
+obedecer
+no obstante
+huele mal
+olfatear
+paja
+pájaro
+pájaro
+panal
+párense
+peinado
+tiene pelo
+pellizcar
+pensar
+permanece fijo
+está pesado
+pica como chile
+piedra parada
+hace pinole
+pinto
+está plano
+pollo
+por allá
+preñado
+primo, prima
+qué es
+quedar
+quejar
+tiene raíz
+rascar
+rasguñar
+se raspó
+rastrillo
+reír
+resbalar
+resolver
+que sepan
+sacar tiras
+siendo
+sin embargo
+suciedad
+tacaño
+tatemado
+tecolote
+tecolote
+termita
+hacer tomar
+tomar pecho
+traer
+hace trenzas
+unido
+valiente
+vénganse
+vestido
+poner vigas
+violento
 vivo
 volar
-lo echó a volar
-voltear
-volver
-volver
-volver
-vomitar
-dar vuelta
-está dando vueltas solo
-vuestro
-y
-ya mero
-yerba
-yesca
-yescoso
-yugo
-yunta de bueyes
-zacate
 hay zacate
-zafar
 zambullir
-zanja
-zapeta
-que lleva zapeta
-se pone zapeta
-pieza triangular de la zapeta
-zopilote
-zoquete
-zorra
-zorrillo
+acaba de buscar
+si lo busca
+su cara
+poner colocar
+cómico
+meter  echar
+tener cuernos
+va a bailar
+estar entero
+medir  pesar
+le dice esto
+va a dejar
+estar sentado
+hacer preso
+norte
+cocer  hervir
+va a pudrir
+creyente
+hermana menor
+varios buey
+hermano menor
+la otra banda
+derribarse
+llevar preso
+si le amarran
+extraordinario
+esférico
+en la casa
+tener casa
+quebrado
+pierna  muslo
+va a arco
+alzado
+hacer pinole
+comilón
+comer mucho
+cuesta abajo
+el que dona
+al otro lado
+saltamontes
+poner banca
+Salvador
+dar vueltas
+pelo  cabello
+tener cabello
+pestañear
+astillarse
+lengua
+robado
+desparramar
+estar amargo
+hacer trenzas
+estar parado
+panteón
+tener labios
+higos
+¿por qué?
+va a afilar
+alabar
+toro
+enderezarse
+derecho
+esófago
+arrojar
+apartarse
+tía
+elástico
+hacer atole
+sanguijuela
+con fuerza
+perdón
+estar turbio
+cuero  piel
+varios a pie
+quemarse
+chapalear
+que debe
+estar parado
+envejecerse
+estar largo
+varios pararse
+hay tierra
+tipo de pino
+sembrado
+tener agujero
+resollar
+va a abrir
+explicar bien
+hasta que
+uno pararse
+estar parados
+algunos  unos
+en el hoyo
+¡apúntalo!
+por atrás
+tener esposas
+hacer huejas
+batir  mezclar
+claramente
+tener canas
+arrear  llevar
+marro  mazo
+clavado
+aplastar
+va a ganar
+aplastar
+descoyuntarse
+madrastra
+va subiendo
+tener nuera
+tener canas
+aumentado
+varios mujer
+va a espigar
+homicida
+enchuecar
+que llegar
+aquí
+¡síguelo!
+va a caerse
+cosa  animal
+nixtamal
+tener oídos
+llorón
+¡Piense!
+va a pensar
+¡Véanlo!
+mirar  observar
+estar mirando
+ayudante
+hacerse
+mío
+tuyo
+casarse
+dar  entregar
+casi
+tener un hijo
+orgulloso
+estar nublado
+tener huesos
+hacer fiesta
+octavo
+papel  carta
+rama grande
+enramada
+meter
+va a remoler
+¡Tápalo!
+ponerse una faja
+séptimo
+tener cobija
+estar pando
+hablador
+idioma
+en la laja
+brillante
+tierra blanca
+comadreja
+troja troje
+emborracharse
+viéndolo
+jugador
+estar parejo
+al revés
+voltearse
+en la boca
+varios quedar
+ahondar
+lucero
+acaba de ver
+hermanos
+cóncavo
+pez  pescado
+durar mucho
+hacer espuma
+mi pie
+jorobado
+enfriar
+lucero
+gato montés
+uno caerse
+estar grueso
+hace frío
+hacer brasas
+tipo de pino
+estar mojado
+humedecerse
+arenoso
+de repente
+en la mano
+olla  jarro
+tener tripas
+va a caminar
+sarampión
+gobernador
+cazar  pescar
+esquina  codo
+coser para uno
+va a acabar
+va a sobar
+chupamirto
+uña  pezuña
+más chiquito
+se encoge
+poco tiempo
+fue traído
+bañarse
+va a bañarse
+va a llover
+chupar  besar
+va a correr
+varios esposa
+abuela materna
+que quitar
+por allá
+que enojarse
+lo de abajo
+abono
+para acá
+acaso
+afilar
+agarrotar
+tiene agujero
+alimento
+ir alrededor
+apartado
+se aplastó
+apúntalo
+tiene arete
+arriba
+arriba
+para arriba
+atajar
+atascar
+atizar
+sería bueno
+buey
+cabecilla
+calabacilla
+calcañar
+tiene canas
+tiene cariño
+lo que cierra
+ciento
+tiene cobija
+codicioso
+el que come
+comerciante
+complacer
+consigo
+contentar
+cuchichear
+tiene cuernos
+chamuscar
+chirriar
+chistoso
+descomponer
+desear
+desgranar
+despintar
+el otro día
+discípulo
+dispersar
+dominar
+echa a correr
+enlodar
+ensuciar
+está entero
+tiene envidia
+envidioso
+escarpadura
+da espíritu
+estar
+estar
+hacen fiesta
+finalmente
+fresco
+ganar
+gritar
+está grueso
+habitar
+hijo
+hojarasca
+tiene huesos
+ir
+tiene labios
+lavar
+levantó
+ligamento
+llevar
+matado
+medir
+mentir
+está mirando
+de ese modo
+mujer
+mutuamente
+hay neblina
+tiene nombre
+nopal
+está nublado
+nublar
+tiene nuera
+tiene oídos
+padecer
+palo podrido
+pantalón
+andar parado
+párate
+es pardo
+parir
+pasar
+pedir
+pez, pescado
+podrido
+primeramente
+rabo
+rata
+rechinar
+regañar
+regocijar
+resplandecer
+resucitar
+por río abajo
+sediento
+seguir
+semilla
+siéntate
+separado
+sepulcro
+sepultar
+sobrar
+suegro
+talega
+tampoco
+táscate
+todavía
+tomar
+trabajador
+tiene tripas
+tiene troje
+tronar
+está turbia
+un, uno
+víbora
+vigoroso
+vive allí
+vomitar
+le da  dándole
+desgranar maíz
+tener hígado
+nombrado
+entonces
+¡adiós!
+podridas
+uno tras otro
+meter , poner
+que meter
+hermano mayor
+jugo, caldo
+treinta
+hacer un año
+tener mejillas
+pato
+guiar  llevar
+hacer bonito
+endurecerse
+neblina  polvo
+yo mismo
+estar lleno
+tener  poseer
+va a amarrar
+esféricos
+poner huevos
+yegua
+tener tierra
+ampollarse
+ser esférico
+ser esférico
+arma  rifle
+mi casa
+llevar cuidar
+haber zacate
+que quebrar
+Así es
+hermana mayor
+que dormir
+que comer
+ser pardo
+va a matar
+agusanarse
+tostado
+va a tirar
+marido  esposo
+en la cruz
+que tostar
+de antes
+desparramarse
+estar tierno
+círculos
+madrastra
+va a pegar
+ser ocotoso
+gatea
+sacar punta
+muy bueno
+va a rajar
+va a salir
+va a salir
+aparte  lejos
+va a sacar
+secar
+mar
+estar fuerte
+hermana menor
+las viejas
+muchísimos
+manzanilla
+rasparse
+lazar  amarrar
+manteca  sebo
+va a sacar
+estar colgado
+azotado
+extraviarse
+tener aretes
+que mentir
+matas de maíz
+uno muchachas
+respiración
+canasta petaca
+mi mamá
+tener hijos
+hoy día
+echar a correr
+enviar  mandar
+batir  mezclar
+coyuntura
+va corriendo
+podía ver
+afuera
+ir corriendo
+león  puma
+mi hija
+en el hombro
+llevar cargar
+aplastado
+encima de
+subir el humo
+amarrar yugo
+sembrar frijol
+mariposa
+va a borrar
+entre cuatro
+varios seguir
+despreciar
+varios llorar
+que pagar
+paga  valor
+poner enfermo
+que hacer
+haciéndolo
+relampaguear
+obedecer
+tener celos
+tentar  tocar
+tentándolo
+a trabajar
+volver  venir
+en dos partes
+mugriento
+dar comida
+estar difícil
+entristecer
+Dios Padre
+arrancar  sacar
+desgranar maíz
+va a afilar
+debajo
+que gotear
+querer traer
+¡remuélala!
+tener  poseer
+cinturón  faja
+traer leña
+va a nevar
+lirio colorado
+mi hijo
+agacharse
+rajar  partir
+poner acostado
+que tumbar
+va a jugar
+hacerse liso
+cuesta arriba
+desperdiciar
+para arriba
+poner apellido
+que granizo
+vivir allí
+varios joven
+en la laja
+basura  abono
+suelo
+en la cueva
+quejarse
+musgo
+uno hermanos
+mirar  admirar
+rata montés
+arrepentirse
+uno apartarse
+coyuntura
+va a hervirse
+blanquear
+va a toser
+va a descubrir
+intérprete
+avisándole
+curar  sanar
+engordar
+hacer esquite
+los que hacen
+va a mover
+legañoso
+va a pasan
+varios gritar
+un día
+gavilán
+mi codo
+estar blando
+uno espinas
+los pulmones
+que pudrirse
+orilla  borde
+cadáveres
+tener corazón
+estar pidiendo
+hacer menor
+estar tocando
+Me vio
+acarrear  traer
+poco tiempo
+poco tiempo
+quedar  sobrar
+uno aplastarse
+encomendar
+gallina  pollo
+poner parado
+volver loco
+que correr
+sesenta
+engañado
+acordarse
+adiós
+adormecer
+agotar
+agradar
+amontonar
+andar
+arráncalos
+atrás
+avanzar
+avisado
+fue avisado
+basquear
+borrar
+hace caldo
+carpintero
+ya casi
+le hace caso
+castigar
+tiene celos
+codo
+es cóncavo
+confesar
+conocido
+tiene corazón
+criticar
+cumplir
+cuñado
+descubrir
+desenredar
+poco después
+hace un día
+está difícil
+dormir
+lo hace duro
+elegir
+encarrujado
+enemigo
+enflaquecer
+entarimado
+entregar
+escama
+espinazo
+están
+hace estorbo
+examinar
+feo
+toca la flauta
+flor
+frente
+está fuerte
+tiene fuerza
+futuro
+gastar
+gracias
+habitación
+hacia allá
+hechicero
+tiene hígado
+está húmedo
+insultar
+jactancioso
+están juntos
+se hace liso
+es llorón
+maldad
+matar
+tiene mejillas
+metamorfosear
+mirando
+miserable
+mucho más
+huele mucho
+moja con orina
+oxidar
+padre
+está picando
+sin pierna
+pluma
+poseer
+produce lana
+puñado
+quebrado
+recuperar
+regar
+renunciar
+res
+retronar
+robar
+está roñoso
+sacudir
+salir
+en seguida
+seguir
+sentir
+lo que sea
+serpiente
+sofocar
+tarahumara
+esta tarde
+está tierno
+tiene tierra
+tostar
+ubre
+ni uno
+vez
+viento
+hace viento
+que vivan
+ya mero
+yescoso
+todavía  aún
+varios poner
+reír  sonreír
+le fue dicho
+tener huaraches
+que dejar
+otra vez
+riega
+varios entrar
+apedreado
+verdadero
+la verdad
+va a quitar
+endurecerse
+niebla  polvo
+tú mismo
+mi casa
+producir lana
+caer el pelo
+correr el agua
+eructar
+estar lleno
+¡Espérense!
+estar el camino
+despertar
+ser esféricos
+¿cuándo?
+que arrugar
+en el monte
+va a tumbar
+flotar
+cilíndrico
+completamente
+en la pierna
+por el faldeo
+marrano
+habiendo comido
+frente
+parecer amargo
+chile piquín
+poner el paño
+llevar leña
+traer leña
+tener hijos
+grillo  oruga
+espinilla
+cerrar los ojos
+tocar la flauta
+en el cuello
+barba  bigote
+que raspar
+va a lamer
+los ancianos
+manso
+fue robado
+robar mucho
+echar chispas
+rebozo
+estar sudando
+no hay de que
+hacer trenzas
+ennegrecer
+hacer negro
+siquiera
+estar pegajoso
+ensuciarse
+cotense
+que afilar
+cualquiera
+esos  esas
+esa cantidad
+tuétano  médula
+rajar mellar
+chirrionera
+por acá, acá
+sierra alta
+barroso
+ser llorón
+muy extenso
+va a andar
+¡levántese!
+parándose
+coger  agarrar
+ciénaga
+enlodarse
+tierra  barro
+junto al cerco
+mojar con orina
+estar abierto
+estar parados
+estar contento
+cama de tablas
+enviar  mandar
+mi sangre
+saber  conocer
+por afuera
+ciego
+meter la mano
+mi papá
+más allá
+fue matado
+trozar lo corta
+en la cabeza
+pájaro gris
+gallina
+que pudrirse
+éste  ésta
+va a pelear
+cambiado
+poner juntos
+entre los dos
+formar fila
+ser hermanos
+va a tumbar
+estar tirando
+polvo  ceniza
+deshierbado
+querer  desear
+recibiéndolo
+va a saludar
+mezclado con
+¡Mézclalo!
+que pagar
+antepasado
+ser hablador
+va a ladrar
+hacer estorbo
+de él
+Yo te amo
+acaba de hay
+hacer sonidos
+vencer  ganar
+va a moverse
+va a trabajar
+tener orgullo
+acaba de traer
+mandar  ordenar
+le pega a uno
+que invitar
+lazar  enlazar
+resucitar
+trabajoso
+rata de zacate
+plato regional
+va a escribir
+pintarse  marcar
+que ochenta
+canasta grande
+elote  mazorca
+tibio
+poner   extender
+que barrer
+acá  por acá
+cocer quelites
+tener calambre
+llevar envolver
+va a conocer
+prender  arder
+tener dientes
+en el diente
+hacer bromas
+estéril
+va a comprar
+tirar con rifle
+tener hermano
+hacer tortillas
+mi boca
+tronar el cielo
+retronar
+trozar  cortar
+va a cansarse
+que cansarse
+jugar
+anoche
+obscurecerse
+enrollado
+tener espuma
+tener estómago
+despintarse
+tengo frío
+molleja  buche
+¡Sánele!
+varios enemigo
+alcanzar  llegar
+los que llegan
+chiltipiquín
+en un rincón
+tener legaña
+pestaña
+¡Váyanse!
+varios caminar
+salir ejotes
+pelar  mondar
+tipo de encino
+que tiene brazos
+malvado
+maltratar
+estar redondo
+verde  azul
+mi tía
+varios espina
+va a acabar
+estar bonito
+infante
+uno borrachos
+cuidar  vigilar
+varios muchacha
+uno blancos
+espinazo
+tienen maridos
+picar  picotear
+en la cintura
+mi esposa
+en la barranca
+va a conducir
+acarrear
+agarrar
+agotar
+allá
+apestar
+lo aplastó
+apoyar
+asar
+asesinar
+atravesar
+aullar
+aún
+avergonzar
+bajar
+en el buche
+carpintero
+carpintero
+hace una casa
+cáscara
+colina
+qué color
+le da comida
+como
+conceder
+le conducirá
+que conozcan
+consolar
+convencer
+correr
+corteza
+cosechar
+lo cose para uno
+criar
+cuajo
+desaparecer
+desmenuzado
+desobediente
+hace el día
+tiene dientes
+disculpar
+disparar
+dispensar
+distinto
+salen ejotes
+enchilar
+enfrente de
+enrollar
+entender
+entrar
+entretejer
+espérense
+espiga
+tiene espuma
+hace esquiate
+en la esquina
+tiene estómago
+estrangular
+muy estrecho
+extender
+extraño
+fallecer
+fortalecer
+gatear
+herir
+son hermanos
+hormiga
+tiene huaraches
+huari grande
+lado derecho
+lanudo
+largo
+de lejos
+es muy ligero
+prende lumbre
+maíz
+mango
+mano derecha
+en la mejilla
+mellar
+meter
+mezclar
+mézclalo
+en la milpa
+mirar
+de todos modos
+al momento
+muchacha
+le hace muescas
+nadar
+niño
+hace nixtamal
+tiene orgullo
+hacer parejo
+pecador
+en el pecho
+dar el pecho
+está pegajoso
+pelar
+en la peña
+hay peñasco
+poner los pies
+posesor
+preceder
+predicador
+propio
+quebrar
+está redondo
+resbalar
+revolcar
+roban mucho
+le hace saber
+sabio
+saltapared
+serio
+sobre
+solamente
+soplar
+está sudando
+por lo tanto
+terminar
+tomar tesgüino
+tierra
+traer
+trasquilará
+vaca
+muchas veces
+tal vez
+mosquito, zancudo
+va a aguantar
+le hubiera dicho
+compañero
+que tener arco
+ponerse amarillo
+ir adelante
+trae agua
+hacer norte
+en la mejilla
+en tres partes
+apartarse solo
+estár acostados
+se acostarán
+¡Acuéstense!
+oveja  borrego
+a la otra banda
+a la otra banda
+renueva
+varios acostarse
+en el camino
+tener liendres
+Se cayó
+me dio gusto
+¡Quiébralo!
+mi pierna
+bajar del monte
+alimento  comida
+estar cortando
+rozar la tierra
+hacer esquiate
+un palo podrido
+va a espeso
+limpiar con humo
+Me estorba
+tu marido
+cuello  garganta
+mi cuello
+muy angosto
+ardilla mediana
+tener comezón
+acaba de robar
+calabacita
+ardilla gris
+no importa
+estar salpicando
+estar agrio
+máscara
+tener calambre
+va a culpable
+¿qué pasa?
+va a pararse
+coatí  cholubo
+ponerse paño
+en todo tiempo
+saltapared
+aquel  aquella
+que madurarse
+que mellar
+jefe supremo
+nadie
+que perderse
+va a caerse
+a pie
+una cuarta
+engordar
+va a pararse
+paño  trapo
+lodo  zoquete
+tener diarrea
+fue sembrado
+ya sembrando
+manzanilla
+éramos  eran
+va a volarse
+desde ahora
+va a ser  estar
+uno tener esposas
+va a gastarse
+once
+doce
+fue conocido
+espantoso
+atónito
+como  según
+hasta que
+cualquiera
+en la paleta
+cincuenta
+va a abollarse
+poner una trampa
+Me ganó.
+asesinar  matar
+poner  apoyar
+desaparecerse
+hacerse pedazos
+mi yerno
+descabezar
+poner almohada
+estar sentados
+añadido
+en la espiga
+poco más allá
+está gimiendo
+transformar
+cuarto, cuarta
+cuarenta
+en la lumbre
+que tumbar
+juntar  reunir
+hacer nixtamal
+si quiere
+oír llanto
+recibir  aceptar
+¡Salúdale!
+oír que se quiebra
+lugar cerca
+con  también
+va a mezclar
+animar  dar fe
+travieso
+acaba de rodear
+descomponerse
+Me mandó
+guardar  retener
+tiene hipo
+doctor  médico
+Quiso irse
+español  mestizo
+zorrillo pinto
+demora
+varios peón
+se llenan varios
+estar desabrido
+nuestro  nuestra
+juntar quelites
+hacer el día
+mi pecho
+hay peñascos
+tener espinas
+está ardiendo
+en la laja
+va a vender
+va a machucar
+que oxidarse
+tirar con rifle
+tener calentura
+mi tío
+que se queja
+estar soñando
+atormentar
+Me pateó
+ver
+hay tinieblas
+lagartija negra
+correr con aros
+varios apartarse
+hervir mucho
+congelar
+emblanquecer
+están cayendo
+frío  fresco
+retoñar
+enflaquecerse
+apurarse mucho
+salir legaña
+en otra parte
+bonito  hermoso
+se cortó
+tener legañas
+lavarse la cabeza
+raspar  rascarse
+en el ombligo
+uno estar bonito
+mazorca
+lugar estrecho
+afinar el violín
+uno aplastarse
+por el río abajo
+salir lágrimas
+mi cintura
+acaba de perder
+va a enviudar
+allá arriba
+estar vertiginoso
+causar vértigo
+cualquier
+le acusará
+por adelante
+va adelante
+amarrar
+andar
+de antigüedad
+apartar
+apedrear
+apretar
+arreglado
+autorizar
+lo hace bonito
+borreguito
+se hacen brasas
+brotar
+cabelludo
+hace cajetes
+tiene calentura
+tiene calor
+había camino
+ponerse camisa
+capulín
+cardar
+cáscara
+en el cielo
+qué clase
+tiene comezón
+está en contra
+curar
+en la chimenea
+salir un chorro
+tiene diarrea
+diferente
+discutir
+doctor, médico
+emborrachó
+se ponen enaguas
+encima
+que enseña
+enterrar
+equivocar
+esconder
+escupir
+estuche
+florecer
+guano
+no le hace
+tiene hermanos
+hierve mucho
+hocico
+huir
+hay humo
+jefe
+joven
+jurar
+lagartija
+salen lágrimas
+hilo de lana
+tiene lástima
+tiene liendres
+desde luego
+llenar
+maldecir
+le da de mamar
+de esta manera
+hace mecate
+lo hace menor
+miel de abeja
+está mugriento
+nido
+a obscurecer
+orilla
+otate
+paño
+parar
+pide a Dios
+picotear
+come pinole seco
+poquito
+poner
+pozo hecho
+predicado
+preguntándole
+puerta abierta
+hace rato
+rechazar
+renovar
+tiene sal
+sentar
+sentar
+sería
+caer sereno
+sí también
+solo
+está a la sombra
+tiene sueño
+torcer
+quiere traerlo
+tumbar
+vaciar
+a verlo
+está vertiginoso
+volver
+vuestro
 zurdo
+son iguales
+querer decir
+abuelo materno
+echar a la espalda
+tardar  dilatar
+toma agua
+endurecer
+hacer cajetes
+en el cajete
+¡Arráncalos!
+pantorrilla
+vamos a escupir
+herradura
+cobija
+va a derribarse
+hacer rodar
+desmoronar
+de todas clases
+dar castigo
+comer pinole seco
+acaba de comer
+mi frente
+matar  asesinar
+donar  regalar
+no desgranado
+esquiate pinole
+por el otro lado
+miel de abejas
+madera fofa seca
+Ya me voy
+manzanilla
+ayudar  salvar
+mi cabello
+va a espesarse
+tipo de araña
+tener cascabel
+tener ramitas
+atajar  atrancar
+cuñado  cuñada
+va a cócono
+estar doblando
+peine comercial
+tener catarro
+acaba de pegar
+sucio, obscuro
+tener trementina
+¿a qué hora?
+cualquier
+chupar  absorber
+lo chupa
+chupar  sorber
+esa clase  tal
+rajarse mellarse
+quizás  tal vez
+canasta grande
+panzón
+jefe  un grande
+mi suegra
+tener padres
+tener dinero
+siendo muchos
+¡perdónale!
+va a chiflar
+cacto redondo
+tabaco del campo
+hacer estiércol
+va a ordeñar
+autoridades
+uno autoridades
+Allí va.
+echar a volar
+que tiene mamá
+este  esta  esto
+sangrar  desangrar
+revolver  menear
+que garrapata
+desde que
+conque  porque
+hacer ruido
+¡Entren Uds!
+mi nuera
+tu nuera
+acaba de sahumar
+almohada  yugo
+morirse  fallecer
+nene  criatura
+de usted
+sus
+poner cerca
+llevar una carga
+uno enojarse  reñir
+oreja de alguien
+que enchuecar
+está pegado
+nació un niño
+estar luchando
+acaba de caerse
+cubrirse la cara
+pañuelo  lienzo
+amarrar juntos
+va a permitir
+miércoles
+guardar  esconder
+va a encontrar
+¡gracias!
+agradecer
+es igual
+ayudar  salvar
+estar luchando
+¡Haga caso!
+cuidar  pastorear
+moverse  temblar
+va a nublarse
+desaparecerse
+de dos en dos
+acaba de poder
+que tiene padre
+vomitar  basquear
+mi tía
+va a hacer así
+empalmado
+vomitar  basquear
+demoran
+acaba de remoler
+va a aborrecer
+su cobija
+calmarse pararse
+quieto  silencio
+en la mesa alta
+va a aplastar
+en el día
+gavilán negro
+que tiene hijo
+rajarse  partirse
+varios borracho
+avergonzarse
+cuesta arriba
+va a mostrar
+nopal castilla
+¡que vivan!
+que aguantar
+revolcarse
+inclinado
+iglesia  templo
+en la iglesia
+sobre encima
+en la basura
+atravesar
+ir cuesta abajo
+varios acornear
+varios pobre
+montón
+de noche
+poner acostados
+estar doblándose
+ponerse los pies
+varios blanco
+hecho blanco
+¡Cúrenle!
+brasas  carbón
+lombriz de tierra
+remojar  mojar
+desnudo
+va a apurarse
+quitar la arena
+mi suegro
+va a florecer
+estar empachado
+vejiga  ampolla
+los que pasan
+otra vez
+nunca  jamás
+va a enfriarse
+feo  que no sirve
+hacer la esquina
+hacerse blando
+olor agradable
+maíz azul
+lo aflojará
+en el corazón
+músico  tocador
+ponerse la zapeta
+pedir a Dios
+una semana
+burlar  repetir
+burlar  repetir
+bastón  bordón
+que bañarse
+uno estar parado
+va a traducir
+varios viudo
+nieta de la abuela
+por allá  alrededor
+varios enojarse
+fue regañado
+inclinar la cabeza
+dar consejo
+acostumbrar
+más adelante
+está alegre
+ancho
+le ponen apellido
+atiesar
+avisar
+el que bautiza
+caballo
+cada uno
+calabacitas
+casar
+tiene catarro
+cepillar
+cobija
+comprender
+hace cóncavo
+consentir
+cubrir
+en cuesta abajo
+chamaco
+charlar
+demorar
+desatar
+desmayar
+desobedecer
+difícil
+tiene dinero
+quiere dormir
+se quita enaguas
+entren Uds
+entretanto
+espina
+tiene esposa
+quita la espuma
+frecuentemente
+toda la gente
+en la gloria
+golpear
+gordo
+grande
+tiene granos
+gruñir
+hablar
+herencia
+a qué hora
+hacen jefe
+liendre
+ligamento
+limpiar
+se vuelve loco
+lleva por el agua
+tiempo de lluvias
+tiene mal olor
+de esa manera
+mano izquierda
+más todavía
+mi
+de otro modo
+mojado
+mundo
+lo hace negro
+ninguna parte
+obscuridad
+orilla
+tiene paludismo
+pesca con anzuelo
+picar
+pico
+puesto menor
+para qué
+hace redondo
+regalar
+de repente
+va a responder
+que sabe bien
+salpicar
+que sea
+sobar
+soltero
+temer
+tesgüino
+tiene trementina
+en la troje
+vale mucho
+vanagloriarse
+vecino
+se pone zapeta
+sobrante
+embotarse, quitarse
+abuela paterna
+es igual
+al mismo tiempo
+igual
+andar acarreando
+urgente
+varios siéntate
+va a hincharse
+mi mejilla
+arrastrar  llevar
+huérfano
+va a tener sed
+Me apedreó
+le lava la cara
+claro  limpio
+en la niebla
+aprender  estudiar
+apartar solo
+una yunta
+torcer, exprimir
+mi casa
+hoy temprano
+tener lana  pelo
+hermano menor
+a la otra banda
+llenarse  hartarse
+hundir  sumergir
+mi camino
+estar esperando
+acaba de salir
+estar cilíndrico
+va a tener casa
+en el zacate
+va a comer
+la flor de encino
+se hace un arroyo
+hecho cóncavo
+por cuesta abajo
+va a perritos
+derramar  tirar
+que espeso
+estorbar  molestar
+comiéndolo así
+mi tío
+mi tío
+chicos  infantes
+mi barba
+tocar a la puerta
+Se pega abajo
+tener comezón
+acornear, picar
+salpicar, brincar
+va a amanecer
+comer con tortilla
+chupar  picotear
+en la higuera
+componer  mejorar
+tuétano  médula
+escaparse
+secar  marchitar
+agrandar
+tierra de cultivo
+arar  barbechar
+uno las viejas
+dinero  un real
+liendres
+vieja  anciana
+parado  nacido
+mucho después
+poner la zapeta
+hay matas de maíz
+de siembra
+todo el cuerpo
+enfermarse bazo
+acontecer  suceder
+estar bueno  servir
+hacer descansar
+uno estar parados
+¡Levántense!
+Acá está.
+Acá viene
+seguir las huellas
+seguir huelleando
+apuntar  señalar
+hacia atrás
+tener mal olor
+piso de tablas
+sus esposas
+botella de vidrio
+usado  gastado
+quince
+va a garrapata
+afuera
+voltear  revolver
+es semejante
+mi paleta
+en cinco partes
+mano de metate
+tener o hacer mes
+cresta de gallo
+barbacoa
+falsearse
+tener cerebro
+varios nuera
+muerto  difunto
+cuñado menor
+epiléptico
+Ya se espigó.
+enojarse  reñir
+acaba de pelear
+amarrar  anudar
+dar a luz  parir
+avisar  predicar
+¡Túmbalos!
+nos juntaremos
+estaban juntos
+que mezclar
+varios enfermo
+muy hablador
+sería  serían
+¡Pon atención!
+oír una voz
+entre los pinos
+viejo un viejo
+abuelo paterno
+medicina  remedio
+en todas partes
+Quiso comer
+él que bautiza
+retirar
+un rato
+quitar el aparejo
+pescar con anzuelo
+uno tener  poseer
+setenta
+noventa
+hablar  platicar
+orar
+que tiene hijos
+estar machucando
+fibra de maguey
+que hacer calor
+tener troja troj
+hecho pando
+estar alisando
+tener vergüenza
+echarse a perder
+que limpiar
+en la espalda
+trozarse  cortarse
+Con permiso
+una cueva
+que derramar
+tener pies o patas
+quitar la espuma
+quitar las patas
+estómago  vientre
+blanquear
+seguir olfateando
+gordo
+va a trasquilar
+tripas  intestino
+acaba de pasan
+querían irse
+al contrario
+arrugar  plegar
+estar resbalando
+hacer resbalar
+rojear  enrojecer
+le maldice
+malhechor
+hacer redondo
+cierta clase de palma
+destruir  acabar
+en todas partes
+mi ombligo
+rebajar la cuenta
+¡aflójalo!
+mi corazón
+no querer convidar
+¡Lúchele!
+zapeta taparrabo
+nuestro
+No hay. No está
+al rato  ahorita
+va a llevar  tomar
+quería tomarlo
+blanquillo
+asar en las cenizas
+baile indígena
+uno tienen maridos
+acaba de parar
+que ¿quién?
+ponlo acostado
+afirmar
+al amanecer
+arreglar
+por arriba
+le dan autoridad
+ayudar
+estar barroso
+nota bien
+borracho
+poner la cabeza
+en cambio
+va a hacer caso
+tiene cerebro
+está cilíndrico
+coger
+tiene compasión
+están completas
+fué conocido
+tiene cuidado
+chancear
+delgado
+se despareció
+desgranar
+despeinado
+dinero
+dondequiera
+encino
+está encorvado
+entarimar
+está esperando
+espinar
+gato de algalia
+es muy hablador
+hacer
+hechizar
+hermoso
+hervir
+hombro
+llevar en hombros
+se pone huaraches
+es incapaz
+hay laja
+lazar
+encender lumbre
+lleno de llagas
+mandamiento
+pasado mañana
+de qué modo
+mosquito
+muchacho
+hace olas el agua
+sabe lo que pasó
+despeinado
+pierde en el juego
+permanecer
+pernoctar
+tiene pies o patas
+piedra blanca
+trampa de piedras
+pizcar
+provocar
+próximo
+quemar
+quién
+reconciliar
+regresar
+remendar
+respetar
+sacar
+sanar
+no sirve
+entre tanto
+temblar
+poner a trabajar
+tronar
+tuyo
+venado
+tiene vergüenza
+le causa vértigo
+voltear
+mi abuela
+una mata espinosa
+por los dos lados
+al poco rato
+estar  estar sentado
+otro poco
+de antemano
+comparecen
+va a hay agua
+mana agua
+caer el sereno
+va a salir agua
+va a adornar
+acaba de pudrir
+chueco  torcido
+enseñar  instruir
+tuerto
+temprano
+salto de agua
+bestia ajena
+tambalearse
+si le amarran
+va a despertarse
+siendo chico
+rodar, envolver
+uno ser esféricos
+mi cadera
+piña de pino
+guacamaya  perico
+con mucho gusto
+amar  tener cariño
+que tener casa
+de todas clases
+en el regazo
+terminar  levantar
+otro lado del cerro
+estar ahogándose
+que tiene hijos
+el tiempo de calor
+sus maridos
+cerrando los ojos
+Se hizo espeso
+ahogarse  colgarse
+uno chicos  infantes
+va a envenenar
+en lugar feo
+pecado
+cócono guajolote
+mamar  tomar pecho
+ardilla amarilla
+que estar agrio
+en la rodilla
+mugre  suciedad
+varios estar parado
+¿Por qué?
+allí por atrás
+rana verde chiquita
+mi cuñado
+justo
+va a enderezar
+para acá, acá
+grande  mucho  muy
+peñasco
+que es suegra
+otate  aguijada
+dos reales
+Nada más anda
+¡perdónenle!
+en muchas partes
+surtido
+varios a pie
+varios tener aretes
+uno algunos  unos
+desde aquí
+hecho fuerte
+feroces  bravos
+que tiene rabia
+en la coyuntura
+Se ve bien
+que puede ver
+tiene fama
+temer  tener miedo
+poner un recipiente
+tener hija el padre
+que tenía hijas
+hombro
+clavar
+asado  tatemado
+querer matarlo
+trampa de piedras
+machucarse
+ponerse la corona
+puesto adentro
+está borrándose
+va a sonar mucho
+va a nixtamal
+el huevo se empolla
+hacerse enemigos
+medianoche
+mezclarse  revolver
+difícil  trabajoso
+No recuerdo
+falta de algo
+acaba de ladrar
+viéndolo  mirando
+del perro
+seremos  estaremos
+malhechor
+donde hay pinos
+varios levantarse
+curandero  médico
+llamar la atención
+encarcelar
+poco a poco
+que cubrir  tapar
+que aborrecer
+hacer cosquillas
+va a traer leña
+poco a poco
+acaba de conocer
+que tiene pecho
+mis dientes
+mi talón
+hay laja
+que tiene laja
+rana verde  grande
+va a limpiar
+estar llamándole
+varios hermano
+mi hermano
+grajea cellisca
+pisotear  trillar
+escarpado
+mi espalda
+licencia  permiso
+tecolote grande
+hecho hueco
+uno poner acostados
+mi estómago
+panzón  encinta
+va a hace frío
+oler  olfatear
+va a aliviarse
+húmedo  mojado
+salivar  babear
+completar  cumplir
+cuando pasaban
+carpintero
+ponerse las enaguas
+tipo de encino
+pintar de rojo
+va a espinarse
+fragante
+bastón  bordón
+estando enterrado
+ungido  cargado
+acaba de correr
+Ya perdimos.
+bisabuelo  bisnieto
+varios tener esposa
+arriba por el arroyo
+llevar de compañero
+acontecer
+aliviado del pie
+mucho antes
+asolear
+hacía atrás
+medio blanco
+bravo
+lleva a otro al caer
+cuando cantan
+entre las casas
+que no hace caso
+lo pone cerca
+se pone la corona
+cosa ajena
+cuesta mucho
+cuántas veces
+curandero
+derramar
+algún día
+distinguir
+le hace dormir
+encoger
+hace esférico
+le hace la esquina
+estaremos sentado
+está feo el lugar
+fuerte
+lo hace fuerte
+gente
+más grande
+cuando gritan
+haciéndose rico
+tiene hija el padre
+indígena
+junto
+mandar
+quiere matarlo
+en la meseta alta
+mucho más rato
+anoche adv
+nuera
+está orgulloso
+pacer
+pagar
+pájaro
+parado
+estar parado
+paralítico
+le pica
+pico del cerro
+hecho de piedra
+pobre
+predicar
+lo hicieron preso
+prójimo
+prometer
+que tiene punta
+quedar en la noche
+que tiene raíz
+cuando reluce
+salto de agua
+tiene sed
+soltar
+sufrir
+traer
+tráquea
+truena la pólvora
+de ustedes
+viéndolo
+vieja
+zorrillo
+en su cara
+está dulce o sabroso
+atiesarse , morirse
+que tiene cuernos
+entero, complejo
+¡Vaya a buscarlo!
+va a perseguir
+le hubiéramos dicho
+llevar en la espalda
+quería sentarse
+hacer tomar o beber
+padrino, madrina
+el tiempo de lluvias
+tener tesgüino
+que hay neblina
+él  ella  él mismo
+en una sola parte
+morador  que vive
+casa  habitación
+arrancar  desherbar
+nuevo  fresco
+enrollar en una bola
+en la pantorilla
+hincharse la cara
+hacer palomitas
+arriba por el arroyo
+hacer esférico
+hacerse una bola
+inflarse  hincharse
+llevar en la espalda
+escarpadura cumbre
+gorgojo termita
+que tener cabello
+apretarse  atorarse
+querer agarrar
+tener ramitas
+roto  quebrado
+pegarse  golpearse
+secretamente
+de ninguna manera
+echará chispas
+estar salpicando
+apagar  extinguir
+amarrar el hocico
+cruzar las piernas
+tiene la culpa
+sepulcro  tumba
+tamaño  tan grande
+Por allá va
+allá viene
+estuvimos acostados
+estoy seguro
+que amar  querer
+mi cuñado
+¡Enderézalo!
+abandonar
+huari cesta  canasta
+corre recio
+hacer un jefe
+va a hacer atole
+cambio
+solamente  nada más
+ardilla chiquita
+en el mundo
+quemar chamuscar
+acusar  condenar
+dar leche  ordeñar
+agujerar  perforar
+algunos días
+vigoroso  firme
+que tiene hijos
+ser  estar
+Ya van a correr
+va a tener hambre
+dar vueltas al aire
+enfermar de rabia
+Corre recio
+arrancarse brincando
+trece
+catorce
+mi dedo
+descubrir  mostrar
+majahuá tener miedo
+contener un líquido
+labrar con el hacha
+hay humo  hacer humo
+desmenuzado así
+arrimar  acercar
+de lejos  de un lado
+en cuatro partes
+mi camisa
+quitar la camisa
+que tener oídos
+acaba de saludar
+estar mezclándose
+perforar  taladrar
+costoso  que vale
+costoso  que vale
+Fue a verlo
+asesino  homicida
+va a adelantarse
+que tiene un hijo
+que estar nublado
+andar dando vueltas
+que hace vueltas
+Semana Santa
+medicina  remedio
+va a hacer fiesta
+castellano
+oír gimiendo
+ochenta
+el día anterior
+que puede aprender
+mi peón
+¿No está?
+que estar pando
+que tiene apetito
+extender  esparcir
+va a hacer bromas
+se está partiendo
+rayar caer un rayo
+acaba de vender
+va a hacer calor
+peñasco  picacho
+va a ver  hallar
+gemir  lanzar quejas
+El cielo truena
+está muy alto
+allí cuesta abajo
+siendo hermanos
+va a estar hondo
+bramar  mugir  rugir
+tráquea
+acaba de llegan
+Es el suegro
+tipo de calabaza
+su olla
+sobrante  demás
+culebras  víboras
+bestia ajena
+cosa ajena
+indígena
+que tiene brazos
+ponerse colorado
+ser verde  ser azul
+madera fofa mojada
+llenar de hormigas
+acaba de acabar
+habrán acabado
+no querer dejarle ir
+hasta luego
+cercar  hacer
+cerco de piedra
+que llevar  tomar
+que poner parado
+Lo voy a parar
+untar  ungir  frotar
+estrecho  angostito
+dejar los animales
+tirar flecha o balazo
+arriba por el arroyo
+llevar a otro al caer
+por el arroyo abajo
+abierto
+aguaje
+aliviar
+estar muy alto
+amarrado
+siente angustia
+anteayer, antier
+aquí
+barba
+blanco
+se hace una bola
+hacer cabecillas
+caminar
+qué cantidad
+cascabel
+se pone colorado
+le da de comer
+componer
+no quiere convidarle
+en cuesta arriba
+desean sentarse
+desparramar
+algunos días
+entre dos
+encinta
+se hacen enemigos
+enhebrar
+enturbiar
+espina dorsal
+espíritu
+explicar
+dar fe
+fuera de sí
+fuerte
+dar gracias
+tiene hermana menor
+se quita huaraches
+no quiere dejarle ir
+jugar
+luchar
+manear
+manejar
+de qué manera
+por la mañana
+mudo
+nada más
+obediente
+obscurecer
+en la obscuridad
+lo sigue olfateando
+que tiene olotes
+hace ollas
+otro
+palo o árbol seco
+parado
+pedernal
+pegar rápidamente
+pegarse con ceniza
+se echa a perder
+hay muchos pinos
+segundo piso
+tiene poder
+potable
+lo lleva como preso
+pegar rabia a otro
+raspar
+tiene reúma
+subir de tierra baja
+tendidos para dormir
+traer en las manos
+está triste
+vender
+lo echó a volar
+todavía llueve
+aliviado sano así
+Son iguales
+son iguales
+fue a buscarlo
+aletas de pez
+acaba de aguantar
+va a medir  pesar
+varios desaparecer
+ser tarde  atardecer
+repetir
+hoja de la mazorca
+tener hermano mayor
+ir a la tesgüinada
+que tiene mejillas
+quiote de maguey
+lugar donde crece
+llamado  invitado
+en una sola parte
+habitar  morar  vivir
+va a estar pesado
+se revuelve
+preñada  encinta
+estar bajo a la sombra
+apretar  estrangular
+inflado  hinchado
+va a parecerse
+está quebrándose
+tipo de calabacilla
+alimento  comida
+cóncavo  alabeado
+va a donar  regalar
+¿Qué desea?
+el que come
+mis hijos
+¿dónde?, ¿a dónde?
+¡Cierren los ojos!
+poner mango al hacha
+cepa de un árbol
+coger  agarrar tomar
+pecar  hacer mal
+anda escondido
+que estar tierno
+no hay de que
+en las rodillas
+moverse el hocico
+lo provocó
+comer comida aguada
+agudo, puntiagudo
+así dice, eso dice
+ése  ésa  aqué  eso
+hacer muy bueno
+vaca  res
+perico grande  verde
+Llovió mucho.
+enturbiar
+va a estar parado
+empezar a llover
+pararse  levantarse
+uno por otro
+hay matas de maíz
+abertura  agujero
+Huele muy feo
+hueja redonda jícara
+va a batir  mezclar
+hubieran conocido
+brotar agua
+corretear los animales
+hecho con muescas
+Se levantaron
+hacer mucho ruido
+pegarse  contagiarse
+atizar los tizones
+que tiene raíces
+uno estar luchando
+Son hermanos
+juntos  unidos
+que tiene orejas
+va a tener flojera
+hablar malas cosas
+soltarse  escaparse
+¡Trabajen ustedes!
+obrero  trabajador
+gorgojo de la tierra
+acaba de nublarse
+ir alrededor  rodear
+descomponiéndose
+hojarasca de pino
+viejos  ancianos
+acaba de hacer así
+tener ramas grandes
+poco a poco
+vivir  morar  habitar
+crujir los dientes
+quitar las semillas
+que hacer bromas
+talón  calcañar
+va a rajar  partir
+un patio hecho
+correr con la bola
+tarahumara  gente
+asolearse
+que emborracha
+que hacerse liso
+acaba de mostrar
+tiene poder
+escama de pez
+tipo de quelite
+apartar  despedazar
+comenzar el invierno
+mi tráquea
+sonaja del corredor
+va a estar mojado
+acaba de apurarse
+víbora de cascabel
+en mi mano
+varios querían irse
+quitarse las enaguas
+espinarse
+mi tía
+hechicero  brujo
+va a estar bonito
+que tiene corazón
+hacer más chico
+va a acarrear  traer
+ignorante
+que tejer  extender
+medir por comparación
+la medida  el plazo
+caminar con bastón
+paja de trigo
+mentido  engañado
+abajo
+acabar
+acornear
+ahumar
+lo está alisando
+mis amigos
+anaranjado
+ardilla
+arribita por el arroyo
+hacer como arroyo
+bueno para tomar
+cadáver
+cadera
+que tiene cascabel
+entre los cerros
+hace cilíndrico
+en todo el cuerpo
+chaparro
+chico
+desaparecer
+descender
+enfermedad venérea
+engendrar
+ennegrecer
+enramada
+eructar
+éso, ésos
+hace falta
+feroz
+hablar
+tiene hambre
+tiene hermano mayor
+se caen las hojas
+comienza el invierno
+al otro lado
+la mamá de él
+tiene marido
+medida de una cuarta
+morador
+mucho
+medianoche f
+tiene padre
+palo
+está pando
+poner parado
+polvo
+echa ramas grandes
+ramitas de encino
+tiene ramas grandes
+se está resbalando
+lo pinta de rojo
+salimos del trabajo
+segar el trigo
+tener mucho sudor
+que toma tesgüino
+tirando las bolas
+trabajoso
+víbora
+viuda
+viudo
+que lleva zapeta
+mis amigos
+hasta mañana
+avanza, precede
+hueso del tobillo
+acaba de hay agua
+cascada
+acaba de hincharse
+mi hermana menor
+torcer, dar vueltas
+uno estár acostados
+hundirse  zambullir
+Está lleno.
+en todas partes
+mi vaca
+acaba de despertarse
+va a poner huevos
+Está aclarando
+vaina de frijol
+cáscara de pino
+encarrujarse  torcerse
+hacer cilíndrico
+se hizo cilíndrico
+donde hay zacate
+quería matarlos
+tener ganas de comer
+zopilote pinto  rayado
+codiciar  desear mucho
+que cerrar los ojos
+dar vueltas  revolver
+estar dando vueltas
+que tocar la flauta
+que tiene ángulo
+sus granos
+maldad  pecado
+pegarse  permanecer fijo
+va a estar amargo
+hacer echar chispas
+que hacer trenzas
+va a estar agrio
+limpiarse la nariz
+estar ronco
+¡Siéntate!
+que estar pegajoso
+de alguna manera
+va a tener labios
+¿Por qué?
+¿qué día?
+entonces, más allá
+desde entonces
+mi esófago
+anteanoche
+va a pie
+está colgado
+multiplicar
+va a hay tierra
+Hizo mucho aire
+Sembró mucho
+tener fuerza
+enfermo del bazo
+tener prisa por irse
+tener hambre
+lo extrae  lo saca
+va a poner una trampa
+una trampa de piedras
+mi madrastra
+cuero curtido  vaqueta
+borlas de las cobijas
+¡Cállate!
+maullar gemir  chillar
+repartir  distribuir
+raíces de pino
+uno juntar  reunir
+muchas camisas
+también  con  juntos
+va a hacer nixtamal
+acaba de nixtamal
+va a recibir  aceptar
+acordarse  recordar
+comprador de maíz
+contestar  responder
+acaba de soltar
+que se puede mover
+comenzar a decir
+seguir haciendo algo
+huesos de res
+respetar  obedecer
+el padre de él
+echar ramas grandes
+Hasta mañana
+Masticó bien
+acaba de calmarse
+¡Cállate!
+varios jugar
+echado a perder
+sinvergüenza
+muy alto  muy arriba
+de arriba  por arriba
+va a trozar  cortar
+el que los aparta
+entre los encinos
+Está embarazada
+tipo de maíz blando
+acaba de hace frío
+¡Vaya a avisarle!
+que curar  sanar
+carne de chiva
+ensuciar con arena
+hacer ollas
+Iba pasando.
+sus enaguas
+Iban despacito
+arrugado  aflojado
+pájaro carpintero
+por el arroyo abajito
+con que lo unte
+inclinando la cabeza
+estar acostado
+alzar
+más allá
+año pasado
+anda aprisa
+no lo hace bien
+está bonito
+cabeza de vaca
+caer
+caminar dormido
+cojo
+cola de vaca
+colear
+tiene ganas de comer
+hace comoquiera
+comprador
+comprometer
+está contento
+chupamirto
+echar
+me equivoqué
+es esférico
+guardar
+no hay de qué
+hermano
+hinchar
+se llena de hormigas
+estaba haciendo humo
+hace justicia
+dar leche
+ligero
+machucar
+el que manda a otro
+manejar
+menospreciar
+estar parado
+parecer
+en la parte superior
+prender
+prohibir
+quizá
+hizo recordar
+redondo
+retrasar
+revolver
+está ronco
+hacer ruido
+Samachique
+siguen haciendo algo
+suelo
+poco tiempo
+transparente
+verdad
+lo pinta de verde
+¡Vayan a buscarlo!
+temprano todavía
+mis correas
+en otra parte
+reponer
+también  aún  sí
+primogénito
+jugo de fruta
+acaba de salir agua
+gastarse la cobija
+una cobija gastada
+convencer  dar fe
+acaba de estar duro
+¿Dónde vives?
+va a estár acostados
+cajete  plato  cazuela
+carda la lana
+apenas salió
+Ya lo llené
+que llevar preso
+este lugar
+está encarrujándose
+taparse la garganta
+alegrarse  complacerse
+hacer cilíndrico
+rueda un trozo
+amo de la casa
+listo  arreglado
+pantalón  calzones
+va a bajar del monte
+rabo del perro
+mis cejas
+al otro lado  detrás
+¿A dónde vas?
+hacer justicia
+en mi cuello
+arrancarse las barbas
+lomo angosto y corto
+cebo de chiva
+estar rompiéndose
+están dispersándose
+dar asco menospreciar
+va a estar doblando
+¿Qué importa?
+hoyo de la nariz
+sepultar  enterrar
+así  de esa manera
+tan grande
+ponerse de acuerdo
+mejorarse  convertirse
+mi costilla
+en las costillas
+un palo o árbol seco
+en un árbol seco
+Vendrá, tal vez
+ser muy ligero  veloz
+mis padres
+¡fuerte!  ¡ánimo!
+Pide perdón
+corteza gruesa
+muy noche
+hacer lodo  batir lodo
+donde sale un chorro
+Ya fué sembrado
+picar  punzar  inyectar
+por aquí  por este lado
+uno feroces  bravos
+teñir de anaranjado
+pegar la rabia a otro
+los echa afuera
+tal como está
+cordero  borreguito
+cabeza de vaca
+Hace mucho humo
+ponerse de acuerdo
+borrar  tapar la huella
+cosas notables
+pegar  juntar  unir
+va a querer  desear
+hacer recordar
+mi  mía  mío
+mi hijo
+va a moverse  temblar
+queriendo trabajar
+que se descompone
+el que manda a otros
+ley  mandamiento
+el que manda mandado
+acaba de curar
+acaba de levantarse
+levantar una acta
+tener ganas de vomitar
+¡Lava ésta!
+mi gente
+que estar desabrido
+Se paró la lluvia
+Hace buen día
+alumbrar  arder  quemar
+encender ocote iluminar
+va a prender  arder
+desparramar  extender
+¡Cómprenlo Uds.!
+acaba de hacer calor
+varios poner acostado
+en la troja troje
+rana verde  grande
+rana grande, obscura
+llamarse  tener nombre
+saltapared
+echar a cuestas
+miserable  tacaño
+están cayendo
+donde hay hierbas
+acaba de estar hondo
+donde está hondo
+largartija pinta
+separado  apartado
+que se apura mucho
+amarillo  anaranjado
+estar en contra oponer
+sonaja de pascolero
+Se dilató mucho
+acaba de trasquilar
+hacer ruido
+colibrí  chupamirto
+una sola vez
+todo  toda la gente
+curandero  hechicero
+siguieron haciéndolo
+va a lavarse la cabeza
+pellizcar  rasguñar
+tiene buen olor
+hubiéramos acabado
+pájaro carpintero
+va a tener corazón
+chico  infante  pequeño
+ni uno  ninguno
+molleja de pollo
+Ya trajo agua
+segar el trigo
+en mi cintura
+inmediatamente  pronto
+diciéndole mentiras
+¿Hasta cuándo?
+donde está cerrado
+acá
+hace años
+asesino
+a la otra banda
+anda con bastón
+brincar
+lo hace muy bueno
+tiene calambre
+cuando hace calor
+tiene cargo
+claramente
+cuánto
+lo hace más chico
+desnudar
+al siguiente día
+hace buen día
+enloquecer
+ensordecer
+esférico
+espantar
+entre las hierbas
+humedecer
+igual
+incrédulo
+juega con alguna cosa
+juega tirando los palos
+a un lado del camino
+trae leña
+flor de maguey
+de otra manera
+marchitar
+mazorca
+que te mordió
+mostrar
+murciélago
+mi nieto
+orilla
+no me parece
+ninguna parte
+qué pasa interr
+pato
+pide perdón
+permanece en la noche
+poder
+hace salir pus
+rengo
+está muy resbaloso
+sebo de chiva
+sordo
+tambalear
+tarántula
+mi tierra
+en las tinieblas
+el que vive
+cuernos de chiva
+hígado de vaca
+acaba de perseguir
+es menester
+infectarse , hincharse
+Le dí una pedrada.
+pegándole con piedras
+Huele muy mal
+entonces  y
+raspar  quitar  la piel
+va a verdad
+quitar pelar  deshojar
+que ha sido torcido
+mi hermana menor
+acaba de estar pesado
+en la madrugada
+madrugada
+mi hermano menor
+mis vacas
+mi tierra
+heces del café
+cáscara delgada  vaina
+mi capitán
+ninguna parte
+enchilar a otra persona
+en mi frente
+obsequiar, regalar
+envidioso  codicioso
+gusano de la carne
+los puestos menores
+casa de la comunidad
+Enviudó la mujer
+al principio
+castellano
+mi lengua
+cuero de chiva
+va a tener comezón
+pasar la noche  posar
+estar echando chispas
+uno estar salpicando
+se arrodilla
+se arrodillan
+comenzar una carrera
+apagarse  extinguirse
+lo mismo, nada más
+en mis labios
+quebrarse la punta
+todos los días
+a Samachique
+cuero de vaca
+desde anteayer
+mi tía
+derrumbarse
+mi hermana menor
+querían azotarle
+¡siémbrenlo ustedes!
+lo amarra por las patas
+dar espíritu  dar vida
+Son mis hijos
+nombrar como autoridades
+va a apuntar  señalar
+ardilla amarillenta
+tener rabia  estar loco
+como deben saber
+para  que  el cual  quien
+cinco decalitros
+Voy a amasar
+alejarse  retirarse
+va a asesinar  matar
+su cerebro
+Voy a sembrar frijol
+desvaina frijol
+el gusano agusanarse
+luchador  abusador
+acaba de sonar mucho
+tipo de avispa amarilla
+que recibir  aceptar
+pensador  inteligente
+dar las gracias
+varios antepasado
+varios enfermedad
+que anda estorbando
+va a mi  mía  mío
+dar  entregar  obsequiar
+varios estar luchando
+hacer caso  responder
+jactancioso  vanidoso
+acaba de adelantarse
+varios vencer  ganar
+Casi siempre
+si se descompone
+va a el que manda
+los más grandes
+día de fiesta
+Tiene buen filo
+tipo de quelite de agua
+elote tostado
+lavándose las manos
+acaba de traer leña
+se llevó un cobija
+va a quieto  silencio
+¿Te gustó?
+¡Véndame!
+estar pando  pandearse
+mango de hacha
+raíz de encino
+uno apartar  despedazar
+sonar
+cuajarse  congelarse
+caminarse dormido
+hojas de encino
+tripas de vaca
+todos los días
+tarántula
+criticar  insultar
+murciélago
+que está despeinado
+va a raspar  rascarse
+todo cuanto
+acercarse a la orilla
+semilla de trigo
+Se va para abajo
+Cuida muy bien
+andar con bastón
+hueso de gallina
+pararse de cuatro patas
+engañar  decir mentiras
+va a estar vertiginoso
+¿Dónde andabas?
+más abajo
+por adentro
+lo quería agarrar
+persona ajena
+alcanzar
+aplastar
+aquel, aquella
+es autoridad
+banca
+cola de caballo
+comenzaron a decir
+lo hace echar chispas
+descabezar
+uno encima del otro
+hace muchísimo
+hermano menor
+inocente
+en la lumbre
+madrastra
+manda un recado
+de ninguna manera
+mientras
+mugriento
+nuestro
+en otra ocasión
+se acerca a la orilla
+otra vez
+pedir perdón
+permitir
+sale pus
+qué
+le salió salpullido
+siémbrenlo ustedes
+semilla de trigo
+poner una trampa
+hace trenzas para otra
+tumbar
+yunta de bueyes
+¿Estás bien?
+brotar, nacer o germinar
+acaba de medir  pesar
+uno encima del otro
+fue dicho  fue avisado
+un árbol de la barranca
+mañana temprano
+mi hermano mayor
+jugo de manzana
+agua potable
+el año pasado
+milpa
+va a torcer, exprimir
+que tener lana  pelo
+varios llenarse  hartarse
+mi pantorrilla
+va a tener liendres
+claro  limpio  sereno
+encarrujado  aplastado
+para arriba en el arroyo
+es todo  está completo
+el perro gruñe
+mi hermana mayor
+un cerro despeñadero
+mango del hacha
+sonaja del pascolero
+estar echando chispas
+apagarse  extinguirse
+¿qué te parece?
+pájaro saltapared
+Anda un espanto.
+va a chupar  absorber
+Es de este tamaño
+¿cuál?  ¿qué color?
+varios escaparse
+va a secar  marchitar
+cola de la vaca
+atole  pinole cocido
+va a ¡fuerte!  ¡ánimo!
+de nada  por nada
+Vamos a pie
+estuche de cuero
+va a acusar  condenar
+varios vieja  anciana
+varios pararse  levantarse
+en la manzanilla
+a fin de que
+mis hombros
+No llovió mucho
+más allá  poco después
+poner adentro  encerrar
+varios morirse  fallecer
+va a morirse  fallecer
+aumentarse  rendir mucho
+tirar flechas o balazos
+acercarse  arrimarse
+prender la lumbre  atizar
+cantar  entonar himnos
+avisado  predicado
+va a tumbar
+si quiere oírlo
+los que se juntan
+oír que se quiebra
+que guardar  esconder
+salir por el otro lado
+enfermarse  estar enfermo
+me equivoqué
+necesitar  hacer falta
+Verá para arriba
+Hay mucho maíz
+Casi acabamos
+acaba de mandar  ordenar
+corazón del pino
+tiene ganas de hacerlo
+formarse un remolino
+uno vivir  morar  habitar
+va a pescar con anzuelo
+en los ligamentos
+va a hablar  platicar
+que hablar  platicar
+¡prende el ocote!
+ligamentos de rodilla
+va a tener vergüenza
+que tener vergüenza
+para arriba en la falda
+hígado del hombre
+un tipo de serpiente
+estar tronando el cielo
+abajo  más abajo
+mis hermanos
+hojas grandes de encino
+roncar
+le manda decir
+tipo de rana verde  sapo
+quemarse  hacerse brasas
+en algún lugar mojado
+estar gordo  tener cuerpo
+hacer palomitas de maíz
+de repente
+cuando llega el tiempo
+Se calmó
+vejiga de vaca
+en la esquina o rincón
+terminar  acabar  cumplir
+va a pájaro carpintero
+en mi corazón
+no vale mucho
+muchacho  niño  chamaco
+pluma de gallina
+mi abuela materna
+no le alcanza
+autoridad
+barro
+se llevó una cobija
+le da comida regalada
+hace mal comoquiera
+hace cosquillas a otro
+está echando chispas
+quiere descomponer
+tiene espinas la oruga
+hinchado
+levantar la caja
+levántese
+de la misma manera
+mío, mía
+mira
+muchísimo
+de nada, por nada
+ninguno
+ojo de agua
+está haciéndose rico
+sabe leer
+sencillo
+hace sonidos con la voz
+lo tiñe de anaranjado
+tres tantos
+está tronando el cielo
+ver
+sano de pie o de brazo
+alas de pájaro
+va a andar acarreando
+tres tantos
+palo semejante al carrizo
+flor de calabaza
+Voy a traer agua
+crecer larga y enredada
+la flor de maguey
+piel de coyote
+jurar  prometer
+un puñado de maíz
+hacer salir pus
+pasar la noche  pernoctar
+lana de borrego
+una bola de lana
+recién hecho
+en mi cadera
+huevos de gallina
+menospreciar  despreciar
+mi capitán
+quebrarse  hacerse pedazos
+pesuñas del perro
+asesinados  matados
+tener marido  estar casada
+aguililla  gavilán blanco
+fruta del capulín
+va a tener ramitas
+malhechor  pecador
+que tener comezón
+ardillita de la tierra
+amamantar  dar el pecho
+estar doblándose el filo
+pieza de manta
+rojo obscuro  morado
+pegar abofetear, golpear
+va a chupar  picotear
+va a abandonar
+que arar  barbechar
+cojer  agarrar  arrebatar
+cuando lo acusan
+acaba de tener aretes
+entender y hablar español
+tener fiebre o paludismo
+Hay un llano largo
+va a acontecer  suceder
+tiempo de descansar
+sabe leer
+hacer muescas  hacer hueco
+más allá  poco después
+va a querer matarlo
+chivato  cría de chivas
+tipo de pez negro  barbón
+uno hacer enojar  alborotar
+Se acercó a mí
+estaban juntándose
+remendar  volver a coser
+acaba de hacer nixtamal
+valer  costar
+¡Así sea!
+poner a trabajar  ocupar
+Gritaron recio
+los grandes  los jefes
+maíz desgranado
+lavarse las manos
+por allí más arriba
+Le tiró una piedra
+solamente siete días
+que tiene nieve encima
+muela
+ponerse negro por un golpe
+desparramarse  extenderse
+hacer sol  brillar el sol
+hacerse un hoyito redondo
+jugar cuatro  jugar teja
+emparejar  hacer parejo
+nuestro Dios
+por el lado de abajo
+crecer muchas hierbas
+tumbar  poner acostados
+hueso de la muñeca
+en mi estómago
+gruñir
+estar obscureciéndose
+Voy a moler sal
+¡Vayan a avisarle!
+que tiene muchas hojas
+sedimento del tesgüino
+desnudarse
+Es mi enemigo
+tipo de hierba de la milpa
+tipo de hongo venenoso
+Nadie se quedó
+Dios me cuida
+cresta del gallo
+va a asar en las cenizas
+sus lágrimas
+aletear
+aquél, aquélla
+arriba por el arroyo
+hacer una cama o una banca
+entonces
+fácil
+falsear el tobillo
+tiene flojera
+hasta que
+crecen muchas hierbas
+lucero
+mandó llevar alguna cosa
+muere de frío 'aché moro
+lugar nombrado así
+obsequiar
+hace palomitas
+panzón
+poner parado
+el hecho de pararse
+tipo de pez negro, barbón
+en la punta del cerro
+querer
+se formó un remolino
+tierra
+está trabajando agachado
+trampa de piedras
+fueron a buscarlo
+Se embotó el hacha
+mutuamente  unos a otros
+¿Cómo dirá?
+a pesar de, de todos modos
+otra vez
+tener enfermedad venérea
+¡Apúntelo bien!
+atascadero
+varios morador  que vive
+va a arrancar  desherbar
+cobrar  quitar algo  multar
+ladear  agachar  inclinar
+acaba de estar el camino
+vientre del caballo
+cáscara de manzana
+cáscara de naranja
+desbaratar
+chancear  charlar
+que lleva pantalones
+cojo  rengo  sin pierna
+llegar el tiempo de calor
+en el tiempo de calor
+Ya se colgó
+tener granos o llagas
+Viven desparramados
+varios cuchichear  murmurar
+borrego con cuatro cuernos
+taparse la boca y nariz
+¿cuándo?  ¿qué día?
+cerro picudo  pico  cima
+estar chueco o encorvado
+después  más adelante
+más allá después
+varios grande  mucho  muy
+enorme  gigante  inmenso
+que cocinar
+nuestros padres
+parado amarrado
+que tiene mucha manteca
+toca la campana
+hacer aire  soplar el viento
+va a hay matas de maíz
+Ya respiró otra vez
+Eran curanderos.
+Allí viene abajo.
+¿Qué te pasó?
+No tiene mamá
+¡tómalo con la mano!  ¡ten!
+Hay muchas pulgas
+que contiene un líquido
+Hay muchos magueyes
+la espiga de maíz
+Voy a traer leña
+prójimo  vecino
+tener flojera
+¿Cuánto vale?
+Fueron a verlo.
+Se parecen mucho
+¡mira!  ¡fíjate!
+¡Sean buenos!
+Empezaron a moverse
+Casi se llenó.
+quiere descomponerse
+mi abuelo paterno
+va a curar
+Se ladeó el poste
+zorrillo gato de algalia
+moradores  los que viven
+¿qué te mordió?
+se llevará una cobija
+después de lo acontecido
+semilla de calabaza
+palma alta de las barrancas
+va a extender  esparcir
+quedar entre los dientes
+frijol grande  colorado
+hogar del hombre
+arriba en el cordón
+Se quedó sólo una
+va a apartar  despedazar
+nido de pájaro
+avisar  aconsejar  informar
+lugar donde lo alcanza
+tengo suficiente
+estar mocho de una mano
+pasando habiendo pasado
+Se oye a uno gritando
+a veces  de vez en cuando
+que destruir  acabar
+Lo dio prestado
+cuerda del violín
+guardar  proteger  vigilar
+Voy a traer agua.
+tipo de nopal que florece
+Me causó vértigo
+antepasado
+apunta bien jugando cuatro
+está barato
+que huele bonito
+poner una camisa a otro
+cascabel del pascolero
+que le da de comer a otro
+cualquier color o clase
+desapareciéndose
+echó fuera del corral
+que tiene hijos
+invitar
+quiere ir
+lugar donde le alcanza
+llega el tiempo de lluvias
+tiene miedo
+pico de pájaro
+poner parado
+peñasco
+hace poco
+está sentado haciendo algo
+ir al tesgüinada a tomar
+a veces, de vez en cuando
+está dando vueltas solo
+mejorar, arreglar, preparar
+panal, miel de abeja
+va a llevar en la espalda
+varios llevar en la espalda
+sí también
+quisieron ponerlo preso
+apuntar bien jugando cuatro
+Voy a tomar agua
+llegar el tiempo de lluvias
+Vamos a apedrearle
+limpiarse  volverse blanco
+maestro  el que enseña
+charco
+una parte alguna parte
+varios habitar  morar  vivir
+echarse están acostándose
+ocultarse  ponerse el sol
+cascada  salto de agua
+hace hilo de lana
+soltar, desamarrar, desatar
+hace poquito  hace ratito
+la cola del caballo
+cáscara de calabaza
+estar contento  estar feliz
+va a hacer cilíndrico
+hacer o construir una casa
+adormecer  hacer dormir
+mandó matarlos
+miel de colmena  enjambre
+Va a tostar tortillas
+Voy a comprar sal
+¿Le parece amargo?
+Vamos a comer esquite.
+niños  muchachos  chamacos
+cuando cantan o gritan
+acaba de atajar  atrancar
+estiércol de chiva
+palo chueco
+humedecerse  tener sudor
+salpicar  aletear  brincar
+es tocayo
+comenzar  empezar  emprender
+en dondequiera
+pico de pájaro
+estiércol de vaca
+pasado mañana  anteayer
+Está muy gordo
+menear la cola  colear
+enhebra la aguja
+azotar  pegar lo chicotea
+entre las matas de maíz
+el espíritu de él
+¡párense!  ¡levántense!
+¡Estén quietos!
+camaleón  lagarto cornudo
+va a contener un líquido
+entre tanto  mientras
+donde se quema incienso
+ponerse negro ahumarse
+va a hay humo  hacer humo
+hacer enojar  alborotar
+Mandó las tortillas.
+va a atizar los tizones
+Ya está enraizado
+pegarse  quedarse pegados
+varios pegar  juntar  unir
+Está muy difícil
+va a acordarse  recordar
+tener  poseer poseedor  rico
+uno los grandes  los jefes
+estar triste  entristecerse
+Voy a sacar el poste
+Le mandó hacerlo.
+Ya era la segunda vez
+hacerse pedazos
+por favor
+en el pecho  en el buche
+¿Te gustará?
+pedernal  piedra blanca
+alisar  aplanar  cepillar
+Cae mucho granizo
+lugar donde vive gente
+Brama mucho el toro
+mis manos  mis brazos
+mis pestañas
+Ya pidió permiso
+cuerda de violín
+apoyarse en un bastón
+¡Tráigalo para acá
+horcón  piedra parada  poste
+acaba de bañarse
+Mandó pararlo.
+el último llano para abajo
+vuestro  de ustedes
+asustar
+hacerle beber
+víbora de cascabel grande
+tirar flecha o balazo
+infante
+juegan cuatro, juegan teja
+se echa de un lado al otro
+levantar
+más allá en tiempo
+tiene buena memoria
+meter
+hacer palomitas de maíz
+arreglar patio para bailar
+piña
+quisieron hacerlo preso
+tira con rifle
+sano de los pies, brazos
+¡Espera todavía!
+Se cayó boca abajo
+Fue puesto allí
+tal como era
+Voy a cocer frijol.
+parecer bonito, estar bonito
+el que aprende  discípulo
+acostarse  caerse al suelo
+¡Enrolla el papel!
+dueño del caballo
+herencia de terrenos
+que es la hermana mayor
+en el tiempo de comer
+dar comida  llevar a pasto
+Curaron la siembra
+granujoso  lleno de llagas
+desparramados por otro
+Ya hace dos días
+va a hacer echar chispas
+va a estar echando chispas
+tipo de ave pecho amarillo
+No llueve todavía
+tocando el hombro
+¿qué te parece?
+más todavía  mucho más
+más acá en tiempo
+que pertenece a la pizca
+Vino a pie
+Llovió muchas veces
+hacer fuerte  fortalecer
+claramente  que sabe bien
+cobarde  miedoso  temeroso
+Tengo una sola hija
+creer que sí  pensar  opinar
+¿Cómo te llamas?
+Tiene dos meses.
+acaba de querer matarlo
+sofocarse por el humo
+cuando están reunidos
+dar ataques epilépticos
+Mandó saludos
+tiempo cuando le seguían
+en donde están pegados
+va a repartir  distribuir
+Ya le salieron raíces
+Fue a predicar.
+metamorfosear  transformarse
+Un pino ya se cayó
+ponerle una camisa a otro
+los confundieron
+descomponer  echar a perder
+Estoy desgranando maíz
+Se ladeó la carga
+ligamentos de la mano
+Voy subiendo la cuesta
+intestino del hombre
+apoyar en el rincón
+Suena el viento
+yesca del corazón del encino
+mugriento  roñoso  sucio
+la orilla del agua
+dobladillo  orilla
+¡Caliente agua!
+¡Quédense aquí!
+vendrá de repente
+¿Qué hora? ¿Cuándo?
+tiene un cetro de autoridad
+no es cierto
+está colgado
+derecho
+enfermar
+que hace mal comoquiera
+que tenía hijas el hombre
+tiene hijo
+hacer hilo de lana
+miel de abeja
+pardo
+pasa un día o noche tiempo
+a pie
+piedra que cae de la trampa
+puerta de la casa
+toro
+lo buscaremos, Uds. lo buscarán
+Hoy llovió mucho.
+¿No estás bien?
+lugar donde hay esa mata
+varios estar  estar sentado
+pozo  ojo de agua  manantial
+acaba de arrastrar  llevar
+va a habitar  morar  vivir
+Hace poco volvió
+va a acostarse
+tierra de cultivo
+maíz para hacer palomitas
+niños  muchachos  chamacos
+lo sorprendió
+ramitas del encino
+cuchichear  murmurar
+hacerse encoger  doblarse
+travieso
+¿Qué tan grande es?
+Se murió atiesado.
+Anteayer llegué
+que ser muy ligero  veloz
+tener demasiada hambre o sed
+al fin  finalmente  último
+sangre cocida  tripas cocidas
+Lo dijo claramente
+Chocaron de frente
+mi cuñado menor
+acaba de dar a luz  parir
+tener ganas de predicar
+en la chimenea  en la lumbre
+almas de los antepasados
+oír ladridos  aúllan
+Estaban parados, mirando
+¿Quién se lo dio?
+Le pareció muy bien.
+va a seguir haciendo algo
+Anda llevando flechas
+tener costumbre de hacerlo
+tener costumbre de hacerlo
+va a vivir  morar  habitar
+Anda trayendo leña
+mis ligamentos
+va a alumbrar  arder  quemar
+va a desparramar  extender
+en el cielo  en la gloria
+entretejer  hacer mecates
+No se dilatará
+Estaban yéndose otra vez.
+distinto  diferente  extraño
+pintar de verde o de azul
+vestido  que lleva zapeta
+mi plazo  mi tiempo
+Le mandó guardarlo
+espantajo  espantapájaros
+Te voy a peinar
+muy estrecho  muy angostito
+andan parados de cuatro patas
+Está cerrada la puerta
+Yo voy contigo
+antepasado
+aparece delante de
+completamente
+contradecir
+arriba en la cordillera
+chueco
+tiene demasiada hambre o sed
+se pone negro de hollín
+interpretar
+lleva de compañero en un viaje
+manso
+no se maravilla
+unos a otros
+en una sola parte
+por qué interr
+tiene ganas de predicar
+secar
+sí
+habitación de ellos
+hoy en la tarde  en seguida
+tiempo de tomar tesgüino
+Tengo muchos años
+afirmar  comprometer
+encender lumbre con pedernal
+Vamos a hacer hilo
+Él es el hermano menor
+Es mi caballo.
+nadar debajo del agua
+tecolote blanco búho chico
+el hocico del caballo
+en la casa  entre las casas
+sentarse en cuclillas
+tener sueño  querer dormir
+frente arrugada
+Me pegué en la frente
+chile colorado grande y seco
+Comenzarán a comer
+palmillo con que hacen canastas
+Voy a tostar elotes.
+antes  hace poco  el otro día
+cascabel de víbora
+Le picó con un palo
+Se oye que cuchichean
+humedecerse  tener sudor
+Todavía llueve mucho
+hincarse  ponerse de rodillas
+va a apagarse  extinguirse
+espíritu  espanto  fantasma
+que sepultar  enterrar
+el nido del pájaro
+los echó fuera del corral
+hasta pasado mañana
+orilla del mar
+huari grande  canasta grande
+estar haciéndose barroso
+pizca  tiempo de la pizca
+retrasa su llegada
+muchas veces  frecuentemente
+Tiene un agujero grande
+parado por atrás
+sentirse adolorido por un golpe
+Voy a pizcar frijol
+Tiene raíces grandes.
+hablar en público  predicar
+Lo trajeron entre cuatro
+hermanos  primos hermanos
+fue guardado  fue escondido
+Se enfermó y murió
+cuando estaban viéndolo
+que casarse
+Tembló la tierra.
+Habló en alta voz
+pájaro carpintero
+zanja aguaje  ojo de agua
+uno moradores  los que viven
+tapándose con la cobija
+cordón alto  cordillera  cerro
+arreglar un patio para bailar
+que estar pando  pandearse
+al tiempo de cortarlo
+medio blanco  gris pardo
+rascar  lijar  raspar  cepillar
+guano de murciélago
+estar mugriento  estar roñoso
+que acaban muchas cosas
+va a terminar  acabar  cumplir
+puerta cercar  cerrar  encerrar
+hace bromas con las cuñadas
+víbora de cascabel chico
+no me conviene
+cuerda
+poner uno encima del otro
+los que se van juntando
+lugar de los ligamentos
+mejorar
+en todas partes
+perdónale
+sorprender
+tener tesgüino en su casa
+donde hay trabajo
+Todavía no llueve
+animalito parecido al alacrán
+va a brotar, nacer o germinar
+invitar a la casa o al trabajo
+Vamos a capar a un toro
+Contiene dos litros
+¿Dónde está el camino?
+¿Cuándo viniste?
+Tengo de todas clases
+cosas de todas clases
+collar  soguilla con crucifijo
+paño para la cabeza  la corona
+¡Tuesta la tortilla!
+en mi espinilla
+tipo de quelite que se come
+poner vigas solera  viga  trozo
+a obscuras  en la obscuridad
+el pico del pájaro
+¿qué quiere decir?
+¿cuánto?, ¿qué cantidad?
+atiesarse de frío, enfriarse
+duro  que no se puede doblar
+marchitarse  secarse por el sol
+como una tabla ancha
+¿Tienes dinero?
+¿Hay cambio?
+¡Trabaja con fuerza!
+Voy a sembrar ancho
+cada uno  unos a otros
+Ya dejó de soplar.
+Me duele todo el cuerpo
+Eran tamboreros
+distintos  diferentes  extraños
+Está abierta la puerta
+va a tener rabia  estar loco
+¡que sepan!  ¡que conozcan!
+cualquier clase o color
+¿Qué tanto llovió?
+la piedra que cae de la trampa
+Nos ganaron.
+va a acercarse  arrimarse
+Hay muchas cosas
+Voy a comprar lienzo
+¡Vayan a verlo!
+Yo le di dinero
+que dar  entregar  obsequiar
+Siguió haciendo mal.
+donde hay trabajo
+Mañana volveré
+Está demasiado enojado
+la escritura de Dios
+que tiene grumos el atole
+Fue una zorra. Era zorra
+Retumba muy fuerte
+suena un tiro o un trueno
+darse semilla o fruta  producir
+idioma tarahumara
+va a estar pando  pandearse
+la iglesia de ellos
+volver por atrás  dar vueltas
+volver por atrás  dar vueltas
+Tiene grande el estómago
+cecina
+Está trasquilándolo.
+¡Caliéntate a la lumbre!
+sacar tiras de palma o de cuero
+las pezuñas del caballo
+arriba por el arroyo  más lejos
+la puerta de la casa
+hace muchos años
+hace un año
+en la casa
+en el cerro donde es pura laja
+claro
+tengo de todas clases
+qué quiere decir
+frente arrugada
+hermanos y primos hermanos
+tiene un hijo el hombre
+hacer un hoyito redondo
+lugar donde se juntan
+que tiene laja
+malhechor
+remojar
+sonaja que llevan los corredores
+hace muchísimo tiempo
+dar vuelta
+Voy a ponerlo allí.
+golpear ropa para quitar el agua
+primeramente  adelante  enfrente
+primogénito, hermano mayor
+hinchado por desnutrición
+¿Se puede tomar?
+Esto está muy bonito
+Voy a alguna parte
+Ya se torció la tabla
+acaba de habitar  morar  vivir
+va a pasar la noche  pernoctar
+Ya estoy bien lleno
+Se hundió completamente
+en otra ocasión  tal vez
+zacate  hierba del campo  pasto
+atravesar  poner atravesado
+cárcel  casa de la comunidad
+Habló saludándole
+que tener marido  estar casada
+hilo de lana  pedazos de hilo
+gritar  relinchar o bramar cantar
+Pasé bien la noche
+Allí, por atrás, viene
+parándose derechito
+acaba de pararse  levantarse
+tierra de siembra
+bolsita de gusanos del madroño
+Los paró en el rincón.
+Tiene muchos hijos
+asustar  espantar
+tener camisa  ponerse la camisa
+Era muy trabajoso
+varios enfermarse  estar enfermo
+Yo no recuerdo.
+lo que destruye o descompone
+los mandamientos de Dios
+que enseña a hacer mal
+dentro  por adentro
+acaba de alumbrar  arder  quemar
+¡Alúmbrame para acá!
+que rajar  partir
+desobediente  que no hace caso
+va a hacer sol  brillar el sol
+Le duele el estómago
+preguntándole  interrogándole
+va a avisar  aconsejar  informar
+sonar al resoplar o al respirar
+varios chico  infante  pequeño
+traer agua  sacar agua con una hueja
+siente el cuerpo dolorido
+son iguales
+inmediatamente
+pecado
+quelite
+el Sol resplandece
+tiempo de cortar trigo
+hacer viento frío del norte
+pieza triangular de la zapeta
+ponerse correas a los huaraches
+cuadrado
+en el tiempo en que se dice
+Vamos a hacer un mecate.
+Ya se puso el sol
+hace poco  nuevamente  hace rato
+Lo hizo de nuevo
+levantar la caja levantar
+¡Déme unas tortillas!
+va a gritar  relinchar o bramar
+sonaja cascabel del pascolero
+¡No lo maltrates!
+¡Ponte de rodillas!
+al principio  en el principio
+¿Qué le voy a hacer?
+animalito parecido al alacrán
+Voy a pizcar maíz.
+varios que tiene mucha manteca
+Ya voló el zopilote
+Le picará con sus cuernos
+Jugaban con la pelota
+Salió desde allí
+¡Mándalo para acá!
+tamaño de un caballo
+lugar donde ponen algo
+Se acercó a la casa.
+Le mandó a predicar
+Quería seguirle
+La tuza ya lo tapó.
+escardar  deshierbar con azadón
+Voy a escardar frijol
+estar orgulloso  vanagloriarse
+Ese hombre lo entregó
+¡Abre los ojos y ve!
+acaba de seguir haciendo algo
+lugar en que se descompuso
+uno tener costumbre de hacerlo
+Aprendí a escribir
+en el libro de Dios
+remendando  si lo remienda
+quizá  quizás  tal vez
+¡Vuélvete para acá!
+hablando con él
+rastrillo para limpiar el patio
+¡Enrolla el mecate!
+va a estar gordo  tener cuerpo
+de otra manera  en cambio
+Préstame el hacha
+varios muchacho  niño  chamaco
+La víbora me picó
+Voy a teñir lana
+por allá
+cascada
+cresta de gallo
+lugar en que se descompone
+qué día
+tiene mucho que hacer
+llegó de repente
+parándose
+en todas partes donde hay gente
+pasa a pie al otro lado del agua
+el Sol resplandece
+Voy a buscar el caballo
+No tengo huaraches
+acaba de brotar, nacer o germinar
+Tiene mejillas gordas
+va a arrastrar  llevar
+Vamos a llevarlo amarrado.
+va a soltar, desamarrar, desatar
+Lo hundió en el agua
+Llegó trayendo un palo.
+complacer  contentar  regocijar
+ahorcar  agarrotar  estrangular
+Se cortó en la pierna
+que humedecerse  tener sudor
+tipo de quelite con hojas anchas
+¡Quítate! ¡Hazte a un lado!
+Está ancho el río
+Empezó a llover
+va a hacer aire  soplar el viento
+Una pulga me picó.
+víbora chica con rayas blancas
+¡Quémalo en la lumbre!
+Prendió una lumbre grande.
+El nopal ya tiene tunas
+estar haciéndose rico
+¿Quién se lo entregó?
+que poner a trabajar  ocupar
+Estaba muy difícil
+va a estar triste  entristecerse
+¡Échalo a la lumbre!
+Voy a juntar quelites
+Aquí hay peñascos.
+tirar tronar la pólvora  disparar
+acaba de estar pando  pandearse
+va a alisar  aplanar  cepillar
+asustarse  brincar de susto
+obscuridad  en las tinieblas
+año antepasado
+confundir
+va corriendo 'mahuá corretear
+cotense
+muela
+por favor
+¡Voltea el cajete!
+Yo voy a traerlo en la espalda
+¿Quién es el dueño?
+Ya enrollé el mecate
+va a estar contento  estar feliz
+No iré a ninguna parte
+Sería bueno dormir
+hacer como arroyo  hacer cóncavo
+Ya es el tiempo de calor
+permanecer
+mata extendida  sirve como quelite
+Hay muchos perritos
+paño para la cabeza  un cotense
+Dios me dió la vida
+desapareciéndose
+según dice Juan
+hacer sentarse  desear sentarse
+El perro gime mucho.
+Me voy a poner la camisa.
+¿Cómo le pagan?
+nuestras enfermedades
+Ese hombre ya ganó.
+Tuve ganas de vomitar
+Tengo una sola hija
+alumbrando iluminando  encendiendo
+Le duele mucho el diente
+en los ligamentos de la rodilla
+Voy para arriba en la cuesta
+varios distinto  diferente  extraño
+su espinazo  la espina dorsal
+cuándo
+después
+espíritus de los antepasados
+el otro lado del cerro
+maíz nacido para hacer tesgüino
+raíz con la que se hace pegamento
+hacer sentarse, desean sentarse
+Nacieron al mismo tiempo
+Voy a moler en el metate
+Comenzaron a hundirse
+monte  terreno  tierra  campo  mundo
+hacer como arroyo  hacer cóncavo
+Dirá sus quejas en alta voz
+va a humedecerse  tener sudor
+Ya se apagó la lumbre
+El mecate se dobló .
+¿qué tan lejos está?
+Es todo que voy a decir
+muy bien  muy bueno  fino, perfecto
+tuétano de determinado hueso
+se va en una línea recta
+la pizca  el tiempo de la pizca
+Está largo el palo.
+fertilizar la tierra con estiércol
+uno distintos  diferentes  extraños
+Anduve siguiendo las huellas
+Voy a poner una almohada.
+Ya se agusanó el elote
+Le mandó distribuirlos
+Vivieron mucho antes
+varios tener costumbre de hacerlo
+Trajeron muchas cosas.
+Tráigalo para acá
+habiendo hablado así
+cuando hace calor cuando reluce
+conceder  autorizar  permitir
+Me pateará, tal vez
+Voy a tostar maíz blando
+acaba de estar gordo  tener cuerpo
+No querían irse.
+Iban gritándose fuerte
+raramente acontecerá
+Ya terminé de trabajar
+Lo pidió para sepultarlo
+Escribe con la mano izquierda
+bonito
+hace cimiento para casa
+fragante
+hoy temprano en la madrugada
+que tiene orejas largas o chicas
+pasa la noche posar
+patio donde arreglaron parejo
+que tiene el pelo despeinado
+tiempo de calor antes de las lluvias
+hoyo de la nariz, ventana de la nariz
+Los dos son iguales
+Salieron al mismo tiempo.
+Los dos son iguales
+el próximo domingo
+al siguiente día por la mañana
+estaba preso  estaba encerrado
+el año antepasado
+mi padrino, mi madrina
+Sembré en una sola parte
+Me cobró diez pesos
+Sería bueno que no fuera
+Habla chistoso, habla malas cosas
+Hay muchos perros aquí
+Me pegaron en la frente
+atrás del cerro  al otro lado
+va a atiesarse de frío, enfriarse
+Voy a desvainar el frijol
+fertilizar la tierra con estiércol
+Subimos al peñasco
+De muy lejos vino
+¿Quién es el dueño?
+¿Quién le había tocado?
+Me mandó a trabajar
+Ese hombre me venció
+durante el tiempo de hablar
+Voy a limpiar los frijoles
+hoy temprano  en la madrugada
+va a volver por atrás  dar vueltas
+Ruge mucho el león.
+Lo hizo a mano
+Solamente tiene un brazo
+Vamos a hacerla de nuevo.
+cercado de piedra  hecho de piedra
+por allí más arriba en la falda
+blanquear
+comparecer
+le había dicho que le iba a dar
+espantajo, espantapájaros m
+lobo
+en otra parte
+pronto
+también
+Vamos a buscar dinero.
+Habló de otro modo
+Ya se pudrió la calabaza
+Muy temprano desperté
+se le hinchó la mejilla
+en muchas partes  en dondequiera
+acaba de estar contento  estar feliz
+Vivo arriba, por el arroyo
+ponerse el paño de lienzo en la cabeza
+Los grillos chirrían mucho
+Tiene muchos granos feos
+tipo de culebra de cascabel chico
+Tiró el aro con un palito
+cualquier color o clase  lo que sea
+por algo  por causa de  por lo tanto
+así hace  eso hace  de ese modo hace
+Está muy bueno el frijol.
+Se cayó en el suelo.
+Muy noche llegó
+Anda cuidando las chivas.
+tipo de árbol chico con hojas amargosas
+Explicando bien le dijo esto
+hueja alargada especial para sacar agua
+martillar  pegar rápidamente  clavar
+Yo me acerqué allí
+que hablar en público  predicar
+¡Que Dios se lo pague!
+Mi papá está muy mal
+Ese hombre cobró mucho
+Tiró su palo en el juego
+Siendo viejo murió.
+Suena el maíz al tostarse
+que darse semilla o fruta  producir
+relumbrar  resplandecer  brillar mucho
+Se va allí, por abajo
+va a rascar  lijar  raspar  cepillar
+va a sacar tiras de palma o de cuero
+Pedí una tortilla
+no tuvo  no tuvieron no había
+muy angosto
+arrodillar
+todos los días
+escapar
+manzanilla
+de la misma manera, así también
+¿Qué quiere decir?
+Estaba sentado leyendo
+Hay mucha lama en el agua
+Yo quería llamarle
+bello  chulo  hermoso  lindo  bonito
+haber neblina  haber polvo  haber humo
+en otra parte  en alguna parte
+Se fue llevando un cuchillo.
+Se oyen muchos tambores
+Es para arriba, en el arroyo.
+¡Quiébralo completamente!
+Ya empezaremos a trabajar
+hacer comoquiera  no hacerlo bien
+La gente me acusaba
+¡Juega, tira el palo!
+tener lástima o compasión  compadecer
+Ese caballo me pateó
+Me obligó a hacer el mal
+Aquí hay huellas de coyote
+No me ha escrito todavía.
+Ya está barrido aquí
+en el tiempo de cortar cortar
+Fueron mandados a llevarlo
+afuera
+castellano
+lugar donde hay hierba “basigó”
+telaraña
+Voy a buscar dinero
+lugar nombrado Samachique
+hacer caldo, echar agua a un líquido
+Me pegó en la mejilla
+Ya se derritió la nieve.
+El perro desea las tortillas
+El perro se enojó de nuevo
+hacer cabecillas   organizar carreras
+¿qué clase?, ¿cuál?, ¿qué color?
+Ya era muy noche.
+Se va a volar por el viento
+¿Quién le quemó unos pelos?
+¡Vayan los dos juntos!
+el que habla en público  predicador
+Voy a deshierbar con la mano.
+lobo
+telaraña
+tener lástima o compasión  compadecer
+Las pulgas pican mucho
+El perro anda gimiendo.
+Le voy a hacer que traiga leña.
+¿Vive alguien allí?
+Ya trasquilé al borrego
+apenas tiene un año
+tenía costumbre de hacerlo
+cualquiera
+hermana mayor
+se hace pedazos
+no piensa bien
+tal vez adv
+mi abuelo materno, mi nieto
+ante el gobernador
+parte gruesa del hueso que fue roto
+Se acostaron en la tierra.
+Vamos a amarrar manojos de rastrojo
+Él vive al otro lado
+tener un cetro de autoridad  tener cargo
+Aquí voy a pasar la noche
+Ya se le entumió el pie
+Corrieron dos veces
+Estuvimos acostados pensando
+Sacó las vacas
+Creo que ya vino
+Siempre seguiremos haciéndolo
+Tiene huesos muy chuecos
+El día anterior me dijo
+El perro le mordió muchas veces
+hacer cimiento para una casa
+Era cuando estaba lloviznando
+Ya comenzó el invierno otra vez
+gobernador de ellos
+Ya se cayó la trinchera.
+Te traje esta cosa
+¿Qué color? ¿Cuál? ¿Qué clase?
+no
+pedazos que sobran al hacer una cobija
+poco a poco
+otra vez
+Su esposa también se fue
+tipo de víbora chica con rayas blancas
+ante  delante  por delante  enfrente de
+Se apuró a sembrar primero
+pasar a pie al otro lado del agua  vadear
+El encino está florido
+Anda llevando un cadáver
+Se paró en la puerta
+son autoridades tienen cargo
+Voy a atajar las vacas
+Andan muchos coyotes aquí
+El palo ya se quebró.
+Los que están enfermos
+No quería obedecerme.
+Ese caballo patea mucho.
+Yo admiro las flores
+lonche  merienda s nututa  hacer merienda
+Poco a poco les darán maíz
+Le duele su talón
+hacer un hoyito redondo en la laja blanca
+Terminando de comer, eructa.
+lugar en donde está colorada la tierra
+Me cosió una camisa
+gratis
+en la laja
+lugar en donde la tierra está colorada
+¿Se lo dieron? Sí
+cojo de una pierna
+Puso la piedra en el rincón.
+Ya se tragó el chicle.
+aparecer delante de  comparecer
+Mi padre me enseñó.
+Yo era un poco chico
+Ya se desaparecieron las nubes
+Esa mujer va a hacer esquiate
+¿Cuántos hijos tienes?
+bolsa de cuero  saco de manta  talega
+bolsa de cuero  saco de manta  talega
+Creció mucho el arroyo
+Voy a parar el motor.
+tipo de animalito carnívoro con cola larga
+Éramos muy traviesos
+Aquí estoy a gusto
+¿Cuántos hijos tienes tú?
+Es muy trabajoso, tal vez.
+El agua lo cubre completamente
+Se juntó mucha gente
+Volvió con el pecho para allá
+Te vendí un caballo
+Se oye zumbar el camión de carga
+de todas clases
+qué tan lejos está interr
+otro
+en muchas partes
+travieso
+Todavía está vivo el perro
+tipo de mata que crece en las barrancas.
+Echó mucha agua al esquiate
+Dicen que van a tomar tesgüino
+La quebró en pedazos completamente
+el que tiene un cetro de autoridad  jefe
+allí  allá  ahí  hacia allá  por allá
+Ya se quemaron los frijoles.
+El niñito se va a tropezar
+Fue abierto por alguien
+Algunos días no trabajó
+No me alcanzó el maíz
+Vamos a trabajar los dos juntos.
+Ya escardó las matas de maíz
+Vamos a correr diez vueltas
+El cuchillo tiene filo
+Estaban trayendo muchas cosas
+fibra para hacer sogas
+Ya cinché ese caballo
+tipo de mata que lleva una frutita
+chupar
+perteneciente a la acción de rezar
+va a haber neblina  haber polvo  haber humo
+Vamos a trabajar en una sola parte
+Iba hacia la casa
+Yo tengo sóla una vaca.
+Aquí hay muchos olotes
+Él vino a ayudarme
+¿Comerá algunas galletas?
+De ninguna manera pudieron
+Los dos dijeron lo mismo
+Vamos a hacerlo de alguna manera
+bolitas en el encino que se forman en mayo
+Voy a vestirme, me pondré la zapeta
+Desde hace un mes vino
+bolas que crecen en los encinos
+Estamos llevando carga en un burro
+En la barranca hay muchas tunas
+¡Sálganse de dos en dos!
+México queda al sur
+Voy a surcar con el arado
+en otra ocasión  algún día  tal vez
+el día cuando todo se acaba
+está llamándole por nombre en su presencia
+Montando el caballo, se fué.
+Mi papá también vino
+Se infectó; ya salió pus
+se le hizo una matadura en el lomo del animal
+Ya se endurecieron las calabazas
+Vivo allí, en Basigochi.
+piña de la clase de pino que llaman
+¿cómo?  ¿de qué modo?  ¿de qué manera?
+tener reúma  sentir el cuerpo dolorido
+El caballo ya enredó la soga
+Esa olla contiene agua
+Ya nació una criatura
+Nos mandó sentarnos.
+Esa gallina ya está clueca
+Dios da el día bueno
+¿Hay trabajo aquí?
+Cuando venga yo te lo daré
+Ese niño creció mucho.
+Estaba parado sobre el peñasco
+estar volviendo en brasas  quemarse la comida
+Fuimos a cazar venados
+Me hubiera pedido dinero a mí
+palo usado por las mujeres en las carreras
+en una parte desconocida, en alguna parte
+Amarrado con mecate, lo llevó
+Me duele mucho una cadera
+Siéntate en una banca.
+El niño mordió un chile
+Vamos a curar las chivas, ahumeándolas.
+va a bolsa de cuero  saco de manta  talega
+Doblando el puño, le pegó.
+La tierra absorbe el agua
+Mi padre me perdonó
+la pieza triangular de la zapeta  un cotense
+Fue sabido quién era
+Se fueron corriendo y desaparecieron
+La olla se quebró en pedazos.
+Ya amarré los bueyes al yugo
+Estaban sentados tejiendo canastas
+Voy a ponerme el paño en la cabeza.
+La gallina ya se encluecó empollar
+Estaban parados trabajando con sus manos.
+Los jóvenes son muy ligeros
+hierba que sirve para calmar el dolor de muelas
+Ya que sea viejo, morirá.
+Voy a dar rastrojo al caballo
+Ya vino a Samachique otra vez
+Voy a poner un mango nuevo al hacha
+¡Atájalo con una piedra abajo!
+Tal vez va a amanecer en un rato.
+Mañana va a hacer cuatro días
+Hace dos días que murió.
+Vamos a engordar un marrano
+Es el hijo primogénito
+El monte estaba quemándose mucho
+Ese chiquito es muy seguidor
+Sería bueno temer a Dios
+Se fue a una parte muy lejos
+Muchas cosas fueron traídas
+¡Que vivan tranquilos Uds.!
+Ese hombre me tocó una pieza.
+La gallina cacarea
+bellotas que crecen en los encinos
+Ya se soltó la correa del huarache.
+La pinté por los dos lados
+Ese niño anda llevando flechas
+Se encogió la ropa al lavarla
+Supe que ya había muerto
+Se abolló el bote al caer
+Ya está viejo; tiene canas
+Ya se juntó mucha gente
+Ese hongo es muy venenoso
+Ese madroño estaba hueco
+traducir al tarahumara
+Ese hombre hace malas cosas
+Andaba yendo a Samachique.
+habla con palabras bonitas y suaves
+donde el arroyo ha hecho un hueco en la laja
+Yo quería ponerlo allí.
+Mi cobija ya está gastada
+enfermarse con mucha calentura
+un rollo largo  una pieza entera de manta
+Comen todo lo que les dan
+El esquiate está muy espeso
+Andaba a un lado, sin seguir en el camino
+Los niños forman círculos.
+Un poco tarde comenzarán la carrera
+Ese niño tiene mucho moco.
+Ese perro menea mucho la cola
+Está colgado allí adentro
+Comeremos frijoles con tortillas
+Tiene el paño puesto alrededor de la cabeza
+Muchos hombres acarrean maíz
+Esos caballos son míos
+Esa mujer tiene dos hijas grandes
+Ese hombre me aborrece mucho
+¿De qué mujer es hija esa muchacha?
+bravo  cruel  feroz  malvado  valiente  violento
+Hace mucho había un camino allí
+donde se llega después de atravesar varios arroyos
+Me ahogaba con un hueso
+Esa niña es mi hermana menor
+El caballo está parado enredado.
+Se sentaron adentro de la casa
+Aquí estamos sentados esperando
+hacer un liacho preparar una carga  llevar una carga
+Yo fui bautizado de niño.
+lugar del patio donde está arreglado parejo
+Todo lo que quieras, te daré
+al principio, en el principio
+A pesar del frío vamos a trabajar
+Pronto llegará el tiempo de lluvias
+Está acostado adentro de la casa.
+Adentro estaban sentados, esperando
+Me enchilé, porque comí chile
+Ese hombre me estorbó mucho
+Esa víbora no tiene cascabel
+Ese nene es muy mamador
+Un toro me picó con sus cuernos
+Esa mujer cose con la aguja
+Llegó para azotarnos a nosotros.
+Me eligieron como capitán
+Esa medicina me reforzó
+Luchando lo tiró con fuerza al suelo
+Ese hombre está muy fuerte.
+Voy a poner la cabeza en esta esquina
+¿No me permite ir?
+Ya dí una vuelta alrededor del cerco
+Esta carne tiene muchos huesos
+Voy a rebanar la carne para hacer cecina.
+Te voy a conseguir una vaca
+Habiendo pedido permiso, lo traje.
+Ya se aplastó una tuza en la trampa
+qué te parece interr
+Creció larga la mata de calabaza
+Va a parecerse a los mestizos
+El mango del hacha ya se quebró.
+Esa comida estaba muy picante.
+Le voy a dar tortillas al niño
+El café está amargo, no tiene dulce.
+¿Dónde está parada la escoba?
+Se le pegó trementina en la camisa
+Seguiremos haciendo bien
+Voy a sacar peces zambulléndome en el agua
+interpretar  traducir al tarahumara
+De Samachique habían salido
+Ayer trabajó un día entero
+El coyote acabó con una chiva
+Fue regañado por las autoridades
+Va a llevar el maíz en la espalda.
+Ya es tarde, pronto va a obscurecer
+Dejó el hacha en la casa.
+Voy a llevar el caballo jalandolo.
+Me parecieron bonitas las flores
+Tiene muchas liendres en la cabeza
+El agua ya hizo un arroyo aquí.
+Todavía no se han madurado las manzanas
+Ese corredor es muy ligero
+Estaba lloviendo por mucho tiempo.
+Cada uno escogió una cosa.
+Huele muy bonito
+Allí en el camino me alcanzará
+¡Párate allá, un poco más retirado!
+No están empollados los huevos
+Tocándole el hombro, le saludó.
+que sigue a otro constantemente porque lo quiere
+Los niños ya crecieron grandes
+Esa faja está muy bien tejida
+¿Tienen suficiente sal los frijoles?
+Solamente aguantó tres vueltas
+¿Se limpió bien al lavarlo?
+piña grande de la clase de pino que llaman
+Ese niño chifla muy bonito
+Esa mujer se ha envejecido mucho
+¿Cómo caiste? Me enredé.
+Un llano ya está barbechado.
+Ese niño tiene solamente una camisa
+El mango del hacha se quebró.
+Ese hombre no me hizo caso
+Así teníamos la costumbre de hacerlo.
+Éramos muy jugadores a veces
+no se maravilla
+hace mucho tiempo
+El hombre dejó a su esposa
+¡Déjalo! ¡No le hagas nada!
+Hace tiempo aprendí a leer
+Allí, en el campo, pasó la noche
+¿Donde está el camino hacia Samachique?
+Se enfermará más; le saldrán más granos.
+Ya se quebró la punta del palo de sembrar
+Este cuchillo es muy puntiagudo
+Por aquí cayó la bola.
+Aumentó mucho el número de las chivas
+Ya se gastaron las borlas de la cobija
+lugar donde se juntan  tiempo en que se juntan
+Traeré maíz, y frijol también.
+El faisán corre muy ligeramente
+Me avisaron algo acerca de ellos.
+Ese hombre necesita un bastón
+Está traducido al tarahumara.
+Agarrando una piedra le apedreó
+Ese borrego tiene cuatro cuernos
+Es muy noche; ya se acostó
+Ellos te invitarán de nuevo
+El hombre robó el dinero de paso
+Después de dos días regresaré.
+¿A cuántos nombraron como autoridades?
+Va subiendo para arriba, al pico del cerro
+Nos nevó mucho en el camino
+Encendí un ocote para ver, y lo busqué.
+Ese perro guarda bien las chivas
+Ya es tarde, pronto obscurecerá.
+El comisario de la policía me acusó.
+Esa mujer tiene aretes muy bonitos
+Se hacen las ollas de tierra
+Entonces, entre los dos lo agarramos
+El hombre me hizo una casa
+Volverá otra vez con el pecho a otro lado.
+Están muy bien de sal estos frijoles.
+Sentándose adentro, comió mucho
+Le dio de comer tortillas con frijoles
+pico del cerro  entre los cerros  en la punta del cerro
+Está en el agujero de la piedra
+Siempre viven odiándo el uno al otro
+Déme un cigarro; ya voy a fumar
+Si no se les da de comer, se van a desmayar
+Cerrando los ojos vamos a orar a Dios
+Va a comer frijoles con tortilla en lugar de cuchara
+Solamente estaban parados allí, mirando
+Voy a estar allí, a la sombra
+Habla chistoso para que los otros se rían
+Los niños vinieron a ayudarme
+Aplasté la pulga con mi dedo
+Por el sol se quemó su cara
+cosechar  pizcar el maíz 'Huíi 'yena.  Andan pizcando maíz.
+El que camina para abajo está cansado.
+El venado acorneó al perro
+Ya echó hacia adentro las piedras
+Aún los niños se enfermaron.
+Está feo el terreno, no hay buen camino.
+Puso parada el hacha, en el rincón.
+Escojan cualquiera que quieran
+Los niños hacen mucho ruido jugando.
+Ese hombre quiere hacer grande
+Fueron a otra parte para trabajar
+Hay masa para que hagamos tortillas
+Ese niño ama mucho a su mamá
+Esa mujer va a hacer un poco de pinole
+Ya comenzaron a correr con la bola
+La cáscara del pino es muy áspera
+Estaban acostados en el suelo gritando sus quejas
+En la madrugada relampagueó mucho
+Todavía no está entrenado a ser montado.
+Mañana temprano te voy a despertar.
+Debajo del manzano hay sombra
+¿Ya acabaste de levantar la casa?
+La taza de peltre se astilló al caer
+Ese hombre ya se juntó con una mujer
+Me dieron tortillas con frijoles también
+Ellos se juntaron aparte de los demás
+Se fue solo; nadie iba con él
+No está muy esférica la bola de madera.
+Este año se levantará bien el maíz
+El que estaba enfermo ya está bien
+Ese hombre abandonó a su mujer.
+Nosotros deseábamos sentarnos allí
+Ellos dos están poniéndose de acuerdo
+Voy a quebrar las ramitas en pedacitos
+Allá, en el camino, te voy a esperar
+En la punta del pino está una aguililla
+El niño se escondió adentro de la casa
+La víbora se transforma en ardilla de la tierra.
+Voy a hablar a los que se juntan primero
+Es muy difícil hacer un violín
+El perro se escondió adentro de la casa
+los que vivieron hace mucho  los espíritus de los antepasados
+Ya muy de noche se acostaron a dormir.
+Ese hombre vive aquí en Samachique.
+Se hizo una cortada muy grande en la espinilla
+abejorro  un árbol de las barrancas donde se congregan los abejorros
+Trozé el palo con una hacha.
+De repente un venado se arrancó brincando
+Tomó una mujer como esposa
+Le ví sentado allí, en la escuela.
+¡Los que tienen oídos, oigan!
+Allá abajo, en el río, hay mucho carrizo
+Ya es tiempo de lluvias; hay muchos elotes.
+La batea está hecha cóncava
+Ese marrano está muy gordo, y tiene mucha manteca
+Esos corredores ya se adelantaron mucho.
+La gente de aquí tiene muchas vacas.
+Ese niño no hace caso; sigue haciendo lo mismo
+Ayer, a estas horas, ya mero llegábamos
+El coyote me va a acabar los borregos
+Y yo también soy su nieto.
+Ese hombre se va a echar un tercio de leña en la espalda
+Ya hace un año que murió mi papá
+Se encarrujó el papel por el sol.
+Tengo mucha sed, porque no hay agua.
+Lavándolo con jabón, se limpiará bien.
+¿No tienes tierra donde puedas sembrar?
+En la primavera hay muchas guacamayas
+¡Traiga el martillo que está adentro!
+Pedro le cortó la oreja a Malco
+Después de hacer nixtamal, voy a hacer tortillas.
+Vamos a dar comida a los espíritus de los antepasados.
+Ya maté una res; voy a asar la carne
+Ahora hay mucha lama allí, en el arroyo.
+¡Estás muy mugroso; lávate bien la cara!
+Está muy pesado. No puedo levantarlo.
+Se cayó un pino seco en el camino
+Los tarahumaras siembran con el palo picudo
+Voy a colgar el fuste allí adentro
+Ellos solamente seguirán haciendo mal.
+Es tan chiquito como esa pequeña semilla
+Un niño chico se perdió en la madrugada
+Ese pino ya está seco; lo tumbaremos.
+Un venado desapareció entre los encinos
+Un toro bravo me acorneó
+Está muy malo el camino; lo arreglaremos.
+Voy a comparecer delante del gobernador.
+El quiote del maguey de la barranca está muy grande
+Ya no tenemos agua; vamos a derretir nieve
+Tú estás muy enfermo; te voy a hacer sombra.
+Los cuervos roban mucho el maíz sembrado
+Ya que esté muerto, vamos a quitarle la cabeza
+Cambiaré un marrano por dos chivas.
+Cuando le hablé, no me contestó.
+Entonces yo tenía la costumbre de hacerlo así.
+Las vacas andaban pastando en el zacate
+Las puso una encima de la otra, haciendo un montón
+Tengo mucha prisa; por eso voy adelante
+Allí está muy seco, no hay agua.
+Es verdad que ya van a trabajar en el molino
+Ya no está aquí; se fue a otra parte.
+¿Cuántos hombres vinieron? Llegó sólo uno
+Pasado mañana se juntarán los que viven aquí
+Arriba en la orilla de la mesa hay un bordo angostito
+Un hombre mató un perro envenenándolo.
+Ese hombre anduvo trabajando en muchas partes.
+El mango de hacha se hace del fresno
+Vamos a guardar los huevos dentro de la casa.
+La mamá de mi papá es mi abuela paterna.
+Voy a sacar las papas de las cenizas.
+¿Quién le permitió entrar aquí?
+Poco más allá van a hacer un camino grande
+Anduvimos pensando en como lo podríamos hacer
+Allí, donde hay hierbas, perdí una cosa
+Los tarahumaras hacen flautas del carrizo
+juntarse
+Trajo leña seca, mezclada con leña verde
+Me llené, porque comí muchas tortillas.
+Esa vaca da mucha leche, voy a ordeñarla.
+A los tarahumaras les hace mucha falta el maíz.
+Ya se encarrujó la pelota; voy a echarle aire.
+Una mujer está lavando allí, en el arroyo.
+Está buena la tierra; crecerá grande el maíz
+¡Ponga juntas las calabazas sobre la mesa!
+Los fariseos ya se pintaron con tierra blanca
+Así está la calabaza; todavía está entera.
+El papá de mi madre es mi abuelo materno.
+Ese toro me acorneó; ya voy a descornarlo
+El sol quemó completamente las matas de maíz.
+Pegándolo con ese camote se fabrica el violín
+Hace días que se murió el burro; ya se pudrió.
+Hicimos dos días en ir allá abajo al río
+Ya vamos a herrar esa vaca, porque es mía
+Ya está muy obscuro; me puede morder el coyote.
+Allí donde está ancho el agua están los patos
+El espejo tiene mucho polvo ¡Límpialo bien!
+Ese hombre miente mucho; no dice la verdad.
+Muchas mariposas andan allí, entre las flores
+Tiene mucha lana ese borrego; vamos a trasquilarlo.
+Más allá, durante la pizca, habrá mucho maíz
+¿Está tu papá? Sí, está allí adentro
+Esta manzana está muy seca. No tiene jugo.
+Me caí en el camino; me raspé mucho la pierna
+Ahora no hay huevos; las gallinas no ponen.
+Ese hombre no me ama; solamente me desprecia
+Me duele mucho el oído, no oigo bien entender bien
+En esta fiesta algunos jóvenes bailarán matachines.
+Allá arriba, en la escarpadura, está colgado un panal
+Sacudió bien la cobija, porque tenía mucho polvo
+Creció mucho la hierba, ya vamos a arrancarla.
+Voy a apartar las chivas de los borregos.
+El tambor se secó; sería bueno escupirlo.
+¿Qué otra cosa es amarga como esta?
+Voy a trabajar hasta que gane cincuenta pesos.
+Llevó un saco de maíz en la espalda amarrado con un mecapal
+Los fariseos ya se pintaron de blanco con una piedra blanca.
+Los tarahumaras siempre sahuman cuando bailan.
+Yo soy el primogénito, porque nací primero.
+Resultó un borracho, igual que su padre
+Los que vivieron hace mucho nunca vieron mestizos
+Todos se pusieron de acuerdo en que se construyese una casa
+A poco de haberse ido usted, llegó él
+Ese hombre sabe hacer lumbre con un fierro y yesca
+Cuando corrieron con la bola, ese hombre no aguantó.
+Fui por abajo, en el arroyo, llevando un anzuelo
+Cuando queremos amarrar ese toro, menea mucho la cabeza
+Los tarahumaras se rieron mucho cuando me caí
+Al día siguiente de la gran nevada hizo mucho frío
+Ahora está muy helado el aire. Es un norte
+Los niños de muchas partes ya saben leer
+Cuano se agarra un pez con el anzuelo, entonces aletea mucho.
+Algunas mujeres se tapan la boca porque tienen vergüenza
+Esa piedra que rodó se llevó otra piedra grande también
+Allá en el fondo de la barranca, muy abajo, está el río
+La nutria es un animal que puede nadar en el agua
+Cuando creció mucho el arroyo, corrió mucha agua
+Cuando comenzaba a pegar el sol en la mañana, me levanté.
+Cada uno puso dinero allí donde se deposita dinero.
+Esa niña es epiléptica; siempre le dan ataques
+Allí abajito iban llegando cuando cayó mucha lluvia
+Ya te cansaste de andar, siéntate allí sobre la piedra
+Tengo muy hinchada la encía, porque la muela me duele mucho
+Ese hombre se robó una cobija; por eso lo perseguiremos.
+Allí hay mucho tesgüino. Tal vez van a tomar mañana.
+Ese hombre es mi padrino. Él me puso mi nombre.
+Ya matando esa vaca, inmediatamente vamos a despellejarla
+La gente aplastó a un hombre porque estaban parados muy juntos
+La gente de aquí se juntó en la casa de la comunidad
+de la corteza de pino
+Yo los ví cuando estaban reunidos dentro de la casa
+Me duele mucho la muela, y se me hinchó mucho la mejilla.
+Arrastrando ramas de encino, voy a echarlas en el barbecho para quemarlas allí.
+No pude jalar ese caballo, porque está muy bravo
+Me duele mucho la muela; no puedo aguantarla más.
+No tengo hermano mayor, porque yo soy el primero
+Hace tiempo compré este sombrero; ya se arrugó completamente.
+Hace tiempo murió ese perro; ya está completamente agusanado.
+Aquí andaba un médico dándonos medicinas de todas clases
+Trabajé mucho tumbando pinos; ya se ampollaron mis manos
+La gente ya entró en la iglesia; van a rezar.
+Ese hombre es cojo porque tiene la pierna chueca.
+Cuando tumbamos un pino, primeramente amolamos el hacha.
+Algunos tarahumaras pelean mucho cuando es tiempo de tomar tesgüino
+Yo siempre apago la lumbre cuando salgo de la casa
+Cuando no llueve por mucho tiempo, se marchitan las matas
+Allí en la ciudad anduve admirando cosas de todas clases
+Esa piedra rodó desde arriba y se quedó allí abajo.
+El “agóona” está muy bravo porque pica a la gente
+Desde hace algún tiempo le salió un grano, ahora ya se hinchó con pus
+Tan pronto como complete esa cantidad de dinero, le pagaré
+Mi hermano menor se fue, pero mi hermana menor todavía está aquí.
+Cuando creció el arroyo se inundó completamente esa casa
+Ese niño está hinchado por desnutrición. Se le hinchó todo el cuerpo
+De todos modos compraré una camisa de cualquier color que haya
+Cuando hicieron distribución del maíz, la gente llegaba una tras otra
+Ahora es el tiempo de aguas. Todos los días, temprano, cae mucho sereno
+En la pizca juntamos las hojas de las mazorcas; después haremos tamales
+Hoy, temprano, había mucha neblina; creo que no va a llover.
+Algunos tarahumaras invitan a muchos a tomar tesgüino, pero los ponen a trabajar antes
+El niño no obedece; pero yo le voy a hacer obedecer
+A ese hombre le gusta mucho el tesgüino; por eso se irá a la tesgüinada
+Un niño chiquito se atiesó, y murió así, porque no tenía cobija
+Aquí en el camino voy a comer un poco de pinole seco porque no hay agua
+Midieron bien el maíz, para que cada uno reciba la misma cantidad.
+Cuando estaba muy crecida el agua, yo siempre pasaba al otro lado vadeando
+Ese niñito está jugando en la chimenea; se va a tiznar completamente
+Esa chiva andaba aparte, pero ya se juntó con las otras.
+Ese hombre está haciéndose muy rico, porque su ganado está aumentando mucho
+Desde hace dos semanas no ha llovido, por eso está muy dura para barbechar
+Algunos tarahumaras tienen miedo cuando alguien apunta con la mano al arco iris.
+Ese hombre hizo una cosa de la misma manera que vió en la ciudad.
+Yo no quería tomar tesgüino, pero algunos hombres me hicieron tomarlo a la fuerza
+Ya maté una víbora de cascabel; la llevaré en la punta de un palito para tirarla lejos
+Los tarahumaras juntan triguillo arrancándolo y lo mezclan para hacer el tesgüino
+Cuando ese hombre habló conmigo, me dijo que su papá ya había muerto.
+Cuando los muchachos andan en el agua, las sanguijuelas les chupan en los pies
+Aquí, el patio no está duro. Vamos a endurecerlo con un palo ancho.
+El maestro ya entró a la escuela; pero los niños no han entrado todavía.
+Hace un mes llovió mucho todos los días, por eso las matas de maíz se pusieron amarillas
+Estos dos mecates no son muy buenos porque están cortos; vamos a amarrarlos para hacer uno largo
+Hace tiempo se secó allí donde salió agua; pero ya sale otra vez porque llueve bastante ahora
+Algunos tarahumaras creen que los espíritus de los que vivieron hace mucho todavía andan aquí, por eso, cuando ellos están muy asustados en la noche, creen que los espíritus de los antepasados andan por ahí
