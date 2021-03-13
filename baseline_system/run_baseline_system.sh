@@ -2,7 +2,7 @@
 
 set -e
 
-STAGE=1
+STAGE=4
 
 FAIRSEQ_DIR=fairseq
 
@@ -135,11 +135,11 @@ then
 	    --encoder-attention-heads 2 --decoder-attention-heads 2 \
 	    --encoder-normalize-before --decoder-normalize-before \
 	    --dropout 0.4 --attention-dropout 0.2 --relu-dropout 0.2 \
-	    --weight-decay 0.0001 \
+	    --weight-decay 0.0001 --scoring chrf \
 	    --label-smoothing 0.2 --criterion label_smoothed_cross_entropy \
 	    --optimizer adam --adam-betas '(0.9, 0.98)' --clip-norm 0 \
 	    --lr-scheduler inverse_sqrt --warmup-updates 1000 --warmup-init-lr 1e-7 \
-	    --lr 1e-3 --stop-min-lr 1e-9 \
+	    --lr 1e-3 --min-lr 1e-9 \
 	    --max-tokens 1000 \
 	    --update-freq 4 \
 	    --max-epoch $EPOCHS --save-interval 1 \
