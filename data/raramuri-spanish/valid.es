@@ -63,7 +63,7 @@ comiendo , se engorda bien ; flojeando se muere uno ; hay que trabajar duro
 ¿ de quién son esos pensamientos ? son pensamientos del que vive abajo
 el padre no sabe dónde tiene sus raíces ese asunto ( de dónde nació todo )
 por ejemplo , si ustedes no pueden ( cooperar con trabajo ) , den bastimento ( a los trabajadores )
-no sé yo en cuántos lugares estuviste ... pero a ti sí te sé ( conozco )
+no sé yo en cuántos lugares estuviste … pero a ti sí te sé ( conozco )
 ¿ vendes maíz ? aquí lo traigo , para que bendigas ( cures ) tú el maíz
 ¿ el bisonte ataca al hombre ? sí ¿ y si sube uno a un pino ?
 nosotros los tarahumares estamos bien abandonados ( lit . se nos suelta , se nos tira , se nos desecha )
@@ -71,7 +71,7 @@ pero el sol estaba excesivamente caliente , exageradamente , como la lumbre
 aquí abajito paso las noches ; paso las noches cuidando mis sequitos ( mazorcas que se secan )
 llaman los rarámuri al estar quieto sentado en un rincón mientras llueve
 háganlo aguardar ; entreténganmelo aquí hasta la tarde ( lit . háganmelo que le coja la tarde aquí )
-¿ bailarán hoy ? quién sabe qué hagan... creo que no ; ¿ quién sabe ?
+¿ bailarán hoy ? quién sabe qué hagan … creo que no ; ¿ quién sabe ?
 para eso los llamé , para que cogieran sus cobijas para extenderlas al sol
 cómo se llama ese hombre ? quién sabe cómo se llamará , yo no sé
 ¿ desde cuándo no te confiesas ? apenas ahorita me voy a confesar ( es mi primera confesión )
@@ -103,7 +103,7 @@ creció mucho el río ; ya no podíamos pasar ; los caballos nadaron bien
 ayer por la mañana decía que tenía mucho dolor ; a la media noche se murió
 ¿ lo llamarás tú ? tal vez no venga . lo cogeré si no quiere
 tenemos una sola alma , tenemos también una sola sangre ; no tenemos otra distinta sangre
-pero yo trabajo siempre aquí . ¿ y ? ... ( ¿ y qué ? con ello ? ¿ qué se sigue de allí ?
+pero yo trabajo siempre aquí . ¿ y ? … ( ¿ y qué ? con ello ? ¿ qué se sigue de allí ?
 olían muy bonito aquellas flores ; estaban muy frescas ( tiernas , como llenas de agua )
 eso dijeron los que vivieron aquí antes ; yo no sé si fuera verdad
 busca otro papel ; lo escondí en este cuaderno , no está lejos
@@ -117,7 +117,7 @@ busca otro papel , lo escondí entre estas hojas , no está lejos
 nuestro padre dios tuvo a bien que no lloviera , para que no fuéramos sin mojarnos
 ¿ dónde vives tú ? yo vivo río arriba en los faldeos , de otorichi para acá
 todas las noches me acordaba mucho de ti . con razón no dormía a gusto
-enciérralo , pues , bien... porque a la mejor se te escapa sin que te des cuenta
+enciérralo , pues , bien … porque a la mejor se te escapa sin que te des cuenta
 ayúdenme un poco ; háganme justicia ; aquí no me quieren ayudar
 eso dijo , porque tena muchas ganas de casar a los muchachos ( de darles esposas )
 ¿ quién te ordenó que la corrieras ( de tu casa ) ? ¿ lo dijiste tú por tu propia cuenta ?
@@ -136,10 +136,10 @@ cuando lo mataron los judíos al tercer día resucitó ; no le pasó nada
 declara ( confiesa ) pronto ; porque ¿ qué te han de hacer si confiesas ? ( en el juicio )
 ( el hechicero ) se sienta cerca y echa un mal humo , y le emborracha ( a uno ) la cabeza
 ¿ qué haces pues ? estás perdiendo tu trabajo ; en seguida se va a trozar
-¿ qué querías pues ? pues... yo quería arreglar un asunto
+¿ qué querías pues ? pues … yo quería arreglar un asunto
 ¿ te duele mucho la falseadura ( el falsearte ) ? muchísimo no se puede aguantar !
 ¿ qué buscabas ? dos sogas ; sácamelas , por favor ; estaban ahí adentro
-¿ es de miguel esa gallina ? quién sabe de quién... será de miguel
+¿ es de miguel esa gallina ? quién sabe de quién … será de miguel
 andaba con mucho miedo en chihuahua , andaba agarrado a las piernas de cresencio
 antes de que nos metiéramos , llovió un poco , sí nos mojó bien la camisa
 dice que aguardará que comience a bajar el sol ; que se va dentro de dos días
@@ -160,7 +160,7 @@ ya envié con orden de juntar hiebas ; vamos a revolverles quelites a los frijol
 ¿ por quéacarreas gallinas ? porque voy a hacer menudo ; no comí huevos hoy
 porque el mes que viene hay que hacer la fiesta . sí , hay que hacer la celebración
 dispénseme , padres y madres míos , ( palabras del cacique de wawatzérare al terminar su discurso ) .
-menospreciaban ustedes la sangre de su padre , la sangre de su madre ( lit . hacían miserable ... )
+menospreciaban ustedes la sangre de su padre , la sangre de su madre ( lit . hacían miserable … )
 si llueve mucho , pronto se anegan los maizales , pronto quedan al aire las raíces .
 dice que sí quiere ( ser capitán ) ; tiéndanle ( la cobija ) para que se arrodille ;
 nos marcharemos , dejando aquí en la tierra nuestro cuerpo ; eso pienso yo
@@ -247,7 +247,7 @@ y el barro se endurecerá salido el sol ; porque el sol lo hará ponerse duro
 ¿ qué , no iba a quedarse el otro ? sí dijo guadalupe que se iba a quedar
 ¡ ay ! ¿ qué te pasa ? ¿ te falseaste ? no : me herí las uás de un tropezón
 y cuando se ha apoderado de ellos ¿ qué hace ? los niños desaparecen , se los come
-¿ por qué traes tan rojos los ojos ? quién sabe... será por el sol
+¿ por qué traes tan rojos los ojos ? quién sabe … será por el sol
 ¿ qué leña quieres : de pino , ocotosa , o pura encina blanca ?
 lo acostaron envuelto en un lienzo , para que no se entiesara ( de frío ) el chiquito
 sí ; algunos andan robando ; sí , hay algunos que son ofensivos ( lit insultadores )
@@ -306,7 +306,7 @@ guardaré los jaboncitos en el talego , para no tirarlos , para que no se pierda
 esperanza es sobrina de saturnino ; es hija de la hermana menor de saturnino
 cuando me hayan puesto otra vez , dentro ( me hayan readmitido ) , entonces hablaré contigo
 no me ayudan nada los de por aquí cerca ; así vamos a ser unos salvajes
-una grande... digo... una grande palabra vamos a levantar ( vamos a tratar un asunto importantísimo )
+una grande … digo … una grande palabra vamos a levantar ( vamos a tratar un asunto importantísimo )
 estaba muy tupido el pinar ; muy bello el camino y muy empinado ( lit . había muy tupidos pinos )
 algunos les dicen na'chúpiara . yo no hablo así ; yo ( digo ) na'chúpara
 no me ayudan nada los de por aquí cerca ; así vamos a ser unos salvajes
@@ -327,7 +327,7 @@ ya al atardecer , volví a subir al mero cerro , muy arriba a la punta
 ( el hechicero ) , sentándose y balanceándose muy cerca , echa un mal humo ; les da dolor de cabeza
 tan hondo así se pone cuando la piedra ya sobresale un poco ( hablando de las crecientes de un río )
 téngale fe a este padre ; él sabe muy bien ; ha leído un libro ;
-al fin que ya no tienes ganas de venir acá , donde estuviste los años pasados ...
+al fin que ya no tienes ganas de venir acá , donde estuviste los años pasados …
 ¿ hay mucho cascajal ( en tu tierra ) ? no ; es ( tierra ) buena ; muy negra , tierra negra
 es que no vamos a hacer la casa en la orila ( del río ) ; no sea que un día se la lleve el agua
 anduviste como un perro , considera ; fíjate que los perros corren por las cañadas
@@ -360,12 +360,12 @@ aquí en cambio , no es tan a gusto , porque ya me acostumbré a lugares más po
 úrjanles a los fiscales que les apremien ( a los tarahumares ) a que vuelvan a traerles leña
 ahora se va a derretir ( lit . enfriar ) la nieve ; la lluvia la va a deshacer ( lit . a enfriar )
 porque , no más le pasa algo ( a uno ) , ( el hechicero ) los sueña ; por eso lo sabe
-¿ pero te harán caso ? quién sabe... seguro que no van a hacer caso
+¿ pero te harán caso ? quién sabe … seguro que no van a hacer caso
 cierto que es una piedra ( el sukiki ) ; pero , así y todo , vuela ; así y todo , chilla muy fuerte
 fríjate que anduvimos como un perro ; son los perros los que corren por los arroyos
 entonces todos se la echaron encima para atraparlo y otro león también les ayudó
 y dice que nos darán un
-esto dice el jefe : que... este... que maten una res blanca
+esto dice el jefe : que … este … que maten una res blanca
 la casa , cuando se ha llenado de humo , queda oliendo a humo ( lit . huele a humo ) ; se ha impregnado
 y cuando se los lleva ( el gigante ) , ¿ qué hace ? desaparecen los niños ; se los come
 aquí está muy caro el maíz . en wawatzérare , en cambio , parece que no cuesta tanto
@@ -382,14 +382,14 @@ yo llegué tan chico como ( lit . chico de tamaño de ) vidal ; ya ves qué pron
 allí viven muchos tarahumares ; es precioso , para quien no conoce
 trae acá los catalejos por qué les dices así ? porque se ve muy lejos
 entonces se pusieron a cogerlo con las manos ; cuentan que abrieron para que chupara la miel
-¿ no sabes tú hacer cobijas ? no es difícil hacer cobijas . quién sabe ! ...
+¿ no sabes tú hacer cobijas ? no es difícil hacer cobijas . quién sabe ! …
 ¿ quién mató esos pescados ? nosotros los matamos atrapándolos con el tapeztle
 ¿ qué tragedia trae la bruma ? se muere el ganado ; ( trae ) enfermedad de los animales
 y las mujeres cuidaran flores preciosas y perfumadas , como el incienso
 así pues , por favor , si lo volviera a pensar , hazme reflexionar
 ¿ cuando pareció que caían estrellas ? ( cuando la lluvia de estrellas ) , mucho muy antes
 aquí está muy caro el maíz . en cambio , en waeatzérare parece que no cuesta tanto
-¿ cómo es que los otros tienen ocho y tú nueve ? ... ¿ qué más traes tú ?
+¿ cómo es que los otros tienen ocho y tú nueve ? … ¿ qué más traes tú ?
 es que sí hay templo tarahumar , allá en narárachi ; en muchas partes hay
 patricio no debía ni hablar ; es muy pleitista ; ya tendió ( mató ) a uno
 ¿ cómo contaban los meses los tarahumares ? no más pensaban ( es decir : mentalmente )
@@ -442,7 +442,7 @@ es la fiesta ( onomástico ) de venancio el chico ; por eso le dieron pan . sí 
 ¿ no te gustan las naranjas ? cómo no han de gustarme ! si son sabrosísimas
 reflexiona ; ¿ qué piensas ? ¿ es que te has hecho demasiado como los blancos ( por lo malvado )
 así atardece ( se pasa el día ) todos los días . lloviendo ( a ratos ) y saliendo el sol ( a ratos )
-¿ por qué traes tan colorados los ojos ? quién sabe por qué ... será por el sol
+¿ por qué traes tan colorados los ojos ? quién sabe por qué … será por el sol
 el "apariki" es como rayado , aplanado , ancho , es sumamente veloz
 los que habitan arriba ( en el cielo ) , viven no más así ( sin trabajar ) , paseando felices
 ¿ ññegará al decálitro ? no tranto . serán siete litros . parecén ser siete
@@ -490,18 +490,18 @@ esto no más ( lit . de este tamaño ) les diré ; no me alcanzan las palabras (
 ya les llamaron la atención ; no les den dinero , les dijeron a los ( habitantes ) de juárez
 pidiendo huevos , decías tú : "traigan huevos rarámuris ; me gusta mucho comerlos"
 ¿ cómo nos va a amar dios ? trayendo en nuestra boca las palabras de dios
-¿ por que no le diste maíz ? al cabo que t no me dijiste , ( pues ssi no me dijiste ... )
+¿ por que no le diste maíz ? al cabo que t no me dijiste , ( pues ssi no me dijiste … )
 ahora hay mucha gente en sogichi , porque se han juntado toda la sierra
 hasta que nos tiende envueltos ( alusión al modo rarámuri de enterrar a sus muertos envueltos en la cobija )
-¿ van a danzar hoy los indios ? sí van a danzar ; puede que no ; quién sabe ...
+¿ van a danzar hoy los indios ? sí van a danzar ; puede que no ; quién sabe …
 ¿ por qué no duermes allí ? les tengo miedo a los corucos ( lit . piojos de las gallinas )
 ya se mvan muriendo los ojos ; como una niebla muy blanca
-el gigante no supo por qué se sentía así ... él pensaba que era una enfermedad
+el gigante no supo por qué se sentía así … él pensaba que era una enfermedad
 la mujer no quería que se le acercara , porque era una niña muy vergonzosa ( pudorosa )
 ¿ cuánta ( leña ) partiste ? le eché ( al burro ) unos cuantos ( leños ) ; es que no tengo hacha
 ; nadie me ayuda , quiero decir , de los subalternos ( el jefe principal , hablando de sus auxiliares )
-pero ¿ te harán caso ? quién sabe lo que hagan ... ¡ qué caso han de hacer !
-¿ bailarán hoy ? quién sabe qué hagan ! ... creo que no ... quién sabe !
+pero ¿ te harán caso ? quién sabe lo que hagan … ¡ qué caso han de hacer !
+¿ bailarán hoy ? quién sabe qué hagan ! … creo que no … quién sabe !
 no quieran mal a quien vive en la casa de su padre ( de ustedes : a la esposa que vive en casa de su suegro ) ;
 y en aquella tela quedó dibujada la mujer que había hablado a juan
 es que nosotros los tarahumaras no crecemos pronto ; tardamos mucho en desarrollarnos
@@ -540,17 +540,17 @@ es negro ( un pájaro ) , la cola blanca , tiene una cabeza bellísima y canta p
 sí , ofrezcámosle comida al que vive arriba ( dios ) , él nos dará alimento a nosotros
 ¿ a dónde mero tiraste ? tiré allí , mira tiraste desparramado . desparramado
 vengo a comprar sal , unos dos reales ( 25 cvs . ) ¿ qué vas a sazonar ? los frijoles
-¿ quién sabe qué habré hecho ? ... no me di cuenta . ¿ cómo no te has de dar cuenta ? ...
+¿ quién sabe qué habré hecho ? … no me di cuenta . ¿ cómo no te has de dar cuenta ? …
 así atardece todo los días : lloviendo y saliendo el sol ( a ratos llueve , a ratos hay sol )
 ¿ cómo se llama el tiempo en qué nació ? ( cuándo nació ? ) ¿ el día de santiago ? tiene medio año
-¿ por qué tienes los ojos tan rojos ? quién sabe por qué... será por el sol
+¿ por qué tienes los ojos tan rojos ? quién sabe por qué … será por el sol
 hablen ( declaren ) bien quién es el culpable , para hacerles justicia ( lit . para arreglarles )
 ¿ quién es el concertador ( de carreras ) que va a correr también ? ( junto con los corredores , para vigilar la carrera )
 después , cuando comenzábamos a comer , llegó un hombre a llamar a los muchachos
 ve a preguntarle tú , valerio ; tú eres de aquí pero yo no suelo venir por acá
 y llegado al poblado , se pasó directamente a donde los sacerdotes tenían su casa
 el grillo canta ya de noche ; ya noche da su voz ; por eso canta el grillo
-adivina qué ( ¿ qué piensas que ... ) traigo , beo ? huevos bien que blanquean por fuera ( de a bolsa )
+adivina qué ( ¿ qué piensas que … ) traigo , beo ? huevos bien que blanquean por fuera ( de a bolsa )
 antes no me sucedía nada ; pero hace poco se me coaguló la sangre ( una mujer , hablando de sus reglas
 elevemos ( al cielo en ofrenda ) un par de estos depositados , ( al pie de las crues ) ; cestos llenso de gusanos para conjurar una plaga
 antwes no podía con el metate ( la muchacha ) . es que la gente de allá tiene petates muy malos
@@ -612,7 +612,7 @@ y luego que ( el gigante ) se apodera de ellos , ¿ qué hace ? desaparecen los 
 ¿ dónde cogiste los pescados ? donde hicimos presa ( donde represamos el arrollo : lit . donde cerramos ) ;
 ¿ solías acostarte sola para dormir ? sola ; por eso se me acercó en la noche
 ¿ durará mucho la lluvia ? probablemente sí ; ya estamos en las equipatas ( lluvias de otoño e invierno )
-¿ a qué horas se juntarán ? quién sabe a qué horas se vayan a juntar ! ... al medio día
+¿ a qué horas se juntarán ? quién sabe a qué horas se vayan a juntar ! … al medio día
 patricio no debía ni hablar ; es muy pendeenciero ; ya derribó ( mató ) a uno .
 la batoná se da junto al agua ; sí produce tallo ; es tan alta así cuando ha echado el tallo
 por eso mismo hay que vivir en paz ; por eso mismo tenemos que regresar ( hablándole a un matrimonio separado )
@@ -655,7 +655,7 @@ no hay dos infiernos ; en un mismo infierno entraremos todos los que obremos mal
 ¿ no tienes bolas de lana ? ya compré maíz ( con ellas ) ; rodrigo es el que tiene muchas
 cuantas veces entro donde tú te la pasabas escribiendo , se me afigura que ahí estás
 yo soy como los patos ; ¿ por qué los patos no han de mejoarse ? yo no me mojaré
-ahora , quién sabe cuándo volverá a ser... porque ya pasó ese paseo tan bonito
+ahora , quién sabe cuándo volverá a ser … porque ya pasó ese paseo tan bonito
 vamo a cocerle colorín junto con los frijoles , para matar a ese hombre ladrón .
 no llegaron cabales las borregas . sí están cabales , bien que lo sé yo
 en tekómachi es muy ligero ( tempranero ) el maíz duro ; aquí no es ligero el cha'mó
@@ -703,7 +703,7 @@ y también suenan feos chillidos en las orejas ( me zumban los oídos ) : como u
 es que ustedes dijeron eso en una borrachera . pero en las borracheras no vale tanto ( lo que se diga )
 y otro ( cesto ) de lo que el difunto había guardado cuando todavía no le pasaba nada
 ya va grande el llanto puro , como van las aguas en las crecientes ( lit . cuando son abundantes )
-¿ por qué no cumpliste ? quién sabe por qué... es que estaba tendido con gran dolor
+¿ por qué no cumpliste ? quién sabe por qué … es que estaba tendido con gran dolor
 es que tú no sabes porqué me siento tan contento : es que yo soy de allí
 dice que los rarámuri malos irán abajo ; los rarámuri buenos , en cambio , irán arriba
 es que allí al pie ( de la pared del cerro ) no nos mojará la lluvia , si hay alguna cueva ( para pasar la noche ) ;
@@ -717,7 +717,7 @@ hoy se irá ; mañana atardecerá en wawatzérare ; pasado mañana se regresará
 ¿ a dónde se marcharán nuestras almas ? ¿ a dónde se irán nuestros pensamientos ? ( con la muerte )
 si está enfermo el hombre , lo ponen en la fosa , en el fondo de un hoyo , para que se alivie
 el matarí es muy amargo , si lo muerde una vívora de cascabel , se machaca matarí y se aplica
-el cerro grande es el más alto de todos ( lit . se yergue solo muy alto ) ... se divisa todo en torno
+el cerro grande es el más alto de todos ( lit . se yergue solo muy alto ) … se divisa todo en torno
 ensartándolos por las orejas arrastraba a los chiquitos de brazos ; los asaba y se los comía
 es que tú no sabes por qué me sentía tan feliz : es que yo soy de allí
 y también vimos allá donde el monte que arde mucho , que se le llama parícutin
@@ -740,7 +740,7 @@ cresceinco , el de banarachi , disparó una pistola , por eso lo regañó mucho
 el martes muy de mañana se fue a ta ¿ laltelolco a llamar al sacerdote ; se fue directamente
 y las mujeres cuidarán de las flores , primorosas y perfumadas como el incienso
 ya se van haciendo bravos los cachorrillos ; se va poniend muy brava la chata ( una perra ) , ladran mucho
-quién sabe qué haya hecho yo ... no me di cuenta . ¡ cómo no habías de darte cuenta !
+quién sabe qué haya hecho yo … no me di cuenta . ¡ cómo no habías de darte cuenta !
 el que le dicen caballo del diablo tiene alas con muchas como fibritas entrecruzadas por muchas partes
 ¿ de qué tamaño dice que quiere las bolas ? dice que una de ese tamaño y dos de ese
 es muy suspicaz el perro ( sabe presentir ) ; se escondió muy bien el perro , para que no lo mataran
@@ -764,7 +764,7 @@ apóyate en tu padre , el de allá arriba . yo me apoyaré en él . ( el cacique
 ¿ sí puedo tocar el agua ? todavía no . yo penzaba que me lavaría la cabeza , ( un convaleciente )
 esos hombres ( los chamanes ) no hacen nada ( ningun daño ) ; son gente que vive en oaz
 es muy activa la hierba del zorrillo ; pero en los sentidos : con diarrea y vómitos ( purgante y vomitivo )
-¿ danzaron tutuguri río arriba ? quién sabe qué hayan echo ... yo no he ido río arriba ;
+¿ danzaron tutuguri río arriba ? quién sabe qué hayan echo … yo no he ido río arriba ;
 tal vez se ha cansado mucho ese hombre , por no haberle , creído yo el otro día , eso pensó
 llegamos a ciudad victoria ; llegamos de nuevo allí habíamos hecho noche primero
 ¿ cuándo vuelves ? no más que pasen unos días , cierto que vendré aquí , dentro de una semana
@@ -788,9 +788,9 @@ el matarí es muy amargo ; si lo muerde a uno una víbora de cascabel , se macha
 y subimos a unos aviones y caballos y a una rueda grande que da muchas vueltas ( un tiovivo )
 voy a verme muy fachoso loma arriba rajando leña ; se van a morir de risa . ¿ quiénes se vana morir ? las que viven arriba
 luego de dormir no da sueño ; pero si no se ha dormido , da mucho sueño ( lit . dan muchas ganas de dormir )
-no sé yo si en todas partes del mundo , o si los que viven aquí... ( son los únicos que tienen tal costumbre )
+no sé yo si en todas partes del mundo , o si los que viven aquí … ( son los únicos que tienen tal costumbre )
 el mataríki es muy amargo ; si una víbora de cascabel lo muerde a uno , se aplica matarí machacado
-¿ qué traes ? huevos de gallina . vuelve otra vez con huevos de gallina ( trae otra vez ... )
+¿ qué traes ? huevos de gallina . vuelve otra vez con huevos de gallina ( trae otra vez … )
 un poco más allá ( donde le dicen ) basonéachi , ya paró la lluvia ; ya era de noche
 ( el gigante ) arrastraba a los niños pequeños ensartados de las orejas , los asaba y se los comía
 ya va un torrente de lágrimas , como va grande el agua en las crecientes ( lit . cuando es abundante )
@@ -833,7 +833,7 @@ son dobles ( se refieren mutuamente ) los tíos sobrinos ( habla de que la misma
 el toro estuvo corneando la tierra y los pinos y los tascatales ( donde había táscates ) con mucho coraje
 entonces salcedo nos dio una camisa y pantalones ; porque no teníamos muchas camisas
 enciérrala , pues , muy bien en una caja ; pero bien fuerte porque se te va a escapar
-¿ tienes hermana mayo ? sí ... ¿ y tiene también hermana menor ? . no , yo soy el último ( lit . la punta )
+¿ tienes hermana mayo ? sí … ¿ y tiene también hermana menor ? . no , yo soy el último ( lit . la punta )
 qué vas a sazonar con la sal que compres ? ( lit . ) comprando sal . ratones y lagartijas pescados
 cualquier leña con tal de que esté seca , arderá enseguida . esta es manzanilla . por eso mismo
 el estafiate no se come ; es medicina ; se machaca y se lo unta uno , cuando tiene calentura .
@@ -874,7 +874,7 @@ luego salimos para que hicieran procesión todos los hombres y mujeres y los muc
 tengo muy caliente aquí , por dentro de la garganta ( la faringe ) ; en días pasados también me sucedía así
 cuando nos necesiten ( cuando seamos llamados a morir ) , no les hablará palabras hermosas dios ( a los perversos )
 no nos da cumplidamente el agua , para que se desarolle cabalmente nuestra vida . ( lit . para que crezca bien nuestra alma )
-con esto , ya te voy a decir adiós ; qué importa si entra la nostalgia cuando haya llegado a casa...
+con esto , ya te voy a decir adiós ; qué importa si entra la nostalgia cuando haya llegado a casa …
 cierto que es una piedra ( el ŕu’síwari ) ; pero , así y todo , vuela , así y todo chilla muy fuerte
 ¿ está muy malo ahora el camino carretero ? está malísimo ; el agua lo llenó de baches
 nada , ni tantito me ayudan los de por aquí cerca ; así vamos a ser unos salvajes ( monteses )
@@ -887,10 +887,10 @@ es que tengo muchas ganas de vivir felíz allá , como te lo había dicho en dí
 ¿ quiénes pelearon anoche ? me desperté , por que se oían disparos de muchos rifles , eso dijo .
 asado ( cecina ) : carne seca , a la que se le ha puesto chile ; se llama así porque se come asada
 entonces , le dio miedo y se fue ; se encaramó en lo alto de un álamo , para que no lo alcanzaran .
-¿ cuándo acabarán ? quien sabe cuándo ... faltan muchas estacas ; ya se acabaron
+¿ cuándo acabarán ? quien sabe cuándo … faltan muchas estacas ; ya se acabaron
 sí ; avisan que habrá tres días de oscuridad y lluvia ; que por tres días no dejará de llover
 ¿ dónde venden maíz ? arribita , y también arroyo abajo , donde chole . bueno pues ! sí , pronto !
-¿ cuándo acabarán ustedes ? ve a ver cuándo... faltan muchas estacas ; ya se acabaron
+¿ cuándo acabarán ustedes ? ve a ver cuándo … faltan muchas estacas ; ya se acabaron
 y suena muy feo en la oreja , como un chillido ; como un pájaro ; asi suena ( uno que sufría zumbido de oídos )
 lo que me duele mucho son las muelas ; dice mi mamá que ya se me picaron por completo ( que las tengo bien picadas )
 dicen que en tiempos pasados vivía aquí un hombre grande ( gigante ) , o viv 161an varios , no sé
@@ -918,7 +918,7 @@ si me faltan muchos días aquí en la tierra ( si me queda vida por delante ) , 
 le cayeron estrellas ! se le pegaron estrellas ! ( ref . a uno que traía en el sombrero varias estrellas de papel de colores )
 no es que haya resbalado y caído al agua ; iba atravesando el río y se lo llevo el agua ( hablando de un ahogado )
 qué hacen muchachos ? es que este me picó ( lit . fui picado por este ) . yo no lo piqué
-¿ cómo se llama tu padre ? es que ya se murió ; vivo con librado . ah ! es adoptivo ...
+¿ cómo se llama tu padre ? es que ya se murió ; vivo con librado . ah ! es adoptivo …
 enviaron una hormiguita desde el otro lado del lago , que atravesara a donde estaba el hermano menor
 y al ( niño ) que se ha asustado junto a algún manantial a ese le ponen un collar del llamado palo mulato
 yo también bebo ; ¿ por qué he de reprender las borracheras ? dice plancarte , fíjate !
@@ -934,7 +934,7 @@ la víbora de cascabel tiene colmillos filosísimos ; en los colmillos tiene ven
 ¿ no quieres carne de res ? ¿ la mataste tú , o se murió por enfermedad ? no ; se despeñó
 cualquier leña , con tal de que esté seca , arderá en seguida . esta es manzanilla . por eso mismo
 pero algunos ( unos pocos ) de nosotros los rarámuris ya no creemos lo que dicen los viejos
-es que no hay hambre ; hay mucho maíz . sí , aquí ... ( pero en nuestra tierra )
+es que no hay hambre ; hay mucho maíz . sí , aquí … ( pero en nuestra tierra )
 asado : es carne seca enchilada ( lit . a la que han puesto chile ) ; se llama así porque se come asada
 sé hombre ; quédate donde estás ; ¿ por qué te escapaste ? resísteles a los capitanes
 ¿ cómo te voy a hacer aprender desobendientísimo ? pues haciéndome sentir sabroso ( dándome algún dolor )
@@ -951,12 +951,12 @@ a mí me toca alimentar a los marranos ( lit . soy alimentador de los marranos )
 ¿ qué llevas ? una ardilla voladora . ¿ dónde la mataste ? la maté allá del otro lado ( del cerro )
 se desbarató la ( carga de ) y la mula se asustó ; y cuando me acerqué , volvió a escapar corriendo
 estoy tristísimo de vivir solo ; no dormí en la noche ; amanecí llorando ( uno al que le robaron su mujer )
-y en la cumbre se divisa todo... todo alrededor se ve ; completamente en torno se divisa
+y en la cumbre se divisa todo … todo alrededor se ve ; completamente en torno se divisa
 ya se va opacando ( el ambiente ) ya se va ensombreciendo , porque paran las nubes , porque se van haciendo las nubes
 pero el gigante no sabía por qué se sentía así ; pensaba que se había enfermado él mismo
 somos nosotros los que estamos soteniendo ( como columnas ) el mundo ; si nos acabamos , quién sabe qué suceda
 ¿ no tienes un remedio ? está muy malo mi niño . ¿ qué le pasa ? se abotagó , se hinchó todo
-¿ cuántos años tienes ( llevas encima ) : quién sabe cuántos... tal vez veinte , o quizás treinta .
+¿ cuántos años tienes ( llevas encima ) : quién sabe cuántos … tal vez veinte , o quizás treinta .
 ahora , hace poquito , nos fuimos a nararachi de paseo ; estuvimos muy contentos y juguetones
 luego que volví a comenzarlo , ya no los volví a cortar , cuando tú nos mandaste comenzar
 sí estaba habitado río abajo , cuando yo vivía aquí , cuando era zanca pelona ( cuando andaba en taparrabo )
@@ -970,7 +970,7 @@ pero yo no lo creo ; algunos rarámuri en cambio , parece que todavía lo creen 
 no puedo mover la cabeza : me torcí el cuello . ¿ te torciste el cuello ? yo hago que se ( te ) destuerza
 y si le arrancamos los cabellos a dios , nos iremos muy lejos , arrastrandos por el viento , a no volvernos a ver
 ¿ cuándo te vas ? al rato me voy . con tu permiso , me voy por delante . adelántate pues .
-nosotros ( los tarahumares ) somos los sostenes del mundo ; si nos acabáramos , quién sabe qué sucedería...
+nosotros ( los tarahumares ) somos los sostenes del mundo ; si nos acabáramos , quién sabe qué sucedería …
 ella ( la mujer ) es la que afana para darnos de comer , ella hace las tortillas : ¡ ; ella hace el esquite ( para el pinole )
 ¿ por qué esos no llevan sombrero ? ¿ es que siempre andan así , con la cabeza envuelta ? ( viendo fotografías de árabes )
 traje un poco de maíz desgranado ( lit . unos pocos : el tarahumar considera la cantidad de granos ; por eso dice pocos , donde nosotros decimos un poco de )
@@ -987,12 +987,12 @@ quiero ver todas las cosas que veía antes , los montes que se alzan muy alto y 
 dicen que por allí salen de noche unas cosas brillantes , que parecen sacerdotes ; así cuentan
 ¿ de qué es esta agua ? es ( agua cristificada ) ( ! ) ( lo dijo una india de una olla de agua en la que se había sumergido un crucifijo )
 dice que nos darán trabajo por maíz ( dándonos maíz ) ; de aquí a dos semanas ganarán ustedes mucho maíz
-¿ de dónde , pues trajimos nuestra alma ? tenemos alma que es de arriba . ( lit . ¿ de dónde traída tenemos el alma ? ... )
+¿ de dónde , pues trajimos nuestra alma ? tenemos alma que es de arriba . ( lit . ¿ de dónde traída tenemos el alma ? … )
 porque en algunas partes está muy hondo en el río ( la hondonada ) ; y muchos se bañan con mucho miedo
 dicen que allí salen por la noche unas cosas brillantes , como rezadores ( sacerdotes ) eso cuentan
 el garambullo de vainas ; sus semillas son ovaladas y algo puntiagudas ; se hienden ( las vainas ) al secarse
 se cocieron muy bien las tortillas ; por eso se levantaron bien ; por eso se inflaron bien las tortillas
-me voy cuando vaya amaneciendo . ¿ quién va contigo ? quién sabe ... josé o miguel
+me voy cuando vaya amaneciendo . ¿ quién va contigo ? quién sabe … josé o miguel
 les quitamos las raíces a los quelites para cocerlos ; si traen arena , le quiebran a uno los dientes los quelites
 tengo cinco ; quita , quedan tres ; quita dos ; queda uno ; quita uno , no queda nada
 ¿ quién , fuera de el , nos pastores haciendo el día ? ¿ quién , fuera de el , nos pastorea haciendo la noche ?
@@ -1044,7 +1044,7 @@ y sus hijos , cuando crezcan , van a vivir enemistados ; por eso , ojalá se ave
 tenco cinco ; quita dos : quedan tres ; quita dos : queda uno ; quita uno : no queda nada
 y los rarámuri lo dicen también por esto : porque los tarahumares siempre danzan
 el alacrán tiene una cola corva y muy aguda en la punta , y allí pica ; es medio azuloso
-¿ de dónde pues , trajimos nuestra alma ? tenemos un alma que es de arriba ( lit . ¿ tenemos un alma que trajimos de dónde ? ... )
+¿ de dónde pues , trajimos nuestra alma ? tenemos un alma que es de arriba ( lit . ¿ tenemos un alma que trajimos de dónde ? … )
 nosostros hemos sido sembrados ; no hemos brotado por virtud nuestra ( dios nos creó : no tenemos el ser de nosotros mismos ) .
 tengo mucho catarro ; ya me he sonado ( limpiado los mocos ) muchas veces ; desde mañana parece que me va a doler mucho la nariz
 ya está en tallo ahora el zacate amargoso ; algunos ya se marchitaron ; ya soltarán la semilla , pues ya se marchitaron
@@ -1054,21 +1054,21 @@ y los que viven allí ¿ no te robarán alguna vez , si pasan hambre ? no ; son 
 y al zopilote : ve arriba a atajarlo ; esto le dijeron ; y al cuervo : tú vete a atajarlo más arriba
 el iwí se cría haciendo algo así como un papel grande en los madroños ; luego se convierte en mariposa
 ¿ no me conoces ? pero si tú hace tiempo me diste de comer ! ¡ ah ! ¿ eres tú ? yo mismo soy
-te llama el jefe . ¿ para qué ? quién sabe para qué ... ( lit . qué voy a hacer ? quién sabe qué vayas a hacer ...
+te llama el jefe . ¿ para qué ? quién sabe para qué … ( lit . qué voy a hacer ? quién sabe qué vayas a hacer …
 y la zorra se echóa correr muy avergonzada , convertida de nuevo e zorra , ya no era mujer , era zorra ( leyenda )
 ¿ no es trabajoso conducir un camión ? no si uno aprende . pues como hace tiempo yo maejé uno wchochi
 los indios bebieron y cantaron mucho ; y al día siguiente los mató el sol ; por eso se llama nawajírachi
 ¿ este ? cualquiera , con tal que se leña seca , en seguida arde . esta es manzanilla por eso mismo
 tengamos cuidado de todo nuestro mundo ; de verdad somos nosotros los pilares del mundo ( lit . estamos apuntalando este mundo )
 algunos andan robándose las esposas de sus hermanos menores ; y otros andan robándose las esposas de otros
-quién sabe como será... algunos que lo han visto dicen que sí es largo ; yo no lo he visto ;
+quién sabe como será … algunos que lo han visto dicen que sí es largo ; yo no lo he visto ;
 sí había gente río abajo en años pasados , cuadno yo vivía aquí , cuando era zanca pelona ( cuadno andaba en taparrabo )
 pero unos cuantos de nosotros los rarámuri ya no le creemos a lo que dice el hombre ese ( el hechicero )
 si ( una mujer ) es vieja , o engendra ; en el cambio , si ( si un hombre ) es viejo , sí tendrá hijos , uniéndose a una joven
 ¿ no hay aquí algún lugar en que pueda dormir ? allí , al otro lado del arroyo , hay una cueva , ¿ no te acomoda ?
 era muy sacrificado caminar ; una mula se nos escapó desde ro'chibo , y casi llegó hasta el salto
 algunos andan robándose las esposas de sus hermanos menores ; algunos andan robándose las esposas de otros
-¿ cuántos litros quires ? ¿ cuántos le cabrán a mi trapo ( talego ? ) ... si le cabrán dos litros
+¿ cuántos litros quires ? ¿ cuántos le cabrán a mi trapo ( talego ? ) … si le cabrán dos litros
 no es viable ahora ( lit . no anda manifiestamente ) sí era visible antes de que lo mataran
 entonces ( dios ) ) envió el sol que pasara más bajo para que quemara a esos tarahumares perversos
 el okowi dice "we orabo" y también "bo'wá kúmi" , poasado en las ramas ( indicando las palabras que sugiere su canto )
@@ -1097,7 +1097,7 @@ parece que nadie vendrá ; es que no fue el correo ( lit . el que va congragando
 hay que ser machos ; hay que quedarse allí ; ¿ por qué te huíste pues ? hazles frente a los capitanes
 ahora no es tiempo de coger flores ; porque ahora hiela mucho ; aún no llueve ni ha calentado el tiempo
 y t'u , muchacha , no tengas pereza de hacer las ocupaciones de casa , hazle el quehcar a este jovem ( consejos a un matrimonio joven )
-¿ cúantos litros quieres ? cuántos litros le cabrán al trapito ( talenguito ) ... sí le cabrán dos litros
+¿ cúantos litros quieres ? cuántos litros le cabrán al trapito ( talenguito ) … sí le cabrán dos litros
 y los hombres esos que ven esas cosas ( los que adivinan en sueños ) , yo no sé cómo es que saben bien
 te digo esto , porque tú dices que se te hace muy linda mi tierra , como si hubiese allí mucha gente
 seguro que tenías muchas ganas de volver acá , a la tierra de los tarahumares , donde en otro tiempo estuviste
@@ -1165,7 +1165,7 @@ cada año crece mucho el río ( lit pasa grande agua ) ; por eso no vamos a semb
 la pitahaya es alta ; tiene hojas angostas , como el mezquite ; tiene hojas casi como las del huamúchil
 ningún hombre vive por sí mismo ( es increado ) ; ¿ han visto ustedes algún hombre que sea increado ? ninguno
 de este modo pensaban antiguamente los ancianos ; no sé yo de dónde salió esa leyenda
-mira que estoy hablando como si esta fuera mi hija , como si tú también fueses hijo mío ( lit . como teniendo a esta `por hija ... )
+mira que estoy hablando como si esta fuera mi hija , como si tú también fueses hijo mío ( lit . como teniendo a esta `por hija … )
 jorge me dio un empellón ; por poco le doy un golpe en la cabeza a la muchacha , al abrir la puerta ; ella estaba limpiando el piso
 el bagre tiene muchas espinas , de cabeza plana , aplastada , y tiene unas como barbas y unos como cuernos
 por eso , déjame que vaya ; luego vendré para llevar tus órdenes ; mañana vendré corriendo
@@ -1280,7 +1280,7 @@ el domingo , ya caliente el día , salimos para donde le llaman el encinar ; es 
 algunas gentes no lo pensaron bien y por eso se contagiaron ; porque , no sabiendo nada , anduvieron pasando por allí
 allá ( en la gloria ) nos colocará , para que vivamos felices , si le hubiéramos pedido perdón , si le hubiéramos tenido fé
 pues lench no quiere limpiarlo . ¿ pero no lo obligaste a limpiarlo ? ¿ pero cómo iba a hacer lo que limpiara ? ¿ a latigazos ?
-¿ quién pues , es el que siempre desata los costales ? quién sabe ! ... supongo que es el de río abajo que me quiere robar
+¿ quién pues , es el que siempre desata los costales ? quién sabe ! … supongo que es el de río abajo que me quiere robar
 ¿ y tu cobertor ? es que no quiere traerlo la mujer , a la que se lo mandé hacer a chicotazos haré yo que te lo traiga !
 nosotros no somos varones ; uno solo es varón , el que no es mortal ; nosotros , nosotros somos mortales .
 pasarás un mes aquí ( en la cárcel ) si no pagas el precio ; te piden quince . sí acabalaré tanto como eso .
@@ -1355,7 +1355,7 @@ los de más lejos ( oriundos de regiones distantes , son extraños , son apartad
 hacen la curación vertiéndolo en un cajete ; se trata del jugo del maguey , que los rarámuri llaman la penca del maguey .
 poniéndose en la mano un cuero grande ( guante de beisbolista ) , un cuero blando , no duele al coger la pelota , poniéndole lana por dentro
 todos los que quieran casarse con muchachas de sisoguichi , ellos que se queden ; en cuanto a mí , yo cierto que no me quedaré
-ya vas a volver avivir en la morada de los tarahumares... allá donde hay mucho rarámuri que no conocen la enseñanza de jesucristo
+ya vas a volver avivir en la morada de los tarahumares … allá donde hay mucho rarámuri que no conocen la enseñanza de jesucristo
 en medio de un vendaval , como en corriente impetuosa , por poco se hunde ; da muchos tumbos el agua ; se va hundiendo ; peligra la vida
 pronto vuelve loco ( el jíkuri ) al hombre a quien aborrece ; no más lo bebe revuelto con tenguino , en seguida sale corriendo , con gran dolor de cabeza
 el desencantador ( que deshechiza ) , las saca y las echa fuera ( las piedras llamadas sukiki ) , y las entrega al raspador , porque pertenecen al raspador
@@ -1391,14 +1391,14 @@ cuando los arrieros blancos llegan ( al pareje ) en el camino , y viene gran de 
 ¿ por qué pues , se huyeron ? son muy perezosos ; son muy perezosos para leer ( estudiar ) ; ya me cansaron ( unos niños que se huyeron del internado de sikirichi )
 y ( cuando llegamos ) en carichí ya era media noche ; por eso ya no andaba nadie ; un solo hombre estaba cerca de donde está el templo
 ahora te escribo estas palabras que estoy escribiendo ; al menos unas cuantas iba a ponerte , porque me he quedado muy triste
-ya que estuvieron bien apostadas allá arriba para cortarle el paso las aves que vuelan alto , entonces ( dijo ) echen el corazón en el fogón ...
+ya que estuvieron bien apostadas allá arriba para cortarle el paso las aves que vuelan alto , entonces ( dijo ) echen el corazón en el fogón …
 dos costales ( de maíz que me prestaras ) sería bueno ; así , si no cosecho mucho este año , te los devolveré el siguiente .
 en las aguas bailo para ahuyentar el granizo ; más tarde cuando ya madura ( lit . cuando ya amarilleó ) , ahuyentó el hielo , para que no se hiele el maìz
 el cerro grande es el más alto de todos , de su cumbre se divisa para todas partes ; hasta se ve el tren humeando en creel
 íbamos , pues , pardeando ya ; y cuando ya estuvo oscuro , yo fui poniéndome muy alegre , porque caminaba muy a gusto de noche
 en medio de un vendaval , como en corriente impetuosa , por poco se hundían , va dando tumbos el agua , comienzan a hundirse , era cosa de muerte
 inmediatamente nos fuimos , también las chicas ; luego dijo el hombre : ustedes acábense la papilla ( acaben de comer ) , no más los muchachos
-el gato montés se come las gallinas ¿ y qué más come ? quién sabe qué más comerá... tal vez ratones ; no sé muy bien .
+el gato montés se come las gallinas ¿ y qué más come ? quién sabe qué más comerá … tal vez ratones ; no sé muy bien .
 ¿ de quién será esposa la poca madre ( madrastra ) ? la que viene ( se sienta ) encima ( después ) , cuando ha muerto la primera ( esposa ) , si ( el hombre ) se vuelve a casar
 si fuese verdad , dios hubiera hecho morir a toda la gente ; por eso yo no lo creo , porque aún vivimos nosotros los tarahumares .
 un hombre , si le han salido muchos granos , está muy cacarizo , puesto que , habiendo salido el agua de los granos , se queda así agujereado .
@@ -1469,15 +1469,15 @@ anoche se murió uno , un chiquito , el hijo de servando . ¿ pero , qué no bus
 quiere ( un americano botánico ) frijol de muchas clases ; uno se llama pinto ; otro , ojo de cabra ; otro frijol es el mantequilla ; hay también el trepador , ese que sube para arriba enredado en una estaca ; el frijol café es distinto .
 el raspador se lava muy buen la cabeza ; se lava toda la cabeza ; cuando se ha limpiado por entero y ha lavado su ropa , entonces se va muy contento ; no se contagia de nada ; y entonces hace enfermar a los que no han lavado bien su ropa
 los ba'rúrumi viven en los grandes manatiales ; los hay como nosotros , y también como serpientes ; los niños cuando se asustan cerca de los manantiales , dicen las gentes que se van a vivir con ellos ( por eso mueren ) viven aparte los ba'rúrumi serpientes y los ba'rúrumi hombres .
-andan diciendo que me quiten una res ; porque hablan muchísimo ; andaban diciendo que les debía , y luego mandaron a llevarse una res ; hace tiempo me arrearon dos vacas , y ahora vuelven ; todo eso anda diciendo el lorenzo ... ; hazme un escrito para llevárselo ( a la autoridad ) ; luego le entregaré el papel al grande ( al gobernador ) ; entonces se las quitamos , les exigimos .
+andan diciendo que me quiten una res ; porque hablan muchísimo ; andaban diciendo que les debía , y luego mandaron a llevarse una res ; hace tiempo me arrearon dos vacas , y ahora vuelven ; todo eso anda diciendo el lorenzo … ; hazme un escrito para llevárselo ( a la autoridad ) ; luego le entregaré el papel al grande ( al gobernador ) ; entonces se las quitamos , les exigimos .
 así dijo él : "que me llevara dios para descansar a gusto"
-antes... yo les voy a decir a ustedes , niños , así como ustedes están ahora
+antes … yo les voy a decir a ustedes , niños , así como ustedes están ahora
 esa vez en la escuela nomás , si me acuerdo , nomás esa vez , nomás un ratito
 así como piensan que ya va a llegar la lumbre aqui , así como la luz
 y luego el perrito iba muy contento adelante porque ya llevaban el sapito
 y ya al último nosotros las que echamos porras ya apostamos a lo último nosotras
 y ya les enseñamos donde andubo de donde trajo la chiva y enque parte lo dejo
-por eso no deja el aire porque no le dieron bien de comerpor eso ...
+por eso no deja el aire porque no le dieron bien de comerpor eso …
 'si hay que hacerle la lucha a esosi , junten para que lo fertilicen
 antes bailaban muy bien , se juntaban todos y luego venían de otra parte también
 ahí donde está el camino , ahí cuando va ahí subiendo el sol , entonces sembraban
@@ -1492,7 +1492,7 @@ pachókichi , allá para abajo en tatawichi donde se juntan los dos arroyitos
 y entonces de ahí se fue en otra casa donde estaban tomando
 pues entonces eso les pasó a los niños , entraron adentro , eran muchos
 gracias a dios , ya me dijiste muchas palabras'gracias a dios'
-y ustedes cómo iban ? con que sembraban antes ? alcanzaba cuando era ... ?
+y ustedes cómo iban ? con que sembraban antes ? alcanzaba cuando era … ?
 entonces el león le contestó : "sólo ando paseándome"
 qué no está bueno ? de este tanto les voy a decir yo , nosotros así platicamos
 traíamos huarache de tres agujeros , para hacer de correa traíamos tela , amarrados
@@ -1518,22 +1518,22 @@ ya nunca lo vamos a poder hacer derecho ahoraya van más de otro lado las gentes
 no lo hacen bienpues no hacen la fiesta las gentes solas ( si no viene el gobernador )
 estos niños estaban dormidos con el perrito , se querían mucho ellos dos
 lo andaban buscando y el perrito se cayó para abajo y el niño se quedó muy asustado
-no sabía si se mataban , cuando ya veía que se peleaban ...
+no sabía si se mataban , cuando ya veía que se peleaban …
 que traía mucha gente , bastante gente mestiza que andaba con él , dice ella
-entonces ... llévate a la niña para adentro ... ya se está peyendo bien recio se peyó ? sí
+entonces … llévate a la niña para adentro … ya se está peyendo bien recio se peyó ? sí
 dicen que todo va a helar va a elar si no cuidamos bien los pinos
-sembraban en abonado porque ellos tenían muchas vacas y cien chivas ... y cien
+sembraban en abonado porque ellos tenían muchas vacas y cien chivas … y cien
 y ya se estuvieron ahí levantados los dos y luego vieron otro arroyo en otra parte
 y los sapos se quedaron muy tristes todos se subieron arriba del palo
 le decían el richaní una persona de antes , así me decía muy antes
 para que ustedes también después se den cuenta/se acuerden de lo que yo te estoy diciendo
 y ya teniamos mucho miedo nosotras porque otros vivian muy lejos de alli
-pues así como tu sí lo oíste ... yo creo si lo viste cuando hacían eso los gusanos
+pues así como tu sí lo oíste … yo creo si lo viste cuando hacían eso los gusanos
 porque dicen que vivían poquitos antes , por eso fue allá por aquel lado de la
 que si tenían gallina o perros podían oir el canto del gallo o el ladrido del perro
 por eso yo así estoy diciéndote para que sepan , para que en poco tiempo sepan
 le dicen sirínara a ese que hace con el ocote pasándolo , al que hace el ukuwéa
-y del hielo ? cuando va a helar ? ustedes qué ... ? también ven algo ?
+y del hielo ? cuando va a helar ? ustedes qué … ? también ven algo ?
 y entonces dicen que ya dijo la esposa del señor : "mejor ya vámonos para otra parte"
 "para que no te sientas enojado , estás muy enojado" , así decía mi mamá antes
 qué tiene que sean de lejos , se puede decir igual , aunque vivan lejos ellos
@@ -1551,7 +1551,7 @@ dicen que hay que apurarnos de darle comida , porque dicen que quiere comer páj
 se fue muy triste , "no sale en ninguna parte" , pensó el niño
 nomás ahí en las tierras de barasíchinomás ahí en las tierras de barasíchi se daban largas las mazorcas
 'ah , van a salir los otros ? 'sí , dicen que van a salir de esos otros ( los que murieon antes ) , así dicen
-así te digo a ti , tu el que vives allá en la piedra , tus hijos ...
+así te digo a ti , tu el que vives allá en la piedra , tus hijos …
 así para que anden muy a gusto todos pusieron como tesgüino
 esa vez sí me acuerdo , esa vez dicen que apenas estaba terminando la escuela
 y entonces dicen que el tarahumar es muy pobre , por eso no tenemos dinero nosotros
@@ -1566,7 +1566,7 @@ como sea , agujerados antes , porque los de antes no tenpian hachas muy filosas
 también tus hijos también le dicen igual , también te van a decir "rihchí"
 entonces ya se arrancó y ahí ya no vió el oso a las gentes que vivían ahí
 haciendo bien con un sutubúri ? sí , bien hecho el rutubúri , con agua del aguaje
-nomás ... más antes nomás con la piedra se hacía "punta" ; ahora con fierro , tampoco había fierro antes
+nomás … más antes nomás con la piedra se hacía "punta" ; ahora con fierro , tampoco había fierro antes
 unos ( les dieron ) y a otros los llevaron a creel , allá fueron [ ( estuvieron ? ) ] se habrán curado
 este ejido era de norogachi cuando todavía no se medía este ejido
 yo así pienso , o a lo mejor ya no quiere correr el corredor o la corredora
@@ -1574,15 +1574,15 @@ así como mis hijos a mi hermano mayor le van a decir "kumúchi" son "kumúchi" 
 entonces de repente salió la rana y el niño se asustó
 y entonces desde ese día ya empiezan , ya cuando se cierra el "pasko"
 y entonces el niño ya salió a la orilla y el perrito siguió en el agua
-entonces tenía muchas vacas/ganado mi abuelo antes , cuando andaba junto ...
+entonces tenía muchas vacas/ganado mi abuelo antes , cuando andaba junto …
 ahí donde están los pinos , ahí donde están ( se ven ) los pinos , ahí iba cuando sembraban
-en una cueva ... que era muy larga la cueva , sí la conozco ahí anduve
+en una cueva … que era muy larga la cueva , sí la conozco ahí anduve
 así vi que lo hacían en rayebó , pero aqui no lo vi que lo hacían asíah
 entonces el niño y el perrito se subieron arriba del palo seco a jugar
 cuando ya se pasaba una semana se venían a ver a los cerros pero ya no había nada
 y entonces pensábamos a lo mejor nos vamos a morir porque antes no había medicina
 y también debemos de darles consejos a nuestros hijos no mas que unos
-cuando se cayó tres veces y cuando se endureció , y entnces ya no ...
+cuando se cayó tres veces y cuando se endureció , y entnces ya no …
 y entonces ya ellas mismas las corredoras dicen cuántas vueltas van a dar , cuántas veces van a pasar
 en veces si la alcanza si le dan muchas fuerzas las que le ayudan , las que apostaron
 y poco después fui a conocer la cueva y sí es cierto que hay muchos huesos
@@ -1607,7 +1607,7 @@ en la laja también se escuchaba muy bien y entre más , más acá se oía el ru
 y luego decían que los fariseos tenían que comer primero la comida y nosotros después
 entonces los que fueron más antes te dijeron , tus papás ? si , ellos me dijeron
 y entonces las niñas se quedaron solas , las dos niñas y un niño , el más chiquito
-sería mucho antes ... saben los de antes ...
+sería mucho antes … saben los de antes …
 "ya cuando vayas allá arriba en el cerro" "me gritas de allá arriba ( cuando estés allá arriba ) "
 también a nosotros nos agarró esa enfermedad , nomás qure nosotros pronto
 y luego les dieron mas cosas el comisariado porque el comisariado es el que
@@ -1627,27 +1627,27 @@ entonces la rana estaba mirando al niño que se subió arriba del árbol
 ya tiene como catorce años cuando falleció andrés , él platicaba eso
 ah , si dicen que lo enredaban con palma , no ? así como lo cuelgan como collar en la palma ( ahi en la cruz )
 se levantaron asustados , pensaron "qué andará ? " y ya se arrancó el sapo y ya no estaba
-porque sabían que había muchos osos ahí donde ... ahí donde había ( "era" ) muchas cuevas
-y entonces ahí... andaba por la cabecera queriéndolo agarrar , llevar el alma del señor
+porque sabían que había muchos osos ahí donde … ahí donde había ( "era" ) muchas cuevas
+y entonces ahí … andaba por la cabecera queriéndolo agarrar , llevar el alma del señor
 y dicen que ya habían llegado muchos chabochis que partían las tablas y luego compraron los pinos
-así como yo vi eso cuando lo hacían ... allá en rayebóasí es , así hacían
+así como yo vi eso cuando lo hacían … allá en rayebóasí es , así hacían
 ahí por debajo de un tronco grande , ahí por debajo , estaban dos sapos
 porqué ustedes no me hicieron eso del ukuwéruwa ? " a veces nos dice enojados
 y luego vino y dijo : "porqué están encerrados tan tarde ustedes" , así dijo
-debe ser sin tomar ... si quieren hacerlo bienpues bien ... deben amanecer bailando
+debe ser sin tomar … si quieren hacerlo bienpues bien … deben amanecer bailando
 y ya de ahí ella no sabía nada pero sí veía que se agarraban a pelear cuando se juntaban
 y nomás la osa hembra estaba ahí por adentro , dicen que se había muerto la osa hembra
 para que no se acaben si no le damos consejos a los hijos así nos va a pasar después
 y entonces el niño donde dejo la ardilla dejo la ardilla y se fue mas arriba
 y ya entonces lo enfrías y ya lo echas en el tanque ( acostado ) , que esté medio tibio ( ni muy caliente ni muy frio )
-ah , y entonces lo tiran para arriba ... ahí en la cruz , donde bailan , ahi lo tira para arriba temprano en la mañana
+ah , y entonces lo tiran para arriba … ahí en la cruz , donde bailan , ahi lo tira para arriba temprano en la mañana
 también muy grande , así también como tu ? ese que se llamaba ronial también era muy buen cantador ( cantaba muy recio )
 les decían los hermanos protestantes , fueron los que andaban por las casas dando mejorales
 es que nomás los borrachos los que los pusimos eso de darles maizah , ellos andaban borrachos ( pusieron a los borrachos ) ?
 y entonces dijo el papá : "déjame ir a juntar gente" "los que viven en otras casas"
 y entonces allí estuvo hablándole el niño , pensó que allí adentro estaba el sapo
 entonces el corcobé ( okowí ) también estaba más arriba viendo al niño que estaba en la piedra
-ya con las faldas trozadas , ya casi no ... ya casi sin nadas de faldas , así llegó
+ya con las faldas trozadas , ya casi no … ya casi sin nadas de faldas , así llegó
 así llamaban la lluvia antesnomás así era , así la llamábamos ,
 así cierran en otras partes , el día seis , cierran , así como en norogachi
 decimos nosotras las dos , las que vamos a poner corredores , primero platicamos bien y luego ya nosotras
@@ -1664,7 +1664,7 @@ y luego se van a cuidar las chivas o a cuidar las vacas por allí cuando ya est�
 es bueno llevarse la pura comida y se van , sí les pusieron poquito maíz , llévense poquita comida
 dijo : "yo estoy sufriendo mucho ahí" ba" "donde me llevó el oso"
 y tambien vamos a matar una gallina y luego hacerle unas tortillas para que le demos
-se van sin tristeza y se llevan toda la comida , así como les pusieron muy bien la comida ...
+se van sin tristeza y se llevan toda la comida , así como les pusieron muy bien la comida …
 entonces el niño no vio al perrito que llegó que estaba debajo de la piedra , llegó muy cabizbajo
 y entonces el niño le dijo al perrito : "vente despacito sin hacer ruido , qué hay aquí ? "
 nosotros antes crecimos sufriendo mucho , nosotros andábamos descalzos allá abajo en la escuela
@@ -1672,12 +1672,12 @@ no mas que no vivimos muy juntos por eso no podemos dar consejo nosotros
 y la corredora también le dan lo que le decimos nosotros "limosna" porque hizo la fuerza
 pues sí me sentía como que estaba muy enojado , pero no se porqué tenía mucho coraje yo
 así que se van a gusto ( fuertes ) llevándose la comida , porque ya falta poco para amanecer
-entonces no había de esas que se regaban ? o era que llovía mucho ? no , no había nada ... llovía mucho
+entonces no había de esas que se regaban ? o era que llovía mucho ? no , no había nada … llovía mucho
 también nos platica del richaní y del gigante , todo me decía , platica primero del richaní
 le da a uno vergüenza con tanta gente , como que se quería enojar así en ratos , deja de andar haciendo eso
-para que lleguen bien , así como se levantaron ayer desde ahí , como quiera así ...
+para que lleguen bien , así como se levantaron ayer desde ahí , como quiera así …
 "estoy sufriendo mucho ahí" "todos los días porque me da de comer crudo"
-dices que le hacen mucho así , verdad ? ... así como una cruztambién le meneas mucho ... sí , así le hacen
+dices que le hacen mucho así , verdad ? … así como una cruztambién le meneas mucho … sí , así le hacen
 hoy en la madrugada ( la ) pasaron bien sin decir nada , ayer en la madrugada sí viniste enojado
 y entonces el perro estaba viendo adentro de la botella y no pudo sacar la cabeza de la botella
 entonces el niño estaba hablando adentro en el agujero , quien sabe que estaría
@@ -1686,33 +1686,33 @@ pues ella dice que era pancho villa porque así oyó decir que sabía que pasaba
 y si comen una chiva también igual una nocheasí , también igual
 y ya cuando se fue que dijeron los que vivían ahí , "ya se va a morir , yo creo"
 decía el kanoko : "tan bueno que estaba el frijol pero ya que me llené me siento muy raro" decía
-necesitan los que casi no tomen ... asi necesitansi , necesitan tomar hasta que terminen de fertilizar este maiz
+necesitan los que casi no tomen … asi necesitansi , necesitan tomar hasta que terminen de fertilizar este maiz
 ya casi nadie se oye que se enferme ahora de esa enfermedad y ahora ya hay doctor y ya hay medicina también
 ahí se estaban ( vivían ) ? ah , ahí nomás bailaban ? ahi donde vivía crispín , ahí abajo bailaban siempre
-y dicen que unos vivían en ... en un cerrito ( ranchito ) que le decían "yepó""
+y dicen que unos vivían en … en un cerrito ( ranchito ) que le decían "yepó""
 ellos sí alcanzaron a ver cuando guardaban maíz en las trojas de las cuevas , ellos ? ellos sí lo vieron
 antes no había hambre porque los de antes sí tenían mucho ganado , muchas crías de ganado
 entonces ellos se levantaron y lo anduvieron buscando , por adentro de la bota , pensando que ahí se habría metido
 despues se enfermaban los niños y se morían como no había nadie ni quien les dieran tantita medicina
 y en veces los padres tienen chivas , los mandan en veces también las mandan a las niñas a cuidar las chivas
 antes era mas valiosa esta , la plática , nomás que ellos se iban a otro pueblo lejos
-si , fui ( terminé muchos cantos ) muchas veces ... antes si cantaba muy bien , ahora no puedo subir , no siento fuerzas para gritar recio
+si , fui ( terminé muchos cantos ) muchas veces … antes si cantaba muy bien , ahora no puedo subir , no siento fuerzas para gritar recio
 "yo también pienso que va a venir hoy en la noche" "a buscarte ese oso" , así le dijo el papá
-los de antes aguantaban sin tomar toda la noche ... se amanecíannosotros si aguantábamos toda la noche
+los de antes aguantaban sin tomar toda la noche … se amanecíannosotros si aguantábamos toda la noche
 si lo invitaban a quitar piedras grandes , lo invitaban y venía a ayudarles , decpian los de antes
 yo creo allá muy alto en la piedra hay unas trincheras ( bien acomodado ) allá arriba , como si hubiera puesto casas ahí
-bueno ... váyanse agusto , llévense la comida , lo bueno es que lo pusieron de a poquito , más o menos ...
+bueno … váyanse agusto , llévense la comida , lo bueno es que lo pusieron de a poquito , más o menos …
 entonces ya se cierra el "pasko" ( la pascua ) , cuando va el seis ( de enero ) , el "pasko"
 entonces de ahí ya la hacemos , ya entre las dos decimosnosotras las chokéami que día van a correr las mujeres
 también mucho ? juntándolos ? también mucho , nomás que antes lo mataban juntándolos ( muchas gentes juntando gallinas para hacer la fiesta )
 y se subieron despacito arriba de un troncón el niño y el perrito , se subieron sin hacer ruido ahí para que no los sintieran
-asi como el ? tendrías como diez años ... este niño tiene diez añostenía diez años
+asi como el ? tendrías como diez años … este niño tiene diez añostenía diez años
 pues ahora ya no he ido , peor me dicen que está igual la cueva y es bien ancha esa cueva
-... vivieron ... los que vivieron desde el principio , como nuestros abuelitos , nuestros bisabuelos , los que vivieron primero
+… vivieron … los que vivieron desde el principio , como nuestros abuelitos , nuestros bisabuelos , los que vivieron primero
 y entonces el niño se cayó para abajo , lo asustaron porque salió un tecolote de allí
 cuántos años hará , pienso que será hace como veintiocho años o veintrcuatro , yo pienso que tantos años así hace
-si llegara el gobernador a dar discurso ( nawésari ) donde están bailando ... está muy bien llegando ahi donde están bailando
-así les decía ... antes vivían de otros ( gentes ) , hace poco que crecimos nosotros los rarámuri , la gente como nosotros
+si llegara el gobernador a dar discurso ( nawésari ) donde están bailando … está muy bien llegando ahi donde están bailando
+así les decía … antes vivían de otros ( gentes ) , hace poco que crecimos nosotros los rarámuri , la gente como nosotros
 váyanse a sguto , no vayan a andar llevándose a estas mujeres , sus esposas , no vino la de allá arriba
 el perro no pensó que eran abejas bravas y que pensó que la rana ahí estaba abajo
 a fuerzas tenía que comer porque tenía hambre , le daba así crudo , porque él comía crudo
@@ -1720,7 +1720,7 @@ porque vivía muy poquita gente , vivían como veinte o treinta , la primera vez
 entonces , nosotros las chokéami unas sí , se van corriendo , o unas se van las dos a ayudar también
 y luego ellos fueron los que se los acabaron los pinos los comisariados y los chabochis ricos
 así va a ser , y tú , como el papá , también , para que así iguales , así como llegaron todos , para que bien
-porque dicen que si se enoja en veces el aire ... así decían unos antessi , dicen que si , que dijo nos iba a volar
+porque dicen que si se enoja en veces el aire … así decían unos antessi , dicen que si , que dijo nos iba a volar
 y unos sí quieren/creen ( que les hagan ukuwéruwa ) cuando ya crecen , y nosotros todavía a uno no le hacemos ukuwé al niño , uno
 pues yo como me di cuenta que cortaban así como los caballos cuando llegaban muchas plagas , porque así me platicaronasí era
 por eso se tiene que hablar muy bien , así como nosotras las que vamos a poner a correr tenemos que decirles muy bien a las que van a correr ahí
@@ -1731,9 +1731,9 @@ y piensan que cuando los encontraban ( si los encontraban ) los mataban , se mor
 por eso debemos de pensar bien y darles consejos a los hijos para que no se acaben los pinos después
 pues en donde quiera hay muchos huesos de muertos , dicen que así los guardaban en cuevas , antes los ponían en cuevas nada más
 y luego lo llevó acostado arriba en los cuernos al niño el niño iba muy asustado y el perrito iba ayudándole ladrando
-y don ronda se llamaba , allá abajo en el arroyo donde ... donde está ( la casa de ) lucinda , abajo , donde están los manzanos
+y don ronda se llamaba , allá abajo en el arroyo donde … donde está ( la casa de ) lucinda , abajo , donde están los manzanos
 dicen : "ve allá arriba al cerro a apuntarle la colaah , así dicen , quien sabe si lo correrán así , no es cierto , yo creo
-ahorita ya te preguntamos de como guardaban el maízsí ... ah sí ...
+ahorita ya te preguntamos de como guardaban el maízsí … ah sí …
 entonces vieron por abajo del palo seco que estaban dos ranas y estaban mirándolas
 para hablarles nosotros , porque andan molestando mucho , piden muy temprano , uno tiene trabajo , andan molestando mucho las gentes
 y entonces lo levantó el niño , como que se desmayó el perrito y luego yo creo que dio bien fuerte el cabezazo asi como traía puesta la botella en la cabeza cuando cayó
@@ -1741,17 +1741,17 @@ primero le tiene que dar comida para ponerla a correr o el corredor también en 
 se emborracharon en la madrugada ( se amanecieron ) , desde ayer era para poner bien la comida , nomás que nosotros tampoco tuvimos tiempo
 entonces dijo : "voy a mirar hacia atrás" y vió que las ranitas estaban todas arriba donde ellos estuvieron jugando
 nomás los borrachos , porque no deja ( de tomar ) mi hermano mayor , el de allá arribaa él también , y quien otro ?
-nosotros poníamos en enjarrado para comer allá abajo ... allá en anáuchi hay muchos relices , allá crecí yo
-y entonces de allí entonces ya ... ya cuando se volvió tecolote ya así como le anda haciendo ( cantando ) por aqui así
+nosotros poníamos en enjarrado para comer allá abajo … allá en anáuchi hay muchos relices , allá crecí yo
+y entonces de allí entonces ya … ya cuando se volvió tecolote ya así como le anda haciendo ( cantando ) por aqui así
 entonces corrieron , se arrancaron los dos y el perrito también , el niño corrió también porque se asustó porque salió la rana
 se fueron para allá y entonces vió algo que estaba arriba colgado como una bola y lo quería alcanzar a fuerzas pensó que era comida
 y entonces el niño tampoco vio a un venado que estaba junto a la piedra , estaban los cuernos salidos ahi en la piedra
 todas las ranitas estaban formadas y mirando al niño que iba saliendo del agua y en eso vió que estaba otra rana mirándolo también por donde el iba saliendo
 se comía a los niños y que también creían que el richaní también hacía lo mismo , que porque el kanoko sí lo hacía
 nosotros mañana por ahí a mediodía les vamos a acabar ( ayudar a acabar la comida ) porque todavía no tenemos tiempo , nosotros necesitamos trabajo ahora nosotros
-sembraba en un pedacito y levantaba mucho ? ... cuando está nomás sembrando en un pedacito de tierra se daba mucho ... nomás barbechándole por primera vez ( barbecho de agua ) se daba mucho antes
+sembraba en un pedacito y levantaba mucho ? … cuando está nomás sembrando en un pedacito de tierra se daba mucho … nomás barbechándole por primera vez ( barbecho de agua ) se daba mucho antes
 y entonces las otras apuestan muchas cosas muchas cosas , apuestan muchas cosas faldas , rebozos , telas , fajas , y collares blusas , paños y muchas cosas apuestan
-ahi fue donde vi que hacían la fiesta muy bien , que la hacían muy bien , bailaban muy bien para tomar ... cuando empezabancuando le daban de comer ... ah , así es ...
+ahi fue donde vi que hacían la fiesta muy bien , que la hacían muy bien , bailaban muy bien para tomar … cuando empezabancuando le daban de comer … ah , así es …
 y entonces ya voy yo con la que hace chokiráma conmigo a decirle que ella no le quiere entrar , que le tiene miedo , dice que piensa que es muy ligera ( la otra corredora ) to go tell her that she doesnt want to take it on , that shes affraid of her , she says she thinks ( the other racer ) is very light
 fragante
 hoy temprano en la madrugada
@@ -2508,3 +2508,797 @@ hace un mes llovió mucho todos los días , por eso las matas de maíz se pusier
 estos dos mecates no son muy buenos porque están cortos ; vamos a amarrarlos para hacer uno largo
 hace tiempo se secó allí donde salió agua ; pero ya sale otra vez porque llueve bastante ahora
 algunos tarahumaras creen que los espíritus de los que vivieron hace mucho todavía andan aquí , por eso , cuando ellos están muy asustados en la noche , creen que los espíritus de los antepasados andan por ahí
+entonces jesús también lloró .
+nunca dejen de orar ,
+"tráiganmelos , " dijo jesús .
+y comenzó a enseñarles , diciendo :
+estén siempre llenos de alegría ,
+envié a tíquico a éfeso .
+y manténganse apartados de todo tipo de mal .
+finalmente ella también murió .
+salúdense unos a otros con amor cristiano .
+al final , la mujer también murió .
+no saben cómo vivir en paz .
+entonces se fueron todos a sus casas ,
+pero ellos no pudieron dar respuesta .
+todo lo que hagan , háganlo con amor .
+¡ todo el que tenga oídos , escuche !
+si tienen oídos para oír , oigan lo que les digo .
+entonces jesús gimió fuertemente , y murió .
+entonces pablo se fue .
+"crean en dios , " respondió jesús .
+" ¡ no tengan miedo ! " les dijo . "soy yo . "
+si alguno tiene oídos , ¡ oiga !
+¡ todo el que tenga oídos , oiga !
+muestren bondad con los que dudan .
+y están prestos para causar dolor y muerte .
+pero jesús fue al monte de los olivos .
+sobre el pecado , porque no creen en mí .
+pero aun así sus testimonios no concordaban .
+nada es imposible para dios . "
+había aproximadamente doce de ellos en total .
+danos cada día el alimento que necesitamos .
+entonces pedro salió y lloró amargamente .
+la cual has preparado para todos .
+si tienen oídos para oír , oigan lo que les digo . "
+todos comieron hasta que quedaron saciados .
+nadie entiende , nadie busca a dios .
+jesús les habló usando más relatos ilustrados .
+pero dios lo levantó de los muertos ,
+entonces jesús les contó este relato a manera de ilustración :
+mi ser interior se deleita en la ley de dios ,
+porque he visto con mis propios ojos tu salvación ,
+¿ acaso no lo hice yo todo ? ’
+y después de esto , ninguno se atrevió a hacerle más preguntas .
+hermanos y hermanas , no dejen de hacer el bien .
+yo soy el pan de vida .
+en el principio , jesús —quien era la palabra— estaba con dios .
+" ¡ crucifícalo ! " gritaron en respuesta .
+por favor , danos hoy el alimento que necesitamos .
+a lo lejos , había un gran hato de cerdos comiendo .
+( esto ocurrió antes de que metieran a juan en la cárcel ) .
+hermanos y hermanas , oren por nosotros .
+y los gentiles pondrán su confianza en él . "
+entonces pilato llevó a jesús y mandó que lo azotaran .
+y allí siguieron compartiendo la buena noticia .
+" ¿ cómo es posible que puedas ver ? " le preguntaron .
+¡ sálvate a ti mismo y baja de la cruz ! "
+y era el día de la preparación y el sábado comenzaría pronto .
+debemos ser responsables de nosotros mismos .
+¡ benditos son los que no me desprecian ! "
+luego el segundo
+"escuchen , " les dijo él . "un sembrador salió a sembrar .
+dios envió a un hombre llamado juan .
+ellos hablaban sobre todo lo que había sucedido .
+así que anímense los unos a los otros con estas palabras .
+sus bocas están llenas de amargura y maldiciones ,
+entonces se sentaron y se quedaron allí vigilándolo .
+pero él caminó en medio de ellos y siguió su camino .
+y todos se sintieron animados y comieron también .
+¡ acuérdense de la esposa de lot !
+no les importa en absoluto respetar a dios . "
+así que no participen con ellos en esto .
+a él sea la gloria por siempre y para siempre . amén .
+"iré y lo sanaré , " respondió jesús .
+pero ellos no entendieron lo que él quiso decir con eso .
+¿ o si le pide un huevo , le dará un escorpión ?
+jesús lo envió de regreso con una advertencia muy importante :
+jesús le dijo : "tu hermano se levantará de nuevo . "
+no menosprecien la profecía ,
+así que lo mandaré a azotar y luego lo dejaré en libertad . "
+cuando pilato escuchó esto , tuvo más temor que nunca antes
+un gran rebaño de cerdos se alimentaba en la ladera que estaba cerca .
+entonces ellas se acordaron de lo que él había dicho .
+la gente que vivía en la ciudad estaba feliz en gran manera .
+saluden a todos los creyentes de allí con afecto .
+pero todo el que ama a dios es conocido por él …
+"ve y llama a tu esposo , y regresa aquí , " le dijo jesús .
+entonces ellos lo agarraron y lo arrestaron .
+avancemos en la medida que dios nos lo permite .
+¡ levántense ! ¡ vamos ! miren , aquí viene el que me entrega . "
+él ilustraba sus enseñanzas por medio de relatos .
+‘acabo de casarme , así que no puedo ir . ’
+si ustedes me aman , guardarán mis mandamientos .
+"maestro , ¿ cuál es el mandamiento más importante de la ley ? "
+"porque muchos son invitados , pero pocos son escogidos . "
+por favor , procura venir a visitarme tan pronto como puedas .
+esta es mi respuesta a los que me cuestionan sobre esto :
+"había un hombre que tenía dos hijos , " explicó jesús .
+" ¡ mi señor y mi dios ! " respondió tomás .
+y él lo tomó y lo comió en frente de ellos .
+jesús respondió : "yo soy—el que habla contigo . "
+"el sembrador siembra la palabra .
+jesús dijo a la multitud que se sentara en el suelo .
+yo y el padre somos uno . "
+así como ustedes se alegran en gran manera conmigo .
+¿ o si le pidiera un pez , le daría una serpiente ?
+jesús les advirtió acerca de no contarle a nadie sobre él .
+hagan todo sin quejarse o discutir
+así que jesús les dijo claramente : "lázaro está muerto .
+toda la ciudad se reunió afuera .
+pero ni un solo cabello de sus cabezas se perderá .
+ustedes han estado conmigo durante mis pruebas .
+pero el templo del cual hablaba jesús era su cuerpo .
+sean compasivos , como su padre lo es .
+yo , pablo , escribo este saludo con mi propia mano .
+" ¿ aún no entienden ? " les preguntó .
+cualquiera que me odia , odia también a mi padre .
+eran las nueve de la mañana cuando lo crucificaron .
+y vociferaban muchos otros insultos contra él .
+cuando pienso en ustedes doy muchas gracias a mi dios ,
+después de cruzar el lago , llegaron a genesaret .
+¡ entonces , como yo les digo la verdad , ustedes no me creen !
+¡ levántense , vámonos ! miren , acaba de llegar el que me entrega . "
+el que no está contra nosotros , está a favor de nosotros .
+" ¿ cómo es esto posible ? " preguntó nicodemo .
+nosotros amamos porque él nos amó primero .
+cuando los sabios vieron la estrella , no pudieron contener la felicidad .
+así que les ruego que imiten lo que yo hago .
+yo les daré la estrella de la mañana .
+que la gracia de nuestro señor jesucristo esté con ustedes .
+" ¿ entonces qué debemos hacer ? " le preguntó la multitud .
+si permanecen firmes , ganarán sus vidas .
+los discípulos lo hicieron y todos se sentaron .
+los discípulos fueron e hicieron lo que jesús les había dicho .
+lo agarraron , lo sacaron de la viña y lo mataron .
+pero jesús no dio más respuestas , para sorpresa de pilato .
+pilato respondió : "lo que escribí , ya está escrito . "
+¡ todo lo puedo en cristo , porque él me fortalece !
+él nunca pecó , ni mintió ;
+cuando recibieron su pago , se quejaron del propietario .
+" ¿ y ustedes ? " preguntó él . " ¿ quién dicen ustedes que soy yo ? "
+demostrando lo que el señor realmente desea .
+algunos querían arrestarlo , pero nadie puso una sola mano sobre él .
+" ¡ levántate , toma tu camilla y comienza a caminar ! " le dijo jesús .
+" ¿ qué quieren que haga por ustedes ? " respondió jesús .
+entonces se arrodilló otra vez y siguió escribiendo en la tierra .
+"dejen de murmurar unos con otros , " dijo jesús .
+ellos le preguntaron : " ¿ dónde quieres que la preparemos ? "
+" ¿ están realmente convencidos ahora ? " preguntó jesús .
+y en la noche jesús fue allí con los doce discípulos .
+¿ acaso no tienen ojos para ver y oídos para oír ?
+comenzó a soplar un fuerte viento y el mar se enfureció .
+cuando lo encontraron , le dijeron : "todos te están buscando . "
+algunos de ellos se levantaron a decir cosas falsas sobre jesús .
+jesús llamó a un niño pequeño . puso al niño de pie frente a ellos .
+"no , " dijo isabel . "será llamado juan . "
+una vez más los dejó allí , y oraba , pidiendo lo mismo otra vez .
+mis queridos amigos , no se dejen engañar .
+" ¡ señor , por favor danos de ese pan todo el tiempo ! " dijeron .
+por supuesto , ahora que les he dicho , están acongojados .
+¡ que siempre permanezca el amor que tienen unos por otros como hermanos y hermanas !
+el que dios levantó de los muertos no sufrió descomposición .
+el que entra por la puerta es el pastor de las ovejas .
+era viernes , el día antes del sábado . cuando llegó la noche ,
+"no juzguen a otros , para que ustedes no sean juzgados .
+todos los creyentes aquí les envían su saludo .
+pero jesús a menudo solía retirarse a lugares tranquilos para orar .
+jesús entró a jericó y caminó por la ciudad .
+"miren cuánto lo amaba , " dijeron los judíos .
+en esa época , estaba preso un hombre llamado barrabás .
+y cuando terminó de hablar , despidió a la multitud .
+los que pasaban por ahí le gritaban insultos , sacudiendo sus cabezas ,
+y alababan a dios por causa de mí .
+ustedes , hombres casados , amen a sus esposas y no las traten mal .
+aunque jesús amaba a marta , maría y lázaro ,
+entonces jesús se fue de allí y entró a la sinagoga de ellos .
+entretanto que pongo a tus enemigos por estrado de tus pies . " ’
+todo el que ha muerto , ha sido liberado del pecado .
+y mandó a matar a espada a santiago , el hermano de juan .
+no les hemos negado nuestro amor , pero ustedes sí lo han hecho .
+este es mi mandato para ustedes : ámense los unos a los otros .
+¡ sí , padre , te complaciste en hacerlo así !
+ustedes son testigos de todo esto .
+y habiendo dicho esto , les mostró sus manos y pies .
+podían usar sandalias , pero no debían llevar ropa adicional .
+que nadie separe lo que dios ha unido . "
+tan pronto escuchó esto , maría se levantó y fue a verlo .
+cuán triste estoy , y el dolor infinito que tengo en mi corazón
+muchos de los que estaban allí pusieron su confianza en jesús .
+todos comieron de la misma comida espiritual
+el padre ama al hijo y ha puesto todo en sus manos .
+ustedes son mis amigos si hacen lo que yo les digo .
+¡ tengan cuidado ! yo les he dicho todo antes de que suceda . "
+simón y los otros discípulos fueron a buscarlo .
+entonces él puso sus manos sobre ellos para bendecirlos y luego se fue .
+entonces jesús les dio instrucciones estrictas de no contarle a nadie sobre ello .
+si este hombre no viniera de dios , no podría hacer nada . "
+y cuando la encuentra , la carga con alegría sobre sus hombros .
+y pilato dio la sentencia que ellos exigían .
+ustedes conocen el camino hacia donde yo voy . "
+pues sus discípulos habían ido a comprar comida a la ciudad .
+porque "nuestro dios es fuego consumidor . "
+ellos se sentaron en grupos de cien y de cincuenta .
+después de haber cantado un salmo , se fueron hacia el monte de los olivos .
+‘mantengan lo que tienen hasta que yo venga . ’
+y así , de alguna manera , seré parte de la resurrección de los muertos !
+" ¿ sobre qué están discutiendo ustedes con ellos ? " les preguntó jesús .
+entonces una viuda pobre vino y echó solo dos monedas pequeñas .
+ellos no dicen mentiras y en ellos no hay defecto .
+" ¿ vas a matarme como mataste ayer al egipcio ? "
+y aunque aseguraban ser sabios , se volvieron necios .
+entonces leví se levantó , dejó todo , y siguió a jesús .
+entonces los discípulos regresaron al lugar donde se estaban quedando .
+después de decir esto , se quedó en galilea .
+jesús y sus discípulos también habían sido invitados a la boda .
+cuando llegó la noche , jesús y sus discípulos se marcharon de la ciudad .
+ninguno de nosotros vive para sí mismo , o muere para sí mismo .
+pero jesús se dio cuenta de su trampa , y les dijo :
+el resto tomó a los siervos del rey , los maltrataron , y los mataron .
+cuando levantaron la vista , no vieron a nadie más allí , excepto a jesús .
+y cuando entraron a la barca , el viento dejó de soplar .
+la actitud que deberían tener es la misma de cristo jesús .
+cualquier cosa que ustedes pidan en mi nombre , yo la haré .
+todos ser humano verá la salvación de dios . ’ "
+que el dios de gracia esté con todos ustedes . amén .
+entonces la gente se fue de la ciudad para verlo .
+ahora mira , tu casa ha sido abandonada , y está completamente vacía .
+además escribió una carta que decía así :
+lo ataron , se lo llevaron y se lo enviaron a pilato , el gobernador .
+entonces ellos dejaron inmediatamente a un lado sus redes y lo siguieron .
+y se quedaron allí con los creyentes por mucho tiempo .
+la vida eterna . ¡ eso es lo que nos ha prometido !
+dios se agradó en que toda su naturaleza habitara en cristo ,
+cuatro hombres habían traído a un hombre que estaba paralítico ,
+y ellos le dieron un pescado cocido ,
+una casa dividida está destinada a la destrucción .
+" ‘pero señor , ya él tiene diez veces más , ’ respondieron ellos .
+jesús les dijo : "traigan algunos de los peces de los que acaban de atrapar . "
+un total de cinco mil hombres además de sus familias , comieron de esa comida .
+entonces jesús le dijo a la mujer : "tus pecados han sido perdonados . "
+justo después de esto , el espíritu lo envió al desierto ,
+no se preocupen por lo que van a comer o beber , no se preocupen por ello .
+aún así , hicieron bien en compartir conmigo durante mis tribulaciones .
+no intento asustarlos con mis cartas .
+ellos no entendían que él estaba hablando del padre . así que jesús les explicó :
+jesús ordenó a todos que se sentaran en grupos sobre la hierba verde .
+¡ pero eso no fue lo que ustedes aprendieron acerca de cristo !
+" ¿ quién es mi madre ? ¿ quiénes son mis hermanos ? " respondió él .
+porque sus mentes van errantes , y son inestables en todo lo que hacen .
+por eso dios consideró justo a abraham .
+y sin embargo , ustedes no quieren venir a mí para que tengan vida .
+en su camino , tenía que pasar por samaria .
+estos son los doce que él escogió : simón ( a quien llamó pedro ) ,
+jesús comenzó a decirles : "no dejen que nadie los engañe .
+¿ por qué no piensan por ustedes mismo y juzgan lo que es recto ?
+solo asegúrense de que todo sea hecho en orden y de manera apropiada .
+tal como nos dice el espíritu santo , por haber dicho :
+los sacerdotes y los levitas enviados por los fariseos
+porque el enojo humano no refleja el verdadero carácter de dios .
+nunca quise la plata , ni el oro , ni la ropa de nadie .
+‘míralo : comenzó a construir pero no pudo terminarla . ’
+entonces llegaron al otro lado del lago , a la región de los gerasenes .
+pero jesús seguía mirando la multitud a su alrededor para ver quién lo había hecho .
+"señor , por favor , haz que podamos ver , " respondieron ellos .
+así que le prometió con juramento darle cualquier cosa que ella deseara .
+cinco de ellas eran necias , y cinco eran sabias .
+ellos lo sujetaron por la fuerza , pero él salió corriendo desnudo , dejando allí tirado su vestido ) .
+pues adán fue creado primero , y luego eva .
+la gloria sea para dios , el padre , por siempre y para siempre . amén .
+había un hombre cuyos brazos y piernas estaban hinchados .
+entonces lo saludaban , diciendo : " ¡ salve , rey de los judíos ! "
+cuán bueno es para los que no se ofenden por mi causa . "
+el jefe de los sacerdotes presentó muchas acusaciones contra él .
+pero había otros que se burlaban y decían : " ¡ de seguro han estado tomando mucho vino ! "
+muchos falsos profetas vendrán y engañarán a muchas personas .
+josé tomó el cuerpo y lo envolvió en un paño nuevo de lino ,
+les diré la verdad : cualquiera que cree en él tiene vida eterna .
+jesus gritó otra vez a gran voz , y dio su último respiro .
+podemos estar seguros de que lo conocemos si seguimos sus mandamientos .
+y ellos le dijeron : "está pasando jesús de nazaret . "
+" ¿ dónde está ? " le preguntaron . "no lo sé , " respondió él .
+entonces llamó a uno de los siervos y le preguntó qué sucedía .
+zaqueo descendió rápidamente del árbol y estaba muy feliz de recibir a jesús en su casa .
+entonces , ¿ qué debemos concluir ? ¿ diremos que dios es injusto ? ¡ por supuesto que no !
+se acercaba la fecha de la fiesta judía de la pascua .
+así que la palabra de dios fue esparcida por toda la región .
+"les estoy explicando esto ahora , mientras aún estoy con ustedes .
+¡ y por creer en él , su recompensa será la salvación !
+yo lo vi , y declaro que este es el hijo de dios . "
+su camino los lleva al desastre y la miseria ;
+espero verte pronto para que hablemos cara a cara . ¡ que la paz esté contigo !
+noten que les he dicho esto antes de que siquiera ocurra .
+sin embargo , vamos a naufragar en alguna isla . "
+muerte , ¿ dónde está tu victoria ? ¿ dónde está tu aguijón ?
+ustedes le preguntaron a juan sobre mí y él dijo la verdad ,
+todos los aborrecerán por mi causa .
+si david lo llamó señor , ¿ cómo puede el mesías ser su hijo ? "
+después de haberles explicado todo lo que había sucedido , los envió a jope .
+que la gracia del señor jesús esté con los creyentes . amén .
+cerca de cuarenta personas hacían parte de esta conspiración .
+si resulta que yo puedo ir también , entonces ellos pueden ir conmigo .
+cuando llegaron a gólgota , que significa "lugar de la calavera , "
+¡ no podemos dejar de hablar sobre lo que hemos visto y oído ! "
+" ¿ acaso alguno de los gobernantes o fariseos ha creído en él ? ¡ no !
+entonces bernabé hizo planes para llevarse también a juan marcos .
+porque incluso sus propios hermanos no creían realmente en él .
+entonces los discípulos respondieron ; "el señor lo necesita . "
+y la noticia acerca de jesús se extendía por toda la región .
+levántate , baja , y ve con ellos . no te preocupes en absoluto , porque yo los envié . "
+entonces la lepra se fue por completo de su cuerpo , y quedó sano .
+en ese tiempo , herodes el tetrarca escuchó lo que jesús hacía
+crezcan y sean completamente fieles , así como su padre que está en el cielo es fiel .
+ninguno en la mesa entendió lo que jesús quiso decir con esto .
+la promesa que le hizo a nuestro padre abrahám
+luego fui a siria y a cilicia .
+él vino a su pueblo , pero ellos no lo aceptaron .
+y felipe tenía cuatro hijas solteras que profetizaban .
+siempre le doy gracias a dios por ti , al recordarte en mis oraciones ,
+le rogué al señor tres veces para deshacerme de este problema .
+cuando me ven a mí , están viendo al que me envió .
+entonces todos lloraron mientras lo abrazaban y lo besaban .
+"este hombre estaba con él . " pero pedro lo negó . " ¡ mujer , no lo conozco ! " le dijo .
+oren para que esto no ocurra durante el invierno .
+si hay alguna otra cosa , puede llevarse a asamblea legal .
+si no estoy haciendo lo que hace mi padre , entonces no me crean .
+entonces los jefes de los sacerdotes planeaban matar a lázaro también ,
+"yo no los abandonaré como huérfanos : regresaré a ustedes .
+pero los otros decían : "déjalo solo . veamos si elías viene y lo salva . "
+" ¿ por qué pensaría alguno de ustedes que es increíble que dios resucite a los muertos ?
+algunos aceptaron lo que pablo decía , pero otros se negaron a creer .
+lo traje ante tus discípulos pero ellos no pudieron sanarlo . "
+el hombre se levantó y se fue a su casa .
+—yo los conozco , y sé que no tienen el amor de dios en ustedes .
+entonces le hizo muchas preguntas a jesús , pero jesús no respondió nada en absoluto .
+después que terminaron de cantar , se fueron al monte de los olivos .
+porque mi carne es verdadera comida , y mi sangre es verdadera bebida .
+porque sus corazones estarán donde esté su tesoro .
+que el dios de paz esté con todos ustedes . amén .
+pero ellos se fueron y dieron a conocer acerca de jesús por todas partes .
+felipe dijo : "señor , muéstranos al padre , y estaremos convencidos . "
+betania estaba apenas a dos millas de jerusalén ,
+de modo que todos los que confíen en él , tendrán vida eterna .
+pero ellos seguían gritando : " ¡ crucifícalo ! ¡ crucifícalo ! "
+ustedes no creen en mí porque no son mis ovejas .
+también vio a una viuda muy pobre que dio dos monedas pequeñas .
+sin embargo , pablo sacudió la serpiente al fuego y no sufrió ningún daño .
+lo que les digo a ustedes , lo digo a todos : ¡ estén vigilantes ! "
+"pero estoy segura de que incluso ahora dios te concederá cualquier cosa que le pidas . "
+ellos dejaron sus redes de inmediato y lo siguieron .
+pilato quería soltar a jesús , así que habló con ellos de nuevo .
+aconteció que jesús estaba enseñando un sábado en la sinagoga ,
+jesús le dijo : "hija , tu fe te ha sanado , vete en paz . "
+sean humildes ante el señor y él los exaltará .
+de claudio de lisiasa su excelencia , el gobernador félix . saludos .
+entonces nos subimos al barco y regresamos a casa .
+puedes creer en esta afirmación que debe ser aceptada por todos .
+ellos estaban sorprendidos y asustados , pensando que veían a un fantasma .
+simplemente necesitamos asegurarnos de seguir lo que ya hemos entendido .
+y la gente de la multitud que seguía gritaba : " ¡ acaben con él ! "
+por eso me arrodillo ante el padre
+benditos son los que lloran , porque ellos serán consolados .
+pero jesús tomó al joven por la mano y lo ayudó a levantarse , y éste se puso en pie .
+su madre dijo a los sirvientes : "hagan todo lo que él les diga . "
+así que no se sorprendan si este mundo los aborrece .
+¿ quién les hará daño si la intención de ustedes es hacer el bien ?
+"es cierto que elías viene a poner cada cosa en su lugar ,
+creer en dios viene de oír , de oír el mensaje de cristo .
+jesús respondió : "todo el que bebe agua de este pozo , volverá a tener sed .
+jesús y sus discípulos se levantaron y lo siguieron .
+después de decir esto , jesús dijo en voz alta : " ¡ lázaro , sal de ahí ! "
+grandes multitudes siguieron a jesús cuando bajó de la montaña .
+luego abrió sus mentes para que pudieran entender las escrituras .
+estoy tan feliz con dios , mi salvador ,
+¿ acaso pueden ustedes añadir una hora a su vida preocupándose por ello ?
+el amor debe ser genuino . odien lo malo ; aférrense a lo bueno .
+( él dijo esto para señalar el tipo de muerte que iba a sufrir ) .
+así vemos que ellos no pudieron entrar , porque no confiaron en él .
+cuando jesús dijo "yo soy , " ellos retrocedieron y cayeron al suelo .
+entonces jesús llamó a la multitud y les dijo : "escuchen y entiendan esto :
+mi promesa para ellos es que borraré sus pecados . "
+los que no aman , no conocen a dios , porque dios es amor .
+entonces el diablo lo dejó , y los ángeles vinieron a cuidar de él .
+porque es pecado si sabes hacer lo bueno y no lo haces .
+después que jesús terminó de contar estos relatos , se fue de allí .
+pero jesús la tomó de la mano , y dijo en voz alta : "hija mía , ¡ levántate ! "
+pero dios , en su gran misericordia , por el maravilloso amor que tuvo por nosotros
+pero les decía que no dijeran quién era él .
+después de esto hicimos nuestras maletas y nos dirigimos hacia jerusalén .
+jesús subió a una colina y se sentó allí con sus discípulos .
+muchos de los que escucharon a jesús decir estas cosas , creyeron en él .
+pues viene a ser sagrado gracias a la palabra de dios y la oración .
+escribimos para decirles esto , a fin de que nuestra felicidad sea completa .
+( aunque no era jesús quien estaba bautizando , sino sus discípulos ) ,
+mientras todos estaban atentos , dijo a sus discípulos :
+en consecuencia , enfrentamos la muerte para que ustedes tengan vida .
+ahora que han probado cuán bueno es el señor .
+¡ sus enemigos serán los de su propia familia !
+aunque espero verte pronto , te escribo sobre todas estas cosas para que
+cuando terminó de hablarle a la gente , jesús se fue hacia capernaúm .
+y si produce fruto , estará bien . si no , entonces córtalo . ’ "
+sin embargo , como hay muchas partes , asi se conforma el cuerpo .
+pero no era suficientemente fuerte , y no pudieron permanecer más en el cielo .
+¡ ustedes son nuestro orgullo y nuestra alegría !
+jesús respondió : "te prometo hoy que estarás conmigo en el paraíso . "
+él te traerá gozo y alegría , y muchos celebrarán su nacimiento .
+¿ cuándo te vimos enfermo o en la cárcel y te visitamos ? ’
+"algunos de los maestros religiosos respondieron : "esa fue una buena respuesta , maestro . "
+todo llegó a existir por medio de él ; y sin él nada llegó a existir .
+la orden fue enviada y juan fue decapitado en la cárcel .
+mientras subían , la gente enseguida reconoció a jesús .
+cuando escuchó esto , pilato preguntó : " ¿ es galileo este hombre ? "
+ahora que ustedes entienden estas cosas , serán benditos si las hacen .
+mientras los fariseos estaban allí reunidos , jesús les hizo una pregunta :
+"déjenme hacerles una pregunta también , " respondió jesús . "díganme :
+"así que escuchen el relato del sembrador :
+quedarás embarazada y tendras un hijo . lo llamarás jesús .
+"pedro dijo : " ¡ nosotros lo dejamos todo para seguirte ! "
+"escuchen lo que hasta un juez injusto decidió , " dijo el señor .
+uno de ellos , quien era un experto en la ley , le hizo una pregunta para probarlo :
+tenían cabello largo como mujeres y dientes como de leones .
+así que decidan de antemano no preocuparse por cómo van a defenderse ,
+¿ quién de ustedes puede , por mucho que se afane , añadir un minuto a su vida ?
+pedro lo negó una vez más , e inmediatamente un galló cantó .
+si todas fueran la misma parte , ¿ qué ocurriría con el cuerpo ?
+él ha ayudado a su siervo israel , acordándose de él con misericordia ,
+la luz verdadera estaba por venir al mundo para dar luz a todos .
+ellos se deleitaron con esto y le ofrecieron dinero .
+todos los que son guiados por el espíritu de dios son hijos de dios .
+" ¿ qué les dijo moisés que hicieran ? " les preguntó como respuesta .
+"asegúrense de que nadie los confunda , " respondió jesús .
+el aumento del mal hará que el amor de muchos se enfríe ,
+por eso el espíritu santo dice : "si oyen lo que dios les está diciendo hoy ,
+porque el hijo del hombre es señor del sábado . "
+tenemos plena confianza ante dios por medio de cristo .
+muestren hospitalidad unos con otros y no se quejen .
+esto está en conformidad con las palabras de los profetas , tal como está escrito :
+ellos no podían creer en él , y como consecuencia , cumplieron lo que isaías dijo :
+yo les he dejado un ejemplo , para que ustedes hagan como yo hice .
+y por lo que él les dijo , muchos creyeron en él .
+esa es la razón por la que el hombre deja a su padre y a su madre y se une en matrimonio con su esposa ,
+pero después que yo me haya levantado de entre los muertos , iré delante de ustedes a galilea . "
+"fuiste a casa de hombres incircuncisos y comiste con ellos , " dijeron .
+" ¿ son ciertas estas acusaciones ? " preguntó el sumo sacerdote .
+envíen mis saludos a maría , que ha trabajado mucho por ustedes ,
+" ¿ le trajo comida alguien ? " se preguntaban los discípulos unos a otros .
+cuando llegó la noche , jesús se sentó allí a comer con los doce .
+vine a ustedes estando débil , temeroso y con temblor .
+pero aquellos que se mantengan firmes hasta el fin serán salvos .
+y pasaron por pisidia , y llegaron a panfilia .
+tampoco pueden probarle a usted ninguna de sus demás acusaciones contra mí .
+jesús interrumpió al espíritu malo diciéndole : " ¡ cállate ! sal de él . "
+e inmediatamente pudo hablar de nuevo , y comenzó a alabar a dios .
+comenzaron a suplicarle a jesús que se fuera de su región .
+esta "persuasión" sin duda no proviene de aquél que los llama .
+"si no fuera un criminal , no lo habríamos traído ante ti , " respondieron ellos .
+sin embargo me quedaré en éfeso hasta el pentecostés ,
+benditos son ; los corazón puro , porque ellos verán a dios .
+esto cumplió lo que el profeta isaías dijo :
+" ¿ aún no lo han entendido ? " respondió jesús .
+el más importante entre ustedes tendrá que ser siervo entre ustedes .
+y dios realizaba milagros extraordinarios a través de pablo ,
+mientras decía esto , sopló sobre ellos y les dijo : "reciban el espíritu santo .
+de modo que el reposo del sábado todavía permanece para el pueblo de dios .
+el amo tuvo misericordia del siervo , lo liberó y canceló la deuda .
+había allí cuatro mil personas . y después de despedirlos ,
+pero yo lo conozco , porque yo vengo de él , y él me ha enviado . "
+así que los discípulos iban por todos lados llamando a las personas al arrepentimiento .
+el señor es uno , nuestra confianza en él es una , y hay un solo bautismo ;
+entonces pedro dijo : "por favor , dinos lo que quieres decir con esta ilustración . "
+( jesús dijo esto porque ellos decían : "él tiene un espíritu maligno . " )
+el discípulo a quien jesús amaba estaba sentado junto a él en la mesa , apoyado cerca de él .
+¡ entonces sigan y acaben la obra de una vez por todas usando los métodos de sus antepasados !
+y son de cristo , y cristo es de dios .
+entonces pedro y el otro discípulo fueron a la tumba .
+pero jesús les dijo : "mi padre aún trabaja , y yo también . "
+pero pablo gritó : " ¡ no te hagas daño , todavía estamos aquí ! "
+entonces el espíritu le dijo a felipe : "ve y acércate más a ese carruaje . "
+pero como ya casi era la fecha de la fiesta judía de los tabernáculos ,
+entonces un ángel del cielo se le apareció para darle fortaleza .
+mientras cabalgaba , la gente extendía sus mantos sobre el camino .
+han condenado y han asesinado al inocente que ni siquiera les opuso su resistencia .
+ellos no son del mundo , así como yo no soy del mundo .
+entonces ellos se rieron de él , porque sabían que ella estaba muerta .
+pero inmediatamente jesús les dijo : " ¡ no se preocupen , soy yo ! ¡ no tengan miedo ! "
+"estás en lo cierto , " le dijo jesús . "haz esto , y vivirás . "
+"hay muchas cosas más que quiero explicarles , pero no podrían entenderlas ahora .
+"madre , ¿ por qué deberías involucrarme ? mi tiempo no ha llegado aún , " respondió él .
+entonces arrestaron a los apóstoles y los metieron a la cárcel pública .
+al día siguiente , después de salir de betania , jesús tuvo hambre .
+los discípulos de juan le contaron todo esto a él .
+"no recauden más de lo que deben cobrar , " respondió él .
+después de esto galión mandó a sacarlos de la corte .
+esta persona sufrió suficiente castigo por parte de la mayoría de ustedes ,
+al ver a jesús desde la distancia , corrió y se arrodilló frente a él .
+yo te digo ( dirigiéndose al paralítico ) , ‘levántate , recoge tu camilla y vete a casa . ’ "
+"este es el significado de la ilustración : la semilla es la palabra .
+si un hermano o hermana no tiene ropas , o comida para el día ,
+cuando llegamos a jerusalén , los creyentes nos recibieron calurosamente .
+cuando llegó la tarde , sus discípulos descendieron al mar ,
+una vez más los judíos tomaron piedras para lanzárselas .
+"pero tengo algo contra ti : has descuidado tu primer amor .
+me siento muy feliz de poder confiar plenamente en ustedes .
+así que , mis amigos , manténganse lejos del culto idólatra .
+mientras estoy aquí en el mundo , yo soy la luz del mundo . "
+jesús se acercó a ellos y los tocó . "levántense , " les dijo . "no tengan miedo . "
+y desde allí le gritaron : "jesús , maestro , por favor , ten misericordia de nosotros . "
+entonces las personas que viven en judea , deben huir a las montañas .
+" ‘te pondré a cargo de cinco ciudades , ’ le dijo el rey .
+¿ acaso puede brotar de la misma fuente agua dulce y amarga a la vez ?
+"ya lo has visto . ¡ es el que habla contigo ahora ! " le dijo jesús .
+y los dos se vuelven un solo cuerpo . ya no son más dos , sino uno .
+"nadie nunca habló como habla este hombre , " respondieron los guardias .
+y los judíos se le unieron , diciendo que todo esto era verdad .
+él fue a hablar a los que estaban "presos"
+entonces jesús les preguntó : " ¿ por qué se dice que cristo es el hijo de david ?
+mientras estaban allí , le llegó a ella el tiempo para tener a su bebé .
+¿ acaso alguno de ustedes le daría una piedra a su hijo si este le pide un pan ?
+josé fue donde pilato y le pidió el cuerpo de jesús .
+del mismo modo , enseña a los hombres jóvenes a ser sensatos .
+no me considero inferior a estos "súper apóstoles . "
+ellos le dijeron a jesús : "maestro , esta mujer fue atrapada en el acto del adulterio .
+pero se les impidió que lo reconocieran .
+¡ quizás lo perdiste por un tiempo para ahora tenerlo para siempre !
+los que estaban aquejados por espíritus malignos también eran sanados .
+cuando oyeron esto , los discípulos cayeron sobre sus rostros , completamente aterrorizados .
+el número total de personas a bordo era de doscientas setenta y seis .
+durante este tiempo algunos profetas fueron de jerusalén a antioquía .
+así que cada uno de nosotros tendrá que rendir cuenta de sí mismo a dios .
+después que terminó de contarles este relato , jesús partió hacia jerusalén , caminando adelante .
+" ¡ entonces recibe la vista ! " le dijo jesús . "tu fe en mí te ha sanado . "
+ahora ellos saben que todo lo que me has dado viene de ti .
+esto sucedió tres veces , y luego todo esto se devolvió al cielo .
+¿ cómo es posible que les escuchemos hablar en nuestros propios idiomas ? "
+"no te preocupes , maría , " siguió diciendo el ángel , "pues dios te ha mostrado su gracia .
+el hijo de enós , el hijo de set , el hijo de adán , el hijo de dios .
+y no le den ninguna oportunidad al diablo .
+" ¿ no te dije que si crees en mi verás la gloria de dios ? " respondió jesús .
+"puedo ver que eres un profeta , señor , " respondió la mujer .
+y algunos de los que estaban allí oyeron esto y dijeron : "está llamando a elías . "
+habrá dos mujeres moliendo trigo , una será tomada , y la otra será dejada . "
+"entonces oí una voz que me dijo : ‘levántate , mata y come . ’
+sin embargo , tú enseña lo que está acorde a las creencias sanas .
+" ¿ por qué me llamas bueno ? " le preguntó jesús . "nadie es bueno , solo dios .
+cuán felices son aquellos a quienes el señor no considera pecadores . "
+pero cuando esté completo , entonces lo que está incompleto desaparecerá .
+luego lo escupieron , y tomando el palo que tenía , le golpeaban la cabeza con él .
+" ¿ acaso los ha engañado a ustedes también ? " les preguntaron los fariseos .
+así se cumplió la profecía del profeta jeremías :
+así que nadie puede decir que fue bautizado en mi nombre .
+¿ no recuerdan que les dije todo esto cuando todavía estaba con ustedes ?
+pero como ya les expliqué antes , ustedes me han visto , pero aún no creen en mí .
+un reino que pelea contra sí mismo no puede mantenerse .
+¡ cosa terrible es caer en manos del dios vivo !
+¿ qué veredicto dan ustedes ? " " ¡ culpable ! ¡ merece morir ! " respondieron ellos .
+porque donde acumulen su riqueza , allí es donde estará su corazón también .
+la salvación no depende del esfuerzo humano , así que no se enorgullezcan .
+ellos verán su rostro , y su nombre estará escrito sobre sus frentes .
+ahí se ven a sí mismos , pero luego se van , y de inmediato olvidan cómo se veían .
+cuando terminó de despedirse , subió a las montañas para orar .
+desde el medio día hasta las tres de la tarde hubo tinieblas en todo el país .
+si tienen oídos , escuchen lo que el espíritu dice a las iglesias .
+" ¿ quieren que libere al rey de los judíos ? " les preguntó ,
+"yo no te abandonaré aunque todos los demás lo hagan , " respondió pedro .
+incluso los cabellos que ustedes tienen en sus cabezas han sido contados .
+durante el momento en que se ofrendaba el incienso , había una gran multitud orando afuera .
+donde los gusanos no mueren y el fuego no se apaga .
+llegó el momento en que isabel tendría su bebé , y tendro un hijo .
+estaba la casa de zacarías . al entrar llamó a isabel .
+él me trae gloria porque él les enseña todo lo que recibe de mí .
+pero jesús les dijo : "ellos no necesitan irse . ¡ denles ustedes de comer ! "
+entonces jesús le dijo al hombre : "levántate y sigue tu camino . tu fe te ha sanado . "
+entonces jesús fue con él . todos lo seguían , al tiempo que lo empujaban y se arrimaban sobre él .
+escribo esto para advertirles contra las cosas que quieren descarriarlos .
+¡ esto viene del señor , y desde nuestro punto de vista es maravilloso ! ’ ? "
+pero la palabra de dios se esparcía , y cada vez más personas creían .
+ellos estaban extremadamente incómodos . uno por uno le preguntaban : "señor , no soy yo , ¿ cierto ? "
+" ¿ cuántos panes tienen ? " preguntó jesús . "siete , " respondieron ellos .
+y esto es lo que debes enseñar . diles a todos que sigan tus instrucciones .
+esa fue la razón por la que sus padres dijeron "pregúntenle a él , pues ya está suficientemente grande . "
+el granjero que hace todo el trabajo duro debe ser el primero en beneficiarse de la cosecha .
+les digo la verdad , esta generación no llegará a su fin hasta que estas cosas hayan ocurrido .
+"marta , marta , " respondió el señor , "estás preocupada y alterada por esto .
+saludos de los hijos de tu hermana escogida .
+cuando el trigo creció y produjo espigas , la maleza también creció .
+si tienen oídos , escuchen lo que el espíritu dice a las iglesias .
+pero tan pronto como la multitud vio a jesús , se asombraron , y corrieron a recibirlo .
+¿ acaso el mesías no tenía que sufrir antes de entrar a su gloria ? "
+cuando terminen los mil años , satanás será liberado de su prisión ,
+entonces ellos le preguntaron : " ¿ qué tenemos que hacer para hacer la voluntad de dios ? "
+si tienen oídos , escuchen lo que el espíritu dice a las iglesias .
+en tiempos pasados , él dejó que las naciones siguieran sus propios caminos .
+en toda nación , dios recibe a aquellos que lo respetan y hacen lo recto .
+pero él respondió : ‘en verdad les digo que no las conozco . ’
+y los creyentes seguían siendo llenos de gozo y del espíritu santo .
+entonces todos los discípulos de jesús lo abandonaron y huyeron .
+"en esta era la gente se casa y se da en casamiento , " explicó jesús .
+allí había una mujer que había estado enferma por causa de un sangrado durante doce años .
+¿ no escuchas todos los cargos que ellos están presentando contra ti ? " le preguntó pilato .
+" ¿ qué debemos hacer al respecto ? sin duda la gente escuchará que llegaste aquí .
+no hay amor más grande que dar la vida por los amigos .
+¡ y como tenemos esta esperanza segura , hablamos sin temor !
+tercio—quien escribe esta carta—también los saluda en el señor .
+pero todo el que invoque el nombre del señor será salvo . " ’
+el sol salió y las chamuscó y se murieron porque no tenían raíces .
+había siete hermanos . el primero tuvo una esposa y murió sin tener hijos .
+cuando ya no pudieron encontrarlo , regresaron a jerusalén para buscarlo allí .
+entonces él gritó : " ¡ jesús , hijo de david , por favor , ten misericordia de mí ! "
+lo envío , pues , con mis más sinceros deseos .
+nos detuvimos en siracusa , y pasamos allí tres días .
+ellos lo azotarán y lo matarán , pero el tercer día , él se levantará otra vez . "
+quien te dirá lo que necesitas escuchar para que seas salvo , tú y toda tu casa . ’
+si tienes oídos , escucha lo que el espíritu dice a las iglesias . "
+pero cuando llegaron , vieron que la piedra enorme y pesada ya estaba rodada de su lugar .
+entonces él se inclinó hacia jesús y le preguntó , "señor , ¿ quién es ? "
+"si eres el rey de los judíos , entonces sálvate a ti mismo . "
+él debe volverse más importante , y yo debo volverme menos importante . "
+"si el mundo los odia , recuerden que ya me odió a mi antes que a ustedes .
+y todo el concilio lo llevó donde pilato .
+el mensaje que han escuchado desde el principio es este : debemos amarnos unos a otros .
+pero esto resultará siendo una oportunidad para que ustedes hablen por mí delante ellos .
+porque el hombre que había recibido este milagro tenía más de cuarenta años de edad .
+después de dos días , siguió camino a galilea .
+felipe era de betsaida , la misma ciudad de donde venían andrés y pedro .
+el espíritu santo les enseñará en ese momento lo que es importante que digan . "
+el hombre respondió : "dime quién es , para creer en él . "
+sabemos que el juicio de dios sobre aquellos que hacen tales cosas está basado en la verdad .
+porque en la noche es cuando la gente duerme ; y es en la noche que se emborrachan .
+donde vayan , díganle a la gente : ‘el reino de los cielos está cerca . ’
+y una gran multitud acompañaba a jesús . entonces él se volvió a ellos y les dijo :
+( él se había dado cuenta que ellos habían arrestado a jesús por celos para juzgarlo ) .
+cuando las multitudes oyeron lo que dijo , se quedaron asombrados de su enseñanza .
+y siempre me alegro de recordarlos a todos en mis oraciones ,
+"señor , solo ven antes de que mi hijo muera , " suplicó el oficial .
+ahora bien , reconocemos que la ley es buena si las personas la usan de manera adecuada .
+¿ no hubo ninguno que quisiera venir y alabar a dios excepto este extranjero ? "
+pues ella pensaba dentro de sí : "si tan solo logro tocar su manto , seré sanada . "
+pues dios no tiene favoritos .
+cuando el grano está maduro , el granjero lo siega con una hoz , pues la cosecha está lista .
+y si los muertos no resucitan , entonces cristo no resucitó tampoco ,
+"lo único que tenemos son cinco panes y un par de peces , " respondieron ellos .
+"este es mi mandato : ámense unos a otros como yo los he amado a ustedes .
+cualquiera que acepta a un niño como este en mi nombre , me acepta a mí .
+entonces pedro lo miró fijamente , y juan también . " ¡ míranos ! " le dijo pedro .
+será bueno para ese siervo cuando su amo regrese y lo encuentre haciendo su deber .
+"pero no hay ninguno entre tus parientes que tenga este nombre , " le dijeron .
+tengo mucho que decirte , pero no quiero hacerlo escribiendo con tinta .
+los que oyeron esto se preguntaron : " ¿ entonces quién podrá salvarse ? "
+" ¡ detente ! ¡ basta de esto ! " dijo jesús . entonces tocó la oreja del hombre y lo sanó .
+ellos inmediatamente dejaron el bote y a su padre , y lo siguieron .
+y aquellos que siguen su naturaleza pecaminosa no pueden agradar a dios .
+es como abraham , que "confío en dios , y fue considerado como hombre justo . "
+pero jesús mismo no se confiaba de ellos , porque él conocía a todas las personas .
+que la gracia de nuestro señor jesucristo esté con ustedes .
+entonces les dijo : "el hijo del hombre es señor del sábado . "
+jesús respondió : " ¡ destruyan este templo , y en tres días lo levantaré ! "
+" ¿ ahora lo entienden todo ? " "sí , " respondieron ellos .
+" ¿ con qué compararé a este pueblo ? " preguntó jesús . " ¿ a qué son semejantes ?
+mis ovejas reconocen mi voz ; yo las conozco , y ellas me siguen .
+si no hubiera resurrección de los muertos , entonces cristo tampoco ha resucitado .
+les digo esto para que ninguno los engañe con cuentos .
+digamos que había siete hermanos . el primero se casó y murió sin tener hijos .
+había muchos dando falso testimonio contra él , pero sus afirmaciones no concordaban .
+pero él lo negó delante de todos . "no sé de qué hablas , " dijo él .
+usaba una túnica cubierta de sangre , y su nombre es la palabra de dios .
+estas mujeres siempre están intentando aprender pero nunca pueden entender la verdad .
+" ¡ creo en ti , señor ! " dijo él , y se arrodilló para adorar a jesús .
+jesucristo es el mismo ayer , hoy y para siempre .
+así que los dos discípulos fueron y encontraron todo como jesús lo había dicho .
+así que no sean ignorantes y averigüen cuál es la voluntad de dios .
+dejarán de escuchar la verdad y andarán errantes , siguiendo mitos .
+y maría se quedó con isabel durante tres meses y luego regresó a su casa .
+una vez más , pedro lo negó , diciendo con juramento : "yo no lo conozco . "
+todos los que viven en mí y creen en mí , no morirán jamás . ¿ crees esto ? "
+deberían imitarme a mí , así como yo imito a cristo .
+"ahora envía hombres a jope , y trae a simón , también llamado pedro ,
+pero maría guardaba en su corazón todas las cosas que habían sucedido y a menudo pensaba en ellas .
+las jóvenes necias llevaron sus lámparas pero no llevaron aceite ,
+jesús encontró un potrillo y se montó sobre él , tal como dice la escritura :
+amigos míos , elijan estar felices aun cuando se atraviesen todo tipo de problemas en su camino ,
+jesús le dijo al hombre con la mano lisiada : "ven y párate aquí frente a todos . "
+que la gracia del señor jesucristo esté con el espíritu de cada uno de ustedes .
+y ninguna persona que sea así debe pensar que podrá recibir algo del señor ,
+entonces asegúrate de que la luz que crees tener en ti , no sea realmente oscuridad .
+¿ pero acaso me aproveché de ustedes mediante alguno de los que envié ?
+no reciben respeto los que se elogian a sí mismos , sino a los que el señor elogia .
+pues la plenitud de la naturaleza divina de dios habita en cristo en forma humana ,
+"yo soy la vid verdadera y mi padre es el jardinero .
+él vio a jesús que pasaba y dijo : " ¡ miren ! ¡ este es el cordero de dios ! "
+así que imiten a dios , pues ustedes son sus hijos amados .
+jesús se fue de allí y se dirigió a nazaret con sus discípulos .
+"mira , señor , aquí hay dos espadas , " dijeron ellos . "es suficiente , " respondió .
+josé se despertó e hizo lo que el ángel del señor le dijo que hiciera .
+estén siempre felices en el señor . les repito : ¡ estén felices !
+luego los hombres que custodiaban a jesús comenzaron a burlarse de él y a golpearlo .
+yo soy el buen pastor . el buen pastor entrega su vida por sus ovejas .
+marta le dijo a jesús : "señor , si hubieras estado aquí , mi hermano no habría muerto .
+siendo que tenemos este gran sacerdote que está a cargo de la casa de dios ,
+pedro levantó la voz y dijo : "nosotros lo hemos dejado todo para seguirte … "
+esto es lo que el señor dice , el que reveló estas cosas hace mucho tiempo . ’
+estos hombres no están ebrios , como ustedes insinúan . ¡ noten que apenas son las nueve de la mañana !
+cuando el señor la vio se llenó de compasión por ella . "no llores , " le dijo .
+saulo se quedó con los apóstoles y los acompañó hasta jerusalén ,
+les digo la verdad , cualquiera que sigue mi enseñanza , no morirá jamás . "
+david lo llama ‘señor . ’ ¿ cómo entonces , puede ser el hijo de david ? "
+entonces el hombre paralítico puso toda su atención en ellos , esperando recibir algo .
+¡ en lugar de ello , un creyente lleva a otro creyente a la corte y presenta el caso ante quienes no son creyentes !
+"señor , mi siervo está en casa , acostado y sin poder moverse . está sufriendo una terrible agonía . "
+¡ si alguno piensa que sabe cosa alguna , no sabe como realmente debería saber !
+entonces pilato les entregó a jesús para que lo crucificaran .
+¿ deberíamos pagar los impuestos al cesar , o no ? "
+para nosotros , la vida vale la pena porque ustedes están firmes en el señor .
+¿ están ya casados ? no traten de divorciarse . ¿ no están casados ? no traten de casarse .
+maría respondió : " ¡ cuánto alabo al señor !
+reconociendo que su conducta es pura y reverente .
+cuando se fueron de jericó , una gran multitud siguió a jesús .
+yo le mostraré que él tendrá que sufrir por causa de mi nombre . "
+entonces dijo : "jesús , por favor , acuérdate de mí cuando entres a tu reino . "
+y la noticia sobre lo que había ocurrido se esparció por toda esa región .
+después de esto , miré , y el templo de la "tienda del testigo" estaba abierto .
+pero jesús respondió : "la comida que yo tengo para comer es una de la que ustedes no saben . "
+este es el mandamiento más importante , el primer mandamiento .
+le rogué a tus discípulos que lo expulsaran , pero no pudieron hacerlo . "
+sin embargo , todo aquél que acepta lo que el dice , confirma que dios habla la verdad .
+después de esto , hubo una celebración judía , así que jesús fue a jerusalén .
+dos mujeres estarán moliendo grano en un molino . se tomará a una y se dejará a la otra .
+la sal es buena , pero si pierde su sabor , ¿ cómo podrás hacer que sea salada nuevamente ?
+ustedes deben ir a las ovejas perdidas de la casa de israel .
+no obstante , espero que comprendan que nosotros no hemos fallado .
+"alguien me tocó , " respondió jesús . "lo sé porque salió poder de mí . "
+luego se llevaron al joven a casa , vivo y sano , y estaban muy agradecidos por ello .
+mientras jesús estaba en la casa de simón el leproso , en betania ,
+tomás le dijo : "señor , no sabemos a dónde vas . ¿ cómo podemos conocer el camino ? " .
+y como morimos con cristo , tenemos la confianza de que también viviremos con él ,
+ellos se fueron primero y nos esperaron en troas .
+las puertas de la ciudad no serán cerradas durante el día ( allí no habrá noche ) .
+así que no se preocupen . ¡ ustedes valen más que muchos gorriones !
+" ¿ de quién es la imagen y el título que está inscrito en ella ? " les preguntó .
+así que se fueron en una barca a un lugar tranquilo para estar a solas .
+yo no estoy buscando aprobación humana
+que la gracia de nuestro señor jesucristo esté con todos ustedes .
+y en cuanto esté de parte de ustedes , vivan en paz con todos .
+¡ todo llegará a su fin ! así que piensen con claridad y manténganse vigilantes cuando oren .
+entonces herodes agregó un crimen más sobre sí enviando a juan a la cárcel .
+si satanás está dividido y pelea contra sí mismo , no durará y pronto llegará a su fin .
+sin embargo , en el principio , desde la creación , dios los creó hombre y mujer .
+hagan con otros lo que quieren que hagan con ustedes .
+de repente , allí en la sinagoga , un hombre con un espíritu malo comenzó a gritar .
+entonces algunos de los maestros religiosos que estaban sentados allí dijeron para sí :
+el cielo y la tierra podrán perecer , pero mis palabras no morirán .
+más vale que no estén durmiendo si el dueño regresa sorpresivamente .
+entonces ellos le preguntaron : " ¿ qué te hizo ? ¿ cómo fue que abrió tus ojos ? "
+pero desde ahora el hijo del hombre se sentará a la diestra del dios todopoderoso . "
+levántate , bautízate y lava tus pecados invocando su nombre . ’
+¿ qué es lo que ha ocurrido , entonces ? ¿ me he convertido en enemigo de ustedes por decir la verdad ?
+el poder sea suyo , por siempre y para siempre . amén .
+cada casa tiene su constructor ; dios es el constructor de todo .
+así que respondieron , diciendo : "no sabemos de dónde venía . "
+" ¿ quién es esta persona que te dijo que cargaras tu camilla y caminaras ? " preguntaron ellos .
+y para proclamar el tiempo del favor del señor . "
+uno de sus discípulos , andrés , hermano de simón pedro , dijo en voz alta :
+todos en el país estamos muy agradecidos por esto .
+como dice la escritura : "nadie hace lo recto , ni siquiera uno .
+entonces el terrateniente envió más siervos , pero los granjeros hicieron lo mismo con ellos .
+después de haber ayunado por cuarenta días y cuarenta noches , tenía hambre .
+entonces lo desnudaron y pusieron un manto de color escarlata sobre él .
+así que yo los animo a que públicamente confirmen su amor hacia él .
+a la mañana siguiente regresaron , vieron la higuera , y se había marchitado toda desde la raíz .
+y pasaban todo el tiempo en el templo , alabando a dios .
+porque lo que ustedes digan los vindicará o los condenará . "
+a fin de que nadie pueda jactarse en la presencia de dios .
+y el hijo le respondió , ‘no iré , ’ pero después se arrepintió de lo que dijo y fue .
+si alguno quiere jactarse , que se jacte en el señor . "
+así que inmediatamente envió a un verdugo para que le trajera la cabeza de juan . después de decapitarlo en la prisión ,
+después de leerla , estaban muy felices por el mensaje de ánimo .
+pilato reunió a los jefes de los sacerdotes , a los líderes y al pueblo ,
+cerca de las 9 a . m . salió y vio a otros que estaban sin trabajar en la plaza del mercado .
+pues este hombre solo trabaja para recibir su pago y no le importan las ovejas .
+cuando pedro tocó la puerta , una sierva llamada rode salió a abrirle .
+"el día que el hijo del hombre aparezca será así .
+juan declaró claramente y sin dudar : "yo no soy el mesías . "
+los discípulos dijeron : "señor , si está durmiendo , se pondrá mejor . "
+" ¿ qué quieres que yo haga por ti ? " "señor , por favor , quiero ver , " le suplicó .
+les digo la verdad : esta generación no morirá hasta que todas estas cosas hayan pasado .
+porque él desea que todos seamos salvos y comprendamos la verdad .
+había un hombre llamado ananías , que vendió una propiedad junto con su esposa , safira .
+entre el medio día y las 3 p . m . salió e hizo lo mismo .
+pero durante la noche , un ángel del señor abrió las puertas de la prisión y los hizo salir .
+¿ quién puede conocer los pensamientos de dios ? ¿ quién puede darle consejo ?
+pero ahora les aconsejo que mantengan el valor , porque nadie se perderá , sino solo el barco .
+pero como ustedes no creen en lo que él dijo , ¿ porqué confiarían en lo que yo digo ? "
+no te sorprendas de que te dije : ‘debes volver a nacer . ’
+jesús los llamó : "amigos , ¿ no han atrapado nada ? " "no , " respondieron ellos .
+( ¡ en realidad , él no sabía qué decir porque los tres discípulos estaban muy asustados ! )
+" ¿ por qué están asustados ? ¿ por qué dudan ? " les preguntó .
+por esto dios les envía un engaño que los convencerá a fin de que crean en la mentira .
+durante estos días , el rey herodes comenzó a perseguir a algunos miembros de la iglesia .
